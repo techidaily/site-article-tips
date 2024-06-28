@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Guide to the Best Auto Tracking Cameras"
-date: 2024-06-12T00:49:22.079Z
-updated: 2024-06-13T00:49:22.079Z
+date: 2024-06-27T10:30:59.634Z
+updated: 2024-06-28T10:30:59.634Z
 tags: 
   - screen-recording
   - ai video
@@ -221,7 +221,7 @@ For Win 7 or later (64-bit)
 
 For macOS 10.12 or later
 
-![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg)Secure Download
+![secure download](https://static.wondershare.com/images-filmora/images/common/securety.svg) Secure Download
 
 ### Frequently Asked Questions About Auto-Tracking Camera
 

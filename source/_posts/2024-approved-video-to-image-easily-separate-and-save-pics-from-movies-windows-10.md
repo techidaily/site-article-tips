@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Video to Image  Easily Separate and Save Pics From Movies (Windows 10)\""
-date: 2024-06-12T00:52:01.810Z
-updated: 2024-06-13T00:52:01.810Z
+date: 2024-06-19T23:54:24.979Z
+updated: 2024-06-20T23:54:24.979Z
 tags: 
   - screen-recording
   - ai video
@@ -45,7 +45,7 @@ Creating a living image:
 * Open the folder containing your video and search the particular video. Right-click video > ‘Open With’ > ‘Photos’ > allow the video to play.
 * Right-click within the player > Edit and create > Save photos.
 
-![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
+![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 * Now, you can see the living picture by tapping ‘Play’ button.
 

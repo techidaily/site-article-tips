@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, LuminarX  The Free/Paid Lightroom Rival List\""
-date: 2024-06-12T00:52:04.474Z
-updated: 2024-06-13T00:52:04.474Z
+date: 2024-06-19T23:54:24.010Z
+updated: 2024-06-20T23:54:24.010Z
 tags: 
   - screen-recording
   - ai video
@@ -241,7 +241,7 @@ This tool is the most affordable and effective choice in terms of photo editor f
 
 ### Best Online Alternatives for Lightroom
 
-#### 1. [Polarr](https://photoeditor.polarr.co/)
+#### 1. Polarr
 
 Polarr is an online available editor who is mainly to help semi photographers and beginners to learn editing in very little time. It has resizing, color correction, auto-enhance function, spot removal tool, etc. various filters and effects. Also, the tool is a bit intuitive which makes it a dedicating tool for editing. It is surely should be considered while looking for the best lightroom online alternative.
 
@@ -268,7 +268,7 @@ Polarr is an online available editor who is mainly to help semi photographers an
 * No Raw Files support
 * You cannot install third-party plugins
 
-#### 2.[Taglery](https://taglery.com/)
+#### 2. Taglery
 
 This is a place where you can organize your image effectively. It is an all-in-one space for a simple, intuitive library to collect and you can find your all images in a single place. The file format it supports is SVG, JPEG, and PNG. It can find automatically specific information and recognize people who are known and successful. Also, the data is very much secured on the cloud and accessible at any time.
 

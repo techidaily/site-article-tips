@@ -1,7 +1,7 @@
 ---
 title: "Audience's Choice in Drama Writings"
-date: 2024-06-12T00:52:51.931Z
-updated: 2024-06-13T00:52:51.931Z
+date: 2024-06-19T23:54:23.363Z
+updated: 2024-06-20T23:54:23.363Z
 tags: 
   - screen-recording
   - ai video
@@ -159,13 +159,13 @@ The drama first aired on iTunes in 2009, and its final season premiered in 2014\
 
 If you are looking for good websites to download free radio dramas, then these are the websites you are looking for:
 
-### 1\. [Simply Scripts](https://www.simplyscripts.com/radio%5Fall.html)
+### 1\. Simply Scripts
 
 Simply Scripts is indeed a database of thousands of downloadable scripts, movie scripts, screenplays, and transcripts from current, classic, and possibly upcoming movies, television shows, anime, unproduced, and radio shows. A resource for screenwriters.
 
 ![simply scripts](https://images.wondershare.com/filmora/article-images/2022/08/radio-drama-scripts-5.jpg)
 
-### 2\. [BBC Radio Shows](https://archive.org/details/folksoundomy%5Fbbcradio?&sort=-week&page=2)
+### 2\. BBC Radio Shows
 
 Nearly 35 million people listen to BBC Radio each week. The BBC provides a range of services aimed at providing listeners with high-quality programming, regardless of their interests or mood.
 
@@ -218,13 +218,13 @@ The drama first aired on iTunes in 2009, and its final season premiered in 2014\
 
 If you are looking for good websites to download free radio dramas, then these are the websites you are looking for:
 
-### 1\. [Simply Scripts](https://www.simplyscripts.com/radio%5Fall.html)
+### 1\. Simply Scripts
 
 Simply Scripts is indeed a database of thousands of downloadable scripts, movie scripts, screenplays, and transcripts from current, classic, and possibly upcoming movies, television shows, anime, unproduced, and radio shows. A resource for screenwriters.
 
 ![simply scripts](https://images.wondershare.com/filmora/article-images/2022/08/radio-drama-scripts-5.jpg)
 
-### 2\. [BBC Radio Shows](https://archive.org/details/folksoundomy%5Fbbcradio?&sort=-week&page=2)
+### 2\. BBC Radio Shows
 
 Nearly 35 million people listen to BBC Radio each week. The BBC provides a range of services aimed at providing listeners with high-quality programming, regardless of their interests or mood.
 

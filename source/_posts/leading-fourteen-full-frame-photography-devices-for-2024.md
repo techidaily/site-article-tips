@@ -1,7 +1,7 @@
 ---
 title: "Leading Fourteen Full Frame Photography Devices for 2024"
-date: 2024-06-12T00:43:16.526Z
-updated: 2024-06-13T00:43:16.526Z
+date: 2024-06-19T23:54:24.531Z
+updated: 2024-06-20T23:54:24.531Z
 tags: 
   - screen-recording
   - ai video
@@ -85,7 +85,7 @@ thumbnail: https://thmb.techidaily.com/fa134e33a19af2a6d89131747e3b5172ee7c32958
 
 #### 3\. Sony Alpha a99 II
 
-![sony-alpha-a99-ii ](https://images.wondershare.com/filmora/article-images/sony-alpha-a99-ii.jpg)
+![sony-alpha-a99-ii](https://images.wondershare.com/filmora/article-images/sony-alpha-a99-ii.jpg)
 
  Sensor: Full Frame CMOS:
 

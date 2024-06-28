@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] From Static to Dynamic  A Comprehensive Look at the New Polaroid XS 100I Action Camera\""
-date: 2024-06-12T00:55:36.936Z
-updated: 2024-06-13T00:55:36.936Z
+date: 2024-06-19T23:54:24.223Z
+updated: 2024-06-20T23:54:24.223Z
 tags: 
   - screen-recording
   - ai video
@@ -32,12 +32,11 @@ thumbnail: https://thmb.techidaily.com/bb00ebc3d89d1362ca9b186657d254b37c10a245e
 
 ## Complete Review for Polaroid XS 100i
 
-![Polaroid-XS-100-Extreme ](https://images.wondershare.com/filmora/article-images/polaroid-xs-100i-1.jpg)
+![Polaroid-XS-100-Extreme](https://images.wondershare.com/filmora/article-images/polaroid-xs-100i-1.jpg)
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f)
 
-[Check at Amazon](https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B00F46UQ4K/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00F46UQ4K&linkId=6d1cf73dd040f47f4ac8a8a14ac9643f)
 
 1. **Specs Table:**  
 | **Item name**            | **Polaroid XS 100i**                                         |                          |                                                                                                                                                                       |  

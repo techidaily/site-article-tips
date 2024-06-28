@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Overcoming GoPro Distorted Images  A Guide\""
-date: 2024-06-12T00:42:27.504Z
-updated: 2024-06-13T00:42:27.504Z
+date: 2024-06-19T23:54:24.105Z
+updated: 2024-06-20T23:54:24.105Z
 tags: 
   - screen-recording
   - ai video
@@ -89,7 +89,7 @@ The reason behind this recommendation is that:
 
 **Step 3:** Use import button to bring your photos on timeline or you can do this task with the help of simple drag and drop feature. Even the unwanted files can be easily removed by pressing Clear button on screen.
 
-![Import files]( https://images.wondershare.com/filmora/guide/3-action-cam-tool-import-file.jpg)
+![Import files](https://images.wondershare.com/filmora/guide/3-action-cam-tool-import-file.jpg)
 
 **Step 4:** Now enable Lens Correction option. The drop down list will help you to select your camera model as well as the video mode that was used for capturing videos. Once all selections are made then Filmora will immediately correct your distorted video. The correction level can be also adjusted manually as per need from the slide bar.
 

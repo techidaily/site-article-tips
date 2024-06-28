@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Under-$100 Budget-Friendly Action Cams – Top Choices Guide\""
-date: 2024-06-12T00:56:57.746Z
-updated: 2024-06-13T00:56:57.746Z
+date: 2024-06-19T23:54:24.173Z
+updated: 2024-06-20T23:54:24.173Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,9 @@ thumbnail: https://thmb.techidaily.com/47c87681ac372431d1a474c8317d79b86d7b096b7
 
 ## Top 6 Cheapest Action Cameras to Buy Under $100
 
-#### **1. [Polaroid Cube+](https://tools.techidaily.com/wondershare/filmora/download/) HD 1080p Lifestyle Action Camera- $99.99**
+#### **1. Polaroid Cube+
 
-[Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e
-)
+[Check at Amazon](https://www.amazon.com/gp/product/B011OUSSL2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B011OUSSL2&linkId=8468cb3fa9694ab9e09d99e5f9a7587e)
 
  This cute 35 mm (1.4 inches) cube shaped camera with 10m waterproof case is fit for all your adventure video shooting needs while finely WiFi sync via the Cube+ app and a range of powerful tools allows you to monitor and control the operations via iOS and Android screen devices. Great for taking time-lapse videos, the camera can take up to 100 shots at 10fps.
 

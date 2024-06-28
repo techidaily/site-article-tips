@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Index of Videography Gadgets by Type"
-date: 2024-06-12T00:40:12.475Z
-updated: 2024-06-13T00:40:12.475Z
+date: 2024-06-19T23:54:23.316Z
+updated: 2024-06-20T23:54:23.316Z
 tags: 
   - screen-recording
   - ai video
@@ -35,13 +35,13 @@ _[What Is Video Format](https://tools.techidaily.com/wondershare/filmora/downloa
 
 ## 1. Smartphone
 
-![ Smartphone video camera](https://images.wondershare.com/filmora/article-images/iphone-7-plus-dual-camera.jpg)
+![Smartphone video camera](https://images.wondershare.com/filmora/article-images/iphone-7-plus-dual-camera.jpg)
 
  Smartphone with inbuilt video cameras are at the very bottom of video camera food chain. Most of the high-end Smartphones such as some Android, iPhone, and Nokia models have satisfactory video cameras capable of shooting high definition videos. Even though the Smartphone video cameras may not suffice the needs of individuals who are serious about film making, they are adequate enough for the average users who need to take videos and photos during instances such as family or social gatherings. With a growing set of apps and tools however, these cameras can now be equipped and made to operate like full size cameras capable of taking professional videos.
 
 ## 2. Consumer Video Cameras
 
-![ Consumer video camera](https://images.wondershare.com/filmora/article-images/consumer-camera-image.jpg)
+![Consumer video camera](https://images.wondershare.com/filmora/article-images/consumer-camera-image.jpg)
 
  Consumer video cameras refer to simple cameras designed for personal non-professional use. In most cases, these cameras are less expensive and can be bought in the range of **$200** to **$1,500** and they usually come with smaller imaging chips. The images from consumer video cameras are not as great in terms of quality as the images from a professional camera.
 

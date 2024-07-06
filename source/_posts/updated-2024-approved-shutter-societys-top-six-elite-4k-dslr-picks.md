@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Shutter Society's Top Six  Elite 4K DSLR Picks\""
-date: 2024-06-12T00:48:11.057Z
-updated: 2024-06-13T00:48:11.057Z
+date: 2024-07-05T03:03:26.745Z
+updated: 2024-07-06T03:03:26.745Z
 tags: 
   - screen-recording
   - ai video
@@ -119,7 +119,7 @@ thumbnail: https://thmb.techidaily.com/e4a8d7447e854c2de99b048e14a9c3d2b9315b35b
 * Heavy weight and large size make it unsuitable for field applications.
 * Expensive choice.
 
-#### 5\. [Nikon D500:](https://tools.techidaily.com/wondershare/filmora/download/)
+#### 5\. Nikon D500:
 
 ![nikon-d500](https://images.wondershare.com/filmora/article-images/nikon-d500.jpg)
 

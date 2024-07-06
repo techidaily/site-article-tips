@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Nighttime Hiking Camera Battle  GoPro Vs SJ7 Star\""
-date: 2024-06-12T00:53:04.239Z
-updated: 2024-06-13T00:53:04.239Z
+date: 2024-07-05T03:03:27.591Z
+updated: 2024-07-06T03:03:27.591Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/f353031385ec13b27002aeb25b2433c7b7f2839e2
 
 | **Parameters**           | **GoPro Hero5 Black**                                                                                                                                                                               | **SJ7 Star**                                                                                                                                                                                        |
 | ------------------------ | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- | --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- |
-| **Price**                | [$399](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa) | [$199 ](https://www.amazon.com/gp/product/B06XVKLWDG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B06XVKLWDG&linkId=7ce5f13cc900719c8f4bc54994b794c2) |
+| **Price**                | [$399](https://www.amazon.com/gp/product/B01M14ATO0/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01M14ATO0&linkId=5ce54ea937ecffa6b1b8056b6922abaa) | [$199](https://www.amazon.com/gp/product/B06XVKLWDG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B06XVKLWDG&linkId=7ce5f13cc900719c8f4bc54994b794c2) |
 | **Field of View**        | SuperView; Wide; Medium; Linear; Narrow;                                                                                                                                                            | SuperView /Narrow/middle/wide                                                                                                                                                                       |
 | **Lens**                 | F2.8, 170° wide-angle                                                                                                                                                                               | F/2.0, 166° wide-angle                                                                                                                                                                              |
 | **Storage**              | Micro SD (up to 128G)                                                                                                                                                                               | Micro SD (up to 64G)                                                                                                                                                                                |

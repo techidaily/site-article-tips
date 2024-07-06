@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Detaching Pictures From Video Clip Using Photos on Windows 10"
-date: 2024-06-12T00:54:48.943Z
-updated: 2024-06-13T00:54:48.943Z
+date: 2024-07-05T03:03:27.527Z
+updated: 2024-07-06T03:03:27.527Z
 tags: 
   - screen-recording
   - ai video
@@ -45,7 +45,7 @@ Creating a living image:
 * Open the folder containing your video and search the particular video. Right-click video > ‘Open With’ > ‘Photos’ > allow the video to play.
 * Right-click within the player > Edit and create > Save photos.
 
-![ save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
+![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/save-photo-microsoft-photos.jpg)
 
 * Now, you can see the living picture by tapping ‘Play’ button.
 

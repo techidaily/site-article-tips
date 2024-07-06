@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Expanding Screen Coverage of YouTube Videos\""
-date: 2024-06-12T00:39:31.026Z
-updated: 2024-06-13T00:39:31.026Z
+date: 2024-07-05T03:03:27.755Z
+updated: 2024-07-06T03:03:27.755Z
 tags: 
   - screen-recording
   - ai video
@@ -52,7 +52,7 @@ Step1Download and install [Wondershare Filmora](https://tools.techidaily.com/won
 
 Step2Drag and drop the target YouTube video on Filmora into Project Media folder.
 
-![drag video into project media folder ](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
+![drag video into project media folder](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 Step3Thereafter, drag and drop the YouTube video file from Project Media folder into Timeline. Click on Crop icon located at the top of the timeline.
 
@@ -90,7 +90,7 @@ Step1Download and install [Wondershare Filmora](https://tools.techidaily.com/won
 
 Step2Drag and drop the target YouTube video on Filmora into Project Media folder.
 
-![drag video into project media folder ](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
+![drag video into project media folder](https://images.wondershare.com/filmora/guide/get-started-with-filmora-02.png)
 
 Step3Thereafter, drag and drop the YouTube video file from Project Media folder into Timeline. Click on Crop icon located at the top of the timeline.
 

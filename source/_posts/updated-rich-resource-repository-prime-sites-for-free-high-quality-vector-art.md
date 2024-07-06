@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Rich Resource Repository  Prime Sites for Free High-Quality Vector Art\""
-date: 2024-06-12T00:54:57.373Z
-updated: 2024-06-13T00:54:57.373Z
+date: 2024-07-05T03:03:26.855Z
+updated: 2024-07-06T03:03:26.855Z
 tags: 
   - screen-recording
   - ai video
@@ -149,12 +149,12 @@ You can download vector files in the following formats, AI, EPS, SVG, FH, CDR, P
 
 Raster files are bitmap images that you cannot alter according to size or scale. This is because they consist of pixels that are harder to edit than vector graphics. As such, you should always consider vector files if you require larger images without sacrificing the quality.
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 
-[Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <ins class="adsbygoogle"
      style="display:block"

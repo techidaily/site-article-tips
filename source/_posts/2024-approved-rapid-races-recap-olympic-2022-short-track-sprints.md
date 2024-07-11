@@ -123,22 +123,4 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://article-tips.techidaily.com/2024-approved-cutting-edge-techniques-for-exceptional-srt-files/"><u>2024 Approved  Cutting-Edge Techniques for Exceptional SRT Files</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-android-gamers-rejoice-heres-kinemaster-unleashed/"><u>2024 Approved  Android Gamers Rejoice! Here's KineMaster Unleashed</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-home-cinema-mastery-top-10-hd-players-list/"><u>2024 Approved  Home Cinema Mastery  Top 10 HD Players' List</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-a-treasure-trove-of-premium-rate-free-luts-revealed/"><u>[Updated] 2024 Approved  A Treasure Trove of Premium-Rate Free LUTs Revealed</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-iphones-made-simple-how-to-save-and-savor-animated-images/"><u>2024 Approved  IPhones Made Simple  How to Save and Savor Animated Images</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-instant-clearing-the-best-ios-apps-for-precise-image-editing/"><u>[Updated] In 2024, Instant Clearing  The Best iOS Apps for Precise Image Editing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-building-a-solid-foundation-windows-10s-video-creation-basics/"><u>2024 Approved  Building a Solid Foundation  Windows 10'S Video Creation Basics</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/new-10-epic-photo-collage-ideas-and-steps/"><u>[New] 10 Epic Photo Collage Ideas & Steps</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-dissective-review-of-sharex-criticism-and-substitutes-for-2024/"><u>[Updated] Dissective Review of ShareX  Criticism & Substitutes for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-infinix-note-30i-drfone-by-drfone-virtual-android/"><u>4 solution to get rid of pokemon fail to detect location On Infinix Note 30i | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-list-empowering-cinematic-experiences/"><u>In 2024, The Ultimate List  Empowering Cinematic Experiences</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/get-crystal-clear-iphone-photos-with-our-free-red-eye-toolkit/"><u>Get Crystal Clear iPhone Photos with Our Free Red-Eye Toolkit</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-the-new-short-form-fb-story/"><u>[New] 2024 Approved  The New Short-Form FB Story</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-c51-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Realme C51 Phone with Broken Screen</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/complete-guide-on-unlocking-iphone-14-plus-with-a-broken-screen-by-drfone-ios/"><u>Complete Guide on Unlocking iPhone 14 Plus with a Broken Screen?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-step-by-step-to-easy-nft-crafting/"><u>In 2024, Step-by-Step to Easy NFT Crafting</u></a></li>
-</ul></div>
+

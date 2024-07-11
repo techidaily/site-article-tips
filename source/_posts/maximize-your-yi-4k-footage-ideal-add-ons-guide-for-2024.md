@@ -1,7 +1,7 @@
 ---
 title: "\"Maximize Your YI 4K Footage  Ideal Add-Ons Guide for 2024\""
-date: 2024-06-12T00:44:46.111Z
-updated: 2024-06-13T00:44:46.111Z
+date: 2024-07-10T21:37:20.060Z
+updated: 2024-07-11T21:37:20.060Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/8154242c4b48a5a3e2c375932f0ce95d88da4301b
 
 ### Section 1: Protective Case
 
-#### 1.[ Waterproof Case:](<https://www.amazon.com/gp/product/B016I5VQJE/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B016I5VQJE&linkId=1fe5d9a62a2d51f7afceab6b6ca27770>
+#### 1.[Waterproof Case:](<https://www.amazon.com/gp/product/B016I5VQJE/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B016I5VQJE&linkId=1fe5d9a62a2d51f7afceab6b6ca27770>
 
 )
 
@@ -48,7 +48,7 @@ The underwater case of Yi action cam can serve users up to 40 meter and you will
 
  **Waterproof case from third party:**
 
-* [ **Deyard ($14.99):** ](https://www.amazon.com/gp/product/B01IP01ECE/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01IP01ECE&linkId=93c83aa177a660db11b6ba5e9f8722f5  
+* [**Deyard ($14.99):**](https://www.amazon.com/gp/product/B01IP01ECE/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01IP01ECE&linkId=93c83aa177a660db11b6ba5e9f8722f5  
 )
 
 [Deyard Y-02 Waterproof Protective Case for Yi 4K](https://images.wondershare.com/filmora/article-images/deyard-waterproof-case.jpg) ](https://www.amazon.com/gp/product/B01IP01ECE/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01IP01ECE&linkId=93c83aa177a660db11b6ba5e9f8722f5
@@ -59,10 +59,10 @@ The underwater case of Yi action cam can serve users up to 40 meter and you will
 
  It is designed with A-Grade type high transmittance Acrylic glass substance and is suitable for Yi 4k action cam. This product is considered ideal for underwater activities like snorkelling and diving etc. Deyard case is waterproof up to 45 meters and it’s specially designed flat glass lens ensures clear videos and photos under water.
 
-* [ **Kupton ($13.99):** ](https://www.amazon.com/gp/product/B01HRJVZN2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HRJVZN2&linkId=8b0f807987301ad62785a97ef3d3b4f9  
+* [**Kupton ($13.99):**](https://www.amazon.com/gp/product/B01HRJVZN2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HRJVZN2&linkId=8b0f807987301ad62785a97ef3d3b4f9  
 )
 
-[Kupton waterproof Case for YI 4K]( https://images.wondershare.com/filmora/article-images/kupton-waterproof-case-for-yi-4K.jpg) ](https://www.amazon.com/gp/product/B01HRJVZN2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HRJVZN2&linkId=8b0f807987301ad62785a97ef3d3b4f9
+[Kupton waterproof Case for YI 4K](https://images.wondershare.com/filmora/article-images/kupton-waterproof-case-for-yi-4K.jpg) ](https://www.amazon.com/gp/product/B01HRJVZN2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HRJVZN2&linkId=8b0f807987301ad62785a97ef3d3b4f9
 )
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01HRJVZN2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01HRJVZN2&linkId=8b0f807987301ad62785a97ef3d3b4f9
@@ -70,7 +70,7 @@ The underwater case of Yi action cam can serve users up to 40 meter and you will
 
  It can be easily used underwater up to 40 meter with Yi 2 and is considered as best choice for surfing, snorkelling and diving needs. Shooting stays perfect with its high light transmission PMMA type material. Its anti surf pressure type design assists in better stills even during movements.
 
-* [ **ADIKA ($11.99):** ](https://www.amazon.com/gp/product/B01JRTDKRO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01JRTDKRO&linkId=f582c15118c5bf8078a1f40ab64d5627  
+* [**ADIKA ($11.99):**](https://www.amazon.com/gp/product/B01JRTDKRO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01JRTDKRO&linkId=f582c15118c5bf8078a1f40ab64d5627  
 )
 
 [ADIKA Waterproof Case for Yi 4K](https://images.wondershare.com/filmora/article-images/adika-waterproof-case-for-yi-4k.jpg)](https://www.amazon.com/gp/product/B01JRTDKRO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01JRTDKRO&linkId=f582c15118c5bf8078a1f40ab64d5627
@@ -85,7 +85,7 @@ The underwater case of Yi action cam can serve users up to 40 meter and you will
 
  As users need to buy additional protective housing for keeping their Yi camera safe under water but most of the cases never allow access to touch screen. Here we have picked two products that are best choice if you need control to your touch screen under water without damaging your camera.
 
-* [ **ADIKA Waterproof Housing with Touch Screen ($15.99):** ](https://www.amazon.com/gp/product/B01KLZD42E/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01KLZD42E&linkId=1c88aa409261c7eea4906ea898ee3325  
+* [**ADIKA Waterproof Housing with Touch Screen ($15.99):**](https://www.amazon.com/gp/product/B01KLZD42E/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01KLZD42E&linkId=1c88aa409261c7eea4906ea898ee3325  
 )
 
 [ADIKA Waterproof Housing with Touch Screen for Yi 4K](https://images.wondershare.com/filmora/article-images/adika-waterproof-housing-with-touch-screen-for-yi-4k-action-camera.jpg) ](https://www.amazon.com/gp/product/B01KLZD42E/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01KLZD42E&linkId=1c88aa409261c7eea4906ea898ee3325
@@ -96,7 +96,7 @@ The underwater case of Yi action cam can serve users up to 40 meter and you will
 
  This waterproof cover can protect Yi camera from scratch and dust. Touch screen can be handled easily and maximum safe diving depth is about 30 meters. It is suitable for under water sports activities like diving, surfing etc and for rafting and paragliding.
 
-* [ **Corprit Underwater Protective ($18.72):** ](https://www.amazon.com/gp/product/B01N8OWASR/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01N8OWASR&linkId=00060fbbbb73ca8f0d8f15b250e1f8b5  
+* [**Corprit Underwater Protective ($18.72):**](https://www.amazon.com/gp/product/B01N8OWASR/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01N8OWASR&linkId=00060fbbbb73ca8f0d8f15b250e1f8b5  
 )
 
 [Corprit Underwater Protective Case for YI 4K](https://images.wondershare.com/filmora/article-images/corprit-waterproof-case-with-touchscreen-for-yi-4k-action-camera.jpg) ](https://www.amazon.com/gp/product/B01N8OWASR/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01N8OWASR&linkId=00060fbbbb73ca8f0d8f15b250e1f8b5
@@ -111,7 +111,7 @@ The underwater case of Yi action cam can serve users up to 40 meter and you will
 
  Even during above water usage, your camera will need protective shield for its lens and body. Below are few highly recommended non waterproof cases for Yi cameras:
 
-* [ **Leather Case and UV Filter ($19.99):** ](https://www.amazon.com/gp/product/B01D8KXG0E/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01D8KXG0E&linkId=3a6c2a36d0a4292d49c96ad2283f9dff  
+* [**Leather Case and UV Filter ($19.99):**](https://www.amazon.com/gp/product/B01D8KXG0E/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01D8KXG0E&linkId=3a6c2a36d0a4292d49c96ad2283f9dff  
 )
 
 [Yi 4K Leather cover and UV Filter](https://images.wondershare.com/filmora/article-images/yi-4k-action-camera-2-leather-cover.jpg) ](https://www.amazon.com/gp/product/B01D8KXG0E/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01D8KXG0E&linkId=3a6c2a36d0a4292d49c96ad2283f9dff
@@ -122,7 +122,7 @@ The underwater case of Yi action cam can serve users up to 40 meter and you will
 
  It is available in white and black colour and is made up of European PU leather that provides additional protection to Yi camera. Its special feature is UV filter that can protect lens frame and adjusts performance for optimal view.
 
-* [ **LCrystal Frame Mount Housing ($10.99):** ](https://www.amazon.com/gp/product/B01F8A23H4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01F8A23H4&linkId=0a8eb75e7bd48ec141bd05dae3956a72  
+* [**LCrystal Frame Mount Housing ($10.99):**](https://www.amazon.com/gp/product/B01F8A23H4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01F8A23H4&linkId=0a8eb75e7bd48ec141bd05dae3956a72  
 )
 
 [LCrystal Frame Mount Housing  for YI 4K](https://images.wondershare.com/filmora/article-images/lcrystal-frame-mount-housing-for-yi-4k.jpg) ](https://www.amazon.com/gp/product/B01F8A23H4/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01F8A23H4&linkId=0a8eb75e7bd48ec141bd05dae3956a72
@@ -133,7 +133,7 @@ The underwater case of Yi action cam can serve users up to 40 meter and you will
 
  This third party protective frame can keep your camera safe as it is made up of rich quality PC and is highly durable. It is not recommended to use in adverse weather conditions.
 
-* [ **First2savvv XM2-TL-01 Black Aluminium Alloy Protective Housing ($13.49):** ](https://www.amazon.com/gp/product/B01JLLLMD2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01JLLLMD2&linkId=7b8078aaacb035ae1d86e584721adf12  
+* [**First2savvv XM2-TL-01 Black Aluminium Alloy Protective Housing ($13.49):**](https://www.amazon.com/gp/product/B01JLLLMD2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01JLLLMD2&linkId=7b8078aaacb035ae1d86e584721adf12  
 )
 
 [First2savvv XM2-TL-01 black Aluminium Alloy Frame for Yi 4K](https://images.wondershare.com/filmora/article-images/first2savvv-black-aluminium-alloy-frame-for-yi-4k.jpg) ](https://www.amazon.com/gp/product/B01JLLLMD2/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01JLLLMD2&linkId=7b8078aaacb035ae1d86e584721adf12
@@ -144,10 +144,10 @@ The underwater case of Yi action cam can serve users up to 40 meter and you will
 
  It is good to buy a aluminium case instead of plastic frame because it offers strong protection and is much durable. This accessory is compatible only with Yi 4k action cam but it is not waterproof so should not be used in extreme conditions.
 
-* [ **Deyard Y-04 Yi 4K Silicone Rubber Protective Housing ($6.99):** ](https://www.amazon.com/gp/product/B01ID0VV0G/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01ID0VV0G&linkId=af0a548ce00189874a509b07a4ee131c  
+* [**Deyard Y-04 Yi 4K Silicone Rubber Protective Housing ($6.99):**](https://www.amazon.com/gp/product/B01ID0VV0G/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01ID0VV0G&linkId=af0a548ce00189874a509b07a4ee131c  
 )
 
-[Deyard Y-04 Yi 4K Silicone Rubber Protective Housing](https://images.wondershare.com/filmora/article-images/deyard-yi-4k-silicone-rubber-protective-case.jpg )](https://www.amazon.com/gp/product/B01ID0VV0G/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01ID0VV0G&linkId=af0a548ce00189874a509b07a4ee131c
+[Deyard Y-04 Yi 4K Silicone Rubber Protective Housing](https://images.wondershare.com/filmora/article-images/deyard-yi-4k-silicone-rubber-protective-case.jpg)](https://www.amazon.com/gp/product/B01ID0VV0G/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01ID0VV0G&linkId=af0a548ce00189874a509b07a4ee131c
 )
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01ID0VV0G/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01ID0VV0G&linkId=af0a548ce00189874a509b07a4ee131c
@@ -249,3 +249,36 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-audacitys-blueprint-for-high-fidelity-sound-recording/"><u>[New] 2024 Approved  Audacity's Blueprint for High-Fidelity Sound Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-soar-with-the-pros-top-9-drone-editors-at-every-experience-level/"><u>2024 Approved  Soar with the Pros  Top 9 Drone Editors at Every Experience Level</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-comprehensive-step-by-step-srt-mp4-enhancement/"><u>2024 Approved  Comprehensive Step-by-Step SRT MP4 Enhancement</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-discover-15-stellar-action-cams-replacing-gopro/"><u>[Updated] In 2024, Discover 15 Stellar Action Cams Replacing GoPro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-rapid-releases-review-best-quick-gaming-selections/"><u>[New] Rapid Releases Review  Best Quick Gaming Selections</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-laptop-editing-avoiding-inshot-dependence/"><u>[Updated] Laptop Editing  Avoiding Inshot Dependence</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-photo-perfection-best-practices-for-integrating-frames-online/"><u>2024 Approved  Photo Perfection  Best Practices for Integrating Frames Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-iphone-filmmaking-essentials-creating-and-changing-video-speed-dynamics/"><u>2024 Approved  IPhone Filmmaking Essentials  Creating and Changing Video Speed Dynamics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-evolution-of-color-formats-from-rgb-to-srgb/"><u>2024 Approved  The Evolution of Color Formats  From Rgb to Srgb</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-quietude-on-the-silver-screen-a-study/"><u>[Updated] Quietude on the Silver Screen  A Study</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-the-speed-control-interface-on-snapchat/"><u>2024 Approved  Navigating The Speed Control Interface on Snapchat</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-elevating-your-tiktok-unboxing-video-popularity-a-guide/"><u>2024 Approved  Elevating Your TikTok Unboxing Video Popularity  A Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-elevate-your-iphone-shots-10-best-camera-apps-x-7/"><u>[Updated] 2024 Approved  Elevate Your iPhone Shots  10 Best Camera Apps (X, 7)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-premium-after-effects-essentials-compact-no-cost-bundle/"><u>2024 Approved  Premium After Effects Essentials  Compact, No-Cost Bundle</u></a></li>
+<li><a href="https://article-tips.techidaily.com/analyzing-aurora-hdr-quality-for-2024/"><u>Analyzing Aurora HDR Quality for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-screen-genius-ideal-4k-displays-for-editorial-work/"><u>2024 Approved  Screen Genius  Ideal 4K Displays for Editorial Work</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-current-vr-devices-explored/"><u>2024 Approved  Current VR Devices Explored</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-constructing-an-intriguing-trailer-blueprint/"><u>2024 Approved  Constructing an Intriguing Trailer Blueprint</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-peak-performance-fps-in-deliberate-movements/"><u>2024 Approved  Peak Performance FPS in Deliberate Movements</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/proven-strategies-for-successful-youtube-shorts/"><u>Proven Strategies for Successful YouTube Shorts</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-masters-choice-win11s-best-screen-capturing-tech-top-15/"><u>[New] In 2024, Master's Choice  Win11's Best Screen-Capturing Tech (Top 15)</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-freedom-from-filmage-tiktok-videos-without-stickers/"><u>In 2024, Freedom From Filmage  TikTok Videos Without Stickers</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/in-2024-echoes-of-the-earth-unveiling-the-10-best-ios-and-android-auditory-journeys-in-nature/"><u>In 2024, Echoes of the Earth Unveiling the 10 Best iOS & Android Auditory Journeys in Nature</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-blueprint-for-capturing-compelling-powerpoint-presentations-for-2024/"><u>[Updated] The Blueprint for Capturing Compelling PowerPoint Presentations for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/stepping-up-your-game-on-instagram-for-2024/"><u>Stepping Up Your Game on Instagram for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expert-choice-top-10-video-subtitles-editors-online/"><u>[New] Expert Choice  Top 10 Video Subtitles Editors Online</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-optimizing-zoom-videos-essential-3-part-methodology/"><u>[Updated] Optimizing Zoom Videos  Essential 3-Part Methodology</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-screenplay-savvy-filmoras-faqs/"><u>2024 Approved  Screenplay Savvy  Filmora's FAQs</u></a></li>
+<li><a href="https://techidaily.com/is-your-honor-magic5-ultimate-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Honor Magic5 Ultimate working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+</ul></div>

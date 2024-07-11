@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Vintage Visionaries  Digitize Your Photos Into Videos\""
-date: 2024-06-12T00:56:29.860Z
-updated: 2024-06-13T00:56:29.860Z
+date: 2024-07-10T22:13:16.627Z
+updated: 2024-07-11T22:13:16.627Z
 tags: 
   - screen-recording
   - ai video
@@ -90,13 +90,13 @@ To start with, you can just launch Filmora on your system and import your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
-![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
+![create timeline for photos](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
-![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+![Edit Digitized Photos](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -104,15 +104,15 @@ The edit option will present tons of additional features that you can implement 
 
 As stated above, you can find a wide range of video editing options to explore in Fimora. On top of the interface, you can switch between audio, transition, effects, titles, and other options. You can just go to any feature here (like effects) to apply it to the video.
 
-![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
+![Add Effects to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
-![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
+![Add Title to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
-![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
+![Add Audio to Digitized Photos](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
 #### 5\. Export your video
 
@@ -178,3 +178,49 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/all-round-kinetics-examination-2023/"><u>All-Round Kinetics Examination 2023</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-make-waves-with-a-new-look-customize-pre-designed-brand-symbols/"><u>[Updated] In 2024, Make Waves with a New Look  Customize Pre-Designed Brand Symbols</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-activate-funimate-pro-with-a-simple-apk-click/"><u>2024 Approved  Activate Funimate Pro with a Simple APK Click</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-stay-ahead-of-the-curve-engaging-activities-while-listening-to-talk-shows/"><u>2024 Approved  Stay Ahead of The Curve  Engaging Activities While Listening to Talk Shows</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-creative-endeavors-while-immersed-in-audio-stories/"><u>2024 Approved  Creative Endeavors While Immersed in Audio Stories</u></a></li>
+<li><a href="https://article-tips.techidaily.com/revamping-your-windows-11-photo-viewer-add-filters-and-background-music-for-2024/"><u>Revamping Your Windows 11 Photo Viewer  Add Filters and Background Music for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-day-after-analysis-non-traditional-ideas/"><u>[New] Day After Analysis  Non-Traditional Ideas</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-proven-techniques-to-acquire-superior-hdr-cameras/"><u>2024 Approved  Proven Techniques to Acquire Superior HDR Cameras</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-efficiently-establish-your-zoom-space/"><u>[New] Efficiently Establish Your Zoom Space</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-echoes-of-entertainment-vr-cinematic-worlds/"><u>2024 Approved  Echoes of Entertainment  VR Cinematic Worlds</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-excellent-devices-for-frame-by-frame-filmmaking/"><u>[Updated] 2024 Approved  Excellent Devices for Frame-by-Frame Filmmaking</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-navigating-audacity-for-top-notch-audio-recording/"><u>In 2024, Navigating Audacity for Top-Notch Audio Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-step-by-step-approach-to-podcast-naming-and-50plus-dynamic-name-options/"><u>2024 Approved  Step-by-Step Approach to Podcast Naming & 50+ Dynamic Name Options</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-mastering-picture-in-picture-feature-in-chrome-anywhere/"><u>2024 Approved  Mastering Picture In Picture Feature in Chrome, Anywhere</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-love-in-song-ultimate-listening-guide-to-proposals/"><u>2024 Approved  Love in Song  Ultimate Listening Guide to Proposals</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-premium-web-resources-curated-alarm-tones/"><u>2024 Approved  Premium Web Resources  Curated Alarm Tones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-spectrums-impact-applying-color-dynamics-for-2024/"><u>[Updated] The Spectrum's Impact  Applying Color Dynamics for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-elite-psd-text-flourishes-for-2024/"><u>[New] Elite PSD Text Flourishes for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-complete-analysis-breaking-down-the-google-podcast-app/"><u>2024 Approved  Complete Analysis  Breaking Down the Google Podcast App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-the-best-10-vector-stock-pools/"><u>2024 Approved  Navigating the Best 10 Vector Stock Pools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-ultimate-list-selecting-excellent-webcams-for-podcasts/"><u>In 2024, Ultimate List  Selecting Excellent Webcams for Podcasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-seamless-image-superimposition-for-desktop/"><u>[New] 2024 Approved  Seamless Image Superimposition for Desktop</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-fast-lane-olympic-highlights-in-short-track-speed-skating-for-2024/"><u>[New] The Fast Lane  Olympic Highlights in Short-Track Speed Skating for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-masterclass-5-in-best-mac-videography-software/"><u>[New] In 2024, Masterclass 5 in Best Mac Videography Software</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/2024-approved-what-to-look-for-in-audio-editor-software-for-mac-os-x/"><u>2024 Approved What to Look for in Audio Editor Software for Mac OS X</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/in-2024-recording-titans-collide/"><u>In 2024, Recording Titans Collide</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-can-i-use-a-fake-gps-without-mock-location-on-xiaomi-redmi-12-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How Can I Use a Fake GPS Without Mock Location On Xiaomi Redmi 12 5G? | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-the-pinnacle-of-live-tweeting-on-social-media/"><u>2024 Approved  The Pinnacle of Live Tweeting on Social Media</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/2024-approved-what-apps-can-you-use-to-blur-the-face-or-the-background-on-the-video-in-this-article-i-will-share-some-of-the-best-video-blur-apps-that-you-c/"><u>2024 Approved What Apps Can You Use to Blur the Face or the Background on the Video? In This Article, I Will Share some of the Best Video Blur Apps that You Can Use to Blur Any Part of the Video on iPhone or Android Phones</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-cutting-edge-tools-for-instagrams-most-trendy-reels/"><u>[New] Cutting-Edge Tools for Instagram's Most Trendy Reels</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-boosting-your-channels-viewer-count-12-must-try-approaches/"><u>[New] In 2024, Boosting Your Channel's Viewer Count - 12 Must-Try Approaches</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-face-flaunting-visual-guidebook/"><u>[New] Face Flaunting Visual Guidebook</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-disabling-iphone-8-plus-parental-restrictions-withwithout-password-by-drfone-ios/"><u>In 2024, Disabling iPhone 8 Plus Parental Restrictions With/Without Password</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/windows-files-save-path-problem-easy-fix-guide/"><u>Windows Files' Save Path Problem: Easy Fix Guide</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/in-2024-top-10-free-tiktok-video-editors-compatible-with-macos/"><u>In 2024, Top 10 FREE TikTok Video Editors Compatible with MacOS</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-essential-techniques-for-logitech-webcam-videos-for-2024/"><u>[Updated] Essential Techniques for Logitech Webcam Videos for 2024</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-learn-how-to-create-a-unique-repeated-text-animation-in-the-filmora-video-editor-follow-the-simple-step-by-step-instructions-for-2024/"><u>Updated Learn How to Create a Unique Repeated Text Animation in the Filmora Video Editor. Follow the Simple Step-by-Step Instructions for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-honor-magic-v2-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Honor Magic V2 | Dr.fone</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-conquer-youtube-vimeo-editing-5-advanced-trimming-strategies/"><u>[New] 2024 Approved  Conquer YouTube-Vimeo Editing  5 Advanced Trimming Strategies</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/new-engaging-audiences-with-jujutsu-kaisen-tiktok-content/"><u>[New] Engaging Audiences with Jujutsu Kaisen TikTok Content</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/reimagine-your-youtube-approach-with-tubebuddy/"><u>Reimagine Your YouTube Approach with TubeBuddy</u></a></li>
+<li><a href="https://extra-information.techidaily.com/the-zen-masters-guide-to-zooming-your-youtube-livestreams/"><u>The Zen Master’s Guide to Zooming Your YouTube Livestreams</u></a></li>
+</ul></div>

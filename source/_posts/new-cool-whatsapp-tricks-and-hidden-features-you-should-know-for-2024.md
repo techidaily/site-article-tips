@@ -1,7 +1,7 @@
 ---
 title: "[New] Cool Whatsapp Tricks and Hidden Features You Should Know for 2024"
-date: 2024-06-12T00:52:15.017Z
-updated: 2024-06-13T00:52:15.017Z
+date: 2024-07-10T22:00:16.868Z
+updated: 2024-07-11T22:00:16.868Z
 tags: 
   - screen-recording
   - ai video
@@ -44,7 +44,7 @@ Yes, you can bold your text. Just add a star (\*) symbol before and after your t
 
 #### 2.Italic
 
-Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol ( \_text\_ ) at the starting and end of your sentence.
+Just like the bold, you can also italicize your fonts by simply inserting Underscore Symbol (\_text\_) at the starting and end of your sentence.
 
 ![Whatsapp Text Tricks Italic](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-italic.jpg)
 
@@ -208,3 +208,38 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/2024-approved-best-beginner-drones-kids-edition-top-10-list/"><u>2024 Approved  Best Beginner Drones - Kids' Edition Top 10 List</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-core-elements-in-virtual-narrative-design/"><u>2024 Approved  Core Elements in Virtual Narrative Design</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-peak-performance-fps-in-deliberate-movements/"><u>2024 Approved  Peak Performance FPS in Deliberate Movements</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-frontier-of-gesture-based-technology-advancements/"><u>2024 Approved  The Frontier of Gesture-Based Technology Advancements</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlocking-the-potential-of-multi-stream-video-on-microsoft-edge/"><u>[New] 2024 Approved  Unlocking the Potential of Multi-Stream Video on Microsoft Edge</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-tech-trial-vlle-outlook-on-apps/"><u>2024 Approved  Tech Trial  VLLE Outlook on Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-phantom-3-encounter-veil-4s-entry/"><u>2024 Approved  Phantom 3 Encounter  Veil 4'S Entry</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-pros-and-cons-gopro-hero-4-vs-drift-ghost-s-racing-edition/"><u>[Updated] Pros & Cons  GoPro Hero 4 Vs. Drift Ghost-S Racing Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-audible-anomaly-the-truth-behind-the-vocal-change-application-check-out-alternatives/"><u>[Updated] Audible Anomaly  The Truth Behind the Vocal Change Application - Check Out Alternatives</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-exploring-dynamic-photographic-mosaics-mastery/"><u>2024 Approved  Exploring Dynamic Photographic Mosaics Mastery</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-droning-success-key-elements-in-selecting-ideal-fpv-propellers/"><u>[New] 2024 Approved  Droning Success  Key Elements in Selecting Ideal FPV Propellers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-economic-options-in-panoramic-recording-equipment/"><u>2024 Approved  Economic Options in Panoramic Recording Equipment</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-revolutionizing-video-speed-in-social-networks/"><u>2024 Approved  Revolutionizing Video Speed in Social Networks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/magnifying-quality-with-magix-photo-tools/"><u>Magnifying Quality with MAGIX Photo Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-masterful-mix-sweeping-sound-sections/"><u>In 2024, Masterful Mix  Sweeping Sound Sections</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-analyzing-brightness-boost-in-hd-and-its-hdr-impact/"><u>2024 Approved  Analyzing Brightness Boost in HD and Its HDR Impact</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-photo-hdr-excellence-tips-from-the-pros/"><u>2024 Approved  Photo-HDR Excellence  Tips From the Pros</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-from-conventional-to-cutting-edge-the-shift-from-rgb-to-srgb/"><u>2024 Approved  From Conventional to Cutting-Edge  The Shift From Rgb to Srgb</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-free-photo-editor-showdown-15-best-in-class/"><u>2024 Approved  The Free Photo Editor Showdown  #15 Best in Class</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/updated-an-ultimate-guide-of-best-narrator-voice-generators/"><u>Updated An Ultimate Guide of Best Narrator Voice Generators</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-windows-11-mov-to-avi-conversion-tutorial/"><u>2024 Approved  Windows 11 MOV to AVI Conversion Tutorial</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/how-to-watch-facebook-live/"><u>How to Watch Facebook Live?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-mastering-game-capture-windows-11-edition-for-2024/"><u>[Updated] Mastering Game Capture  Windows 11 Edition for 2024</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/comprehensive-overview-of-cost-free-livestream-apps-and-solutions-for-everyone-for-2024/"><u>Comprehensive Overview of Cost-Free Livestream Apps & Solutions for Everyone for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-easycapture-prox-diagnosis/"><u>In 2024, EasyCapture ProX Diagnosis</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-honor-magic-6-lite-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Honor Magic 6 Lite Phone</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-make-profitable-youtube-ads-for-free/"><u>[Updated] In 2024, How To Make Profitable YouTube Ads for Free?</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-ultimate-list-of-15-audio-enhancing-tools-and-websites-to-amplify-your-videos-music-score-featuring-advantages-and-disadvantages/"><u>Updated In 2024, Ultimate List of 15 Audio-Enhancing Tools and Websites to Amplify Your Videos Music Score, Featuring Advantages & Disadvantages</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snap-it-up-15-powerful-posting-techniques-revealed/"><u>[New] Snap It Up! 15 Powerful Posting Techniques Revealed</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-picture-perfect-instagram-carousel/"><u>[Updated] 2024 Approved  Picture-Perfect Instagram Carousel</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-free-vs-paid-the-best-android-video-editors-for-every-budget/"><u>In 2024, Free vs Paid The Best Android Video Editors for Every Budget</u></a></li>
+</ul></div>

@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unveiling the Artist Within  Using Audition's Gradual Volume Increase\""
-date: 2024-07-10T23:44:52.289Z
-updated: 2024-07-11T23:44:52.289Z
+date: 2024-08-08T03:14:55.315Z
+updated: 2024-08-09T03:14:55.315Z
 tags: 
   - screen-recording
   - ai video
@@ -22,12 +22,20 @@ Adobe Audition, developed by Adobe Inc is a digital audio workstation. This is a
 
 Effects can be implemented at the same time by choosing them from the Effects menu or as a list in the Effects bar, enabling you to test with effect combinations before implementing them. Presets help you get started, and detailed controls allow you to fine-tune your adjustments. You can also batch-process audio files to remove 60 Hz hum or fit the amplitude of clips. It can be done using a variety of measures, including industry standard Broadcast Loudness options.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698824&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3pro-screenshot-homepage.png" border="0">PCDJ DEX 3 for Windows & MAC is the total entertainment DJ software solution, offering audio, video, and karaoke mixing ability. Automatic beat-sync, smart looping, 4 decks, DJ MIDI controller support, Karaoke Streaming and much more. 
+DEX 3 meets the demands of today’s versatile DJ, without compromise! 
+DEX 3 (Audio, Video and Karaoke Mixing Software for Windows/MAC | 3 Activations and Free Updates)</a>
+<!-- affiliate ads end -->
 ## Part 1\. Steps to Adobe Audition Fade In
 
 The multitrack view includes a comprehensive set of non-destructive editing tools and audio mixing. The changes you make in this mode have no effect on your original audio files. You can make multiple modifications to multitrack clips immediately, making it simple to quickly adjust a mix.
 
 Consider adjusting the level of a clip to create it more audible. In audio transitions, fading is widely used. With Fade it, the sound begins silently and slowly increases to full volume. With Adobe audition fade out, the audio begins at full volume and slightly declines to silence.
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![start adobe audition audio edit](https://images.wondershare.com/filmora/article-images/2022/08/start-adobe-audition-audio-edit_.jpg)
 
 If you have audio that starts quite abruptly and you'd like to add a fade, Audition makes this very easy. Here are some steps to follow:
@@ -41,6 +49,9 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 * Now, if you pull the Heads-Up Display out of the way and click and then drag right on the icon, you will see a fade in there which is a little bit longer than you need.
 * If you go up to your Effects menu and go to your Amplitude and Compression section, you have got a Fade Envelope and a Gain Envelope.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
 ![amplitude and compression adobe audition](https://images.wondershare.com/filmora/article-images/2022/08/amplitude-and-compression-adobe-audition.jpg)
 
 * Now, if you choose Fade Envelope and of course, it is giving you the fade right the way through the audio. It will adjust for you and this is based on a Smooth Fade In.
@@ -55,6 +66,9 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 
 * Now exactly, in the same way, you can go in and begin to make adjustments. Now, when you make a selection here, Audition compresses your adjustments into that selected region. You will need to be a little careful about that when working with these effects. So, you can add fades very easily at any time by clicking on the handles at the top right and left of Waveform Display, or you can use dedicated effects for the purpose.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=39655089&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/wa/01_WA_728x90.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 2\. Audition Alternative to Fade Audio
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is another best audio editing tool that is a great alternative to Adobe Audition software. Wondershare Filmora, which is the latest version of Filmora, has the visual audio editing potential to guide you in editing audio files. There are many features available in this like you can add background music, detect music beats, etc.
@@ -70,6 +84,9 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
 * Drag the sliders and set fade-in along with fade-out effects.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
+<!-- affiliate ads end -->
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
@@ -78,6 +95,9 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
@@ -86,6 +106,9 @@ If you want to fade in and fade out two clips at the same time, then controlling
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+
+<!-- affiliate ads end -->
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
@@ -113,14 +136,24 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 ## Part 3\. Related FAQs
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
+<!-- affiliate ads begin -->
+<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=28010250&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/336__280a.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=36506229&QTY=1&AFFILIATE=108875&CART=1"><video width="100%" height="" class="rounded-t-md shadow-lg relative z-20" controls="" autoplay="" loop="" muted="" playsinline="" webkit-playinginline="">
+<source type="video/mp4" src="https://aidaform.com/images/videos/aidaform-welcome-site.mp4"><source type="video/webm" src="https://aidaform.com/images/videos/aidaform-welcome-site.webm"></video></a>
+<!-- affiliate ads end -->
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
@@ -156,3 +189,40 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-blue.techidaily.com/new-leading-360-action-footage-options/"><u>[New] Leading 360° Action Footage Options</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-underwater-cinematography-avoiding-blur-and-grain-with-a-gopro/"><u>[New] Underwater Cinematography  Avoiding Blur and Grain with a GoPro</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-virtual-play-spaces-you-cant-miss/"><u>[New] Virtual Play Spaces You Can't Miss</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-efficient-routines-for-video-game-screening/"><u>[Updated] In 2024, Efficient Routines for Video Game Screening</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-the-fundamentals-of-starting-an-instantaneous-broadcast/"><u>[Updated] The Fundamentals of Starting an Instantaneous Broadcast</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-honor-magic-6-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Honor Magic 6 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/broadcast-battles-tech-titans-tussle-for-top-spot-for-2024/"><u>Broadcast Battles  Tech Titans Tussle for Top Spot for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/budget-analysis-for-youtube-promotion-for-2024/"><u>Budget Analysis for YouTube Promotion for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/capturing-movement-with-clarity-implementing-motion-blur-on-peoples-photos-with-picsart/"><u>Capturing Movement with Clarity  Implementing Motion Blur on People's Photos with Picsart</u></a></li>
+<li><a href="https://article-tips.techidaily.com/childs-delight-greatest-drone-selections/"><u>Child's Delight  Greatest Drone Selections</u></a></li>
+<li><a href="https://article-tips.techidaily.com/clear-cut-strategies-for-watermark-free-photography-for-2024/"><u>Clear-Cut Strategies for Watermark-Free Photography for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/comprehensible-guide-for-novices-crafting-professional-tiktok-edits/"><u>Comprehensible Guide for Novices  Crafting Professional TikTok Edits</u></a></li>
+<li><a href="https://article-tips.techidaily.com/content-choice-conundrum-is-podcasting-right-or-should-you-go-for-youtube-for-2024/"><u>Content Choice Conundrum  Is Podcasting Right, Or Should You Go for YouTube for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/converting-srt-into-sub-quick-effective-ways-for-2024/"><u>Converting SRT Into SUB  Quick, Effective Ways for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crafting-the-perfect-tone-accessible-software-for-effortless-vocal-transformation-for-2024/"><u>Crafting the Perfect Tone  Accessible Software for Effortless Vocal Transformation for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/decoding-the-m1-chip-apples-latest-marvel/"><u>Decoding the M1 Chip  Apple's Latest Marvel</u></a></li>
+<li><a href="https://article-tips.techidaily.com/decorating-your-wardrobe-a-guide-to-haul-edits/"><u>Decorating Your Wardrobe  A Guide to Haul Edits</u></a></li>
+<li><a href="https://article-tips.techidaily.com/detailed-guide-to-whatsapps-audio-chat-features/"><u>Detailed Guide to WhatsApp's Audio Chat Features</u></a></li>
+<li><a href="https://article-tips.techidaily.com/digital-renaissance-spotlight-on-six-trailblazers-of-nfts/"><u>Digital Renaissance  Spotlight on Six Trailblazers of NFTs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/dive-into-video-directing-with-powerdirector-full-review-2024-suite/"><u>Dive Into Video Directing with PowerDirector - Full Review (2024 Suite)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/dji-quadcopters-groups-fundamentals-advanced-configurations-hd-experts/"><u>DJI Quadcopters Groups  Fundamentals, Advanced Configurations, HD Experts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/drone-motor-choose-the-5-best-motors-for-your-quadcopter-for-2024/"><u>Drone Motor  Choose the 5 Best Motors for Your Quadcopter for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/dynamic-color-grading-using-ae-luts/"><u>Dynamic Color Grading Using AE LUTs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/effortlessly-enhance-photos-how-to-remove-backgrounds-quickly/"><u>Effortlessly Enhance Photos  How to Remove Backgrounds Quickly</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevate-your-vision-experience-these-7-grading-styles/"><u>Elevate Your Vision  Experience These 7 Grading Styles</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevating-your-immersive-video-storytelling-mastering-360-degree-edits-in-premierepro-for-2024/"><u>Elevating Your Immersive Video Storytelling  Mastering 360-Degree Edits in PremierePro for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elite-web-crews-revolutionizing-av-media-creation/"><u>Elite Web Crews Revolutionizing Av Media Creation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/enhance-audio-visual-experience-windows-media-player-subtitles-for-2024/"><u>Enhance Audio-Visual Experience  Windows Media Player Subtitles for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-fixing-foneazy-mockgo-not-working-on-vivo-v30-lite-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Fixing Foneazy MockGo Not Working On Vivo V30 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/qzone-elites-brief-visits-to-snapchat/"><u>Qzone Elites' Brief Visits to Snapchat</u></a></li>
+<li><a href="https://fox-that.techidaily.com/reviving-your-languid-iphone-understanding-and-correcting-6-problems/"><u>Reviving Your Languid iPhone: Understanding & Correcting 6 Problems</u></a></li>
+<li><a href="https://windows11.techidaily.com/streamlining-startup-opening-sticky-notes-seamlessly-on-pc/"><u>Streamlining Startup: Opening Sticky Notes Seamlessly on PC</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-4-ways-to-trace-apple-iphone-6-location-drfone-by-drfone-virtual-ios/"><u>Top 4 Ways to Trace Apple iPhone 6 Location | Dr.fone</u></a></li>
+</ul></div>

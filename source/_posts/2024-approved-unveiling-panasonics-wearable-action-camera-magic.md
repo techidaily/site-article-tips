@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Unveiling Panasonic's Wearable Action Camera Magic\""
-date: 2024-07-10T23:44:13.825Z
-updated: 2024-07-11T23:44:13.825Z
+date: 2024-08-08T03:15:07.182Z
+updated: 2024-08-09T03:15:07.182Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/2f5a7138163b464da142425b5cd4fc9ef8759bb93
 
 # Panasonic HX-A1 Wearable Action Camera Review
 
+<!-- affiliate ads begin -->
+<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -32,8 +35,14 @@ thumbnail: https://thmb.techidaily.com/2f5a7138163b464da142425b5cd4fc9ef8759bb93
 
  With an unconventional cylindrical design, this digital camcorder is ready to make you fall for it. Panasonic has always tried to add versatility to their product and this focus has helped to win the hearts of its fans! HX-A1 Wearable Action Camera, as its name suggests, helps to mount it to any ideal spot. Its elongated torch-like shape helps in mounting it to your helmet, board or any other piece of mountain gear. You can attach it to your bag, hat or backpack or just put it like a headband! The twin mount helps in clicking in dark situations especially where you need an IR flashlight. Its 0 lux night vision mode allows IR flashlight to be mounted in addition to A1\. The camera allows to film in 1080p at 30fps, 720p at 60fps and 480p at 240fps. Available at a very affordable price of $101.95, A1 is certainly compatible to exceed your expectations. Let us unfold aspects of this A1 camera in this post.
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Design and Usability
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<!-- affiliate ads end -->
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
@@ -63,6 +72,9 @@ thumbnail: https://thmb.techidaily.com/2f5a7138163b464da142425b5cd4fc9ef8759bb93
 | Allows to record Slow-motion and in dark also.                                                                                                                         | No HDMI output for HD movies                                                                           |
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BGeneral%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/general-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Accessories in the box
 
  The box obviously contains one of the best products from Panasonic which is the camera but also has little surprising accessories which will alleviate your shooting experience.
@@ -128,12 +140,18 @@ thumbnail: https://thmb.techidaily.com/2f5a7138163b464da142425b5cd4fc9ef8759bb93
 
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
+<!-- affiliate ads begin -->
+<a href="https://natural-cycles.sjv.io/c/5597632/2072199/17885" target="_top" id="2072199"><img src="//a.impactradius-go.com/display-ad/17885-2072199" border="0" alt="" width="300" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072199/17885" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
  The minor drawbacks in A1 are completely understandable. With its decent picture quality and plenty of other features such as SFDW formula, it can be rightly said that Panasonic has created a fine budget camera which is worth investing. There is always a way to capture your fun and thrills and Panasonic HX-A1 gets along your making it a capable action camera!
 
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -160,3 +178,55 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-top-6-minecraft-oriental-house-ideas-you-should-try/"><u>[New] 2024 Approved  Top 6 Minecraft Oriental House Ideas You Should Try</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-the-expert-guide-to-navigating-win11-easily/"><u>[New] The Expert Guide to Navigating Win11 Easily</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-capture-every-moment-essential-ways-for-google-meet-recordings/"><u>[Updated] 2024 Approved  Capture Every Moment  Essential Ways for Google Meet Recordings</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/updated-in-2024-delving-into-twitter-archives-processes-explained/"><u>[Updated] In 2024, Delving Into Twitter Archives  Processes Explained</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-perfect-your-strategy-top-rated-techniques-for-video-marketing-for-2024/"><u>[Updated] Perfect Your Strategy  Top-Rated Techniques for Video Marketing for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-accelerating-the-playback-of-instagram-videos-tips/"><u>2024 Approved  Accelerating the Playback of Instagram Videos (Tips)</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/2024-approved-steps-to-resolve-stuck-obs-camera-feed/"><u>2024 Approved  Steps to Resolve Stuck OBS Camera Feed</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-swift-skillz-best-high-speed-games-for-laptopsmobile/"><u>2024 Approved  Swift Skillz  Best High-Speed Games for Laptops/Mobile</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-vr-equipment-enhancing-flight-control/"><u>Best VR Equipment Enhancing Flight Control</u></a></li>
+<li><a href="https://article-tips.techidaily.com/buy-smart-top-picks-for-high-definition-21-hdmi-screens/"><u>Buy Smart  Top Picks for High-Definition 2.1 HDMI Screens</u></a></li>
+<li><a href="https://article-tips.techidaily.com/capture-memories-safely-explore-all-inclusive-free-and-charged-cloud-storage-solutions/"><u>Capture Memories Safely  Explore All-Inclusive Free and Charged Cloud Storage Solutions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/capture-one-advanced-techniques/"><u>Capture One Advanced Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/chilly-champs-beijings-best-of-the-2022-games/"><u>Chilly Champs  Beijing's Best of the 2022 Games</u></a></li>
+<li><a href="https://article-tips.techidaily.com/cloud-price-wars-best-value-allocation-for-2024/"><u>Cloud Price Wars  Best Value Allocation for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/comparative-study-black-hero-4-versus-x1000v-in-action-filming/"><u>Comparative Study  Black Hero 4 Versus X1000V in Action Filming</u></a></li>
+<li><a href="https://article-tips.techidaily.com/complete-picture-a-close-look-at-the-google-podcasts-app-for-2024/"><u>Complete Picture  A Close Look at the Google Podcasts App for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/comprehensive-examination-editrite-pro-suite-the-final-word-2023-for-2024/"><u>Comprehensive Examination  EditRite Pro Suite – The Final Word, 2023 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/conquer-time-lapse-with-your-canon-camera/"><u>Conquer Time-Lapse with Your Canon Camera</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/core-framework-principles-for-engaging-online-promotions/"><u>Core Framework Principles for Engaging Online Promotions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crafting-a-plan-to-locate-breathtaking-photos-in-minutes-on-pexels-for-2024/"><u>Crafting a Plan to Locate Breathtaking Photos in Minutes on Pexels for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/creating-emotional-depth-scriptwriting-tips-for-2024/"><u>Creating Emotional Depth  Scriptwriting Tips for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crossplatform-vmix-conductor/"><u>CrossPlatform VMix Conductor</u></a></li>
+<li><a href="https://article-tips.techidaily.com/curated-selection-of-farewell-music-templates-for-2024/"><u>Curated Selection of Farewell Music Templates for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/curating-the-perfect-day-to-unveil-podcast-content/"><u>Curating the Perfect Day to Unveil Podcast Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/cutting-edge-methods-for-fast-srt-to-text-file-conversion/"><u>Cutting-Edge Methods for Fast SRT to Text File Conversion</u></a></li>
+<li><a href="https://article-tips.techidaily.com/decreasing-decibits-gradually-for-calm-soundscapes-in-lumafusion/"><u>Decreasing Decibits Gradually for Calm Soundscapes in Lumafusion</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discover-the-most-valuable-online-spots-for-free-photographs/"><u>Discover the Most Valuable Online Spots for Free Photographs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discovering-best-5k-displays-list-8-for-2024/"><u>Discovering Best 5K Displays - List #8 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discovering-your-perfect-vr-experience-should-you-choose-mobile-freedom-or-connectivity-with-tethers/"><u>Discovering Your Perfect VR Experience  Should You Choose Mobile Freedom or Connectivity with Tethers?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/dji-flight-packages-essential-premium-high-definition-pro/"><u>DJI Flight Packages  Essential, Premium, High Definition Pro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/efficiently-record-your-periscope-experience-now-for-2024/"><u>Efficiently Record Your Periscope Experience Now for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/efficiently-transforming-ttml-and-xml-into-high-quality-srts/"><u>Efficiently Transforming TTML and XML Into High-Quality SRTs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/effortless-approach-perfecting-time-lapses-using-samsungs/"><u>Effortless Approach  Perfecting Time-Lapses Using Samsungs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevate-your-experience-with-windows-11-games-for-2024/"><u>Elevate Your Experience with Windows 11 Games for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevating-enthrallment-yt-storytellers-to-track-in-23/"><u>Elevating Enthrallment  YT Storytellers to Track in '23</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elite-lineup-of-vr-bicycle-experiences-for-2024/"><u>Elite Lineup of VR Bicycle Experiences for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/harmonizing-multiple-clips-an-android-tutorial-for-2024/"><u>Harmonizing Multiple Clips  An Android Tutorial for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-do-you-unlock-your-apple-iphone-13-learn-all-4-methods-by-drfone-ios/"><u>How Do You Unlock your Apple iPhone 13? Learn All 4 Methods</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-whatsapp-chat-history-from-iphone-12-pro-max-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How To Recover Whatsapp Chat History From iPhone 12 Pro Max | Stellar</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-a2-phone-password-without-factory-reset-by-drfone-android/"><u>How to Unlock Oppo A2 Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-galactic-grandeur-in-hd-optimal-websites-featuring-the-sky/"><u>In 2024, Galactic Grandeur in HD  Optimal Websites Featuring the Sky</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-honor-play-40c-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Honor Play 40C Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://windows11.techidaily.com/infuse-personalized-style-in-windows-email-calendar/"><u>Infuse Personalized Style in Windows Email, Calendar</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/seamless-iphone-recording-creating-fb-shareable-reels-for-2024/"><u>Seamless iPhone Recording  Creating FB Shareable Reels for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/soaring-in-high-definition-an-in-depth-xiaomi-analysis-for-2024/"><u>Soaring in High Definition  An In-Depth Xiaomi Analysis for 2024</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/solved-warning-camera-failed-on-oneplus-ace-2-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Solved Warning Camera Failed on OnePlus Ace 2 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/ultimate-guide-leading-4k-uhd-blu-ray-devices/"><u>Ultimate Guide  Leading 4K UHD Blu-Ray Devices</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/updated-live-commerce-success-stories-lessons-learned-and-predictions-for-the-future/"><u>Updated Live Commerce Success Stories Lessons Learned & Predictions for the Future</u></a></li>
+</ul></div>

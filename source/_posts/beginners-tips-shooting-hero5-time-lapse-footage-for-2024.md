@@ -1,7 +1,7 @@
 ---
 title: "\"Beginner's Tips  Shooting Hero5 Time-Lapse Footage for 2024\""
-date: 2024-07-10T23:29:09.383Z
-updated: 2024-07-11T23:29:09.383Z
+date: 2024-08-08T03:19:57.328Z
+updated: 2024-08-09T03:19:57.328Z
 tags: 
   - screen-recording
   - ai video
@@ -20,6 +20,9 @@ thumbnail: https://thmb.techidaily.com/3bbc4ff17b35bac37e3335e5a66057aab2f13c2b0
 
 # How to Shoot a Time-lapse Video with GoPro Hero5 Black
 
+<!-- affiliate ads begin -->
+<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=12730965&QTY=1&AFFILIATE=108875&CART=1"><img src="https://incomedia.eu/files/images/affiliates/w5/03_WBSX5_728x90_red_CTA.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -35,6 +38,9 @@ Are you an amateur travel photographer who has recently bought a GoPro cam and w
 * [Part 1:Shooting a time lapse video with GoPro Hero5](#part1)
 * [Part 2: Making time lapse videos with Wondershare Filmora](#part2)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<!-- affiliate ads end -->
 ## Part 1: Shooting a time lapse video with GoPro Hero5
 
 #### **1. The best time lapse settings in GoPro:**
@@ -86,16 +92,25 @@ The Action Cam Tool- this has the capacity of correcting lens distortion and can
 
 The Instant cutter tool on the other hand can be used for trimming and merging videos quickly and easily without damaging its quality. It supports many video formats like  encoded MP4, MTS and mov video which have been shot on phones, HD cameras and Action cams.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 * First, launch the Filmora app and then choose the ‘action cam tool’
 * Next, you need to click the ‘Import’ button or the ‘ Import an Action cam video’ button, so as to import your recorded video to Wondershare Filmora.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.macxdvd.com/order/checkout.php?PRODS=4526659&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macxdvd.com/affiliate/new-banner/vcp-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ![1-action-cam-tool-fix-entrance](https://images.wondershare.com/filmora/article-images/filmora-splash-screen-0321.jpg)
 
 * Now go to the Speed tab and bring the Playhead to the exact position where the speed effect is to be applied.
 * Click the Add Marker button. Click the speed marker and drag it onto either side of your timeline so as to choose a number of clips on your timeline.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4537546&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/7_copy_2_2_hdpro.png" border="0">HD Video Converter Factory Pro</a>
+<!-- affiliate ads end -->
 ![speed-effect-speed-add-marke](https://images.wondershare.com/filmora/article-images/speed-effect-speed-add-marker.png)
 
 * The speed settings can be adjusted by clicking on the checkbox marked Speed. The speed slider can be moved forward to make it faster up to 20x for the time lapse effect.
@@ -103,6 +118,9 @@ The Instant cutter tool on the other hand can be used for trimming and merging v
 
 [Learn more detailed information about how to make a time lapse video in Filmora Full Feature Mode](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/863039/11832" target="_top" id="863039"><img src="//a.impactradius-go.com/display-ad/11832-863039" border="0" alt="" width="300" height="250"/></a>
+<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -129,3 +147,62 @@ Follow @Max Wales
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-boost-engagement-with-top-tips-for-captivating-unboxing-videos/"><u>[New] 2024 Approved  Boost Engagement with Top Tips for Captivating Unboxing Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-finding-premium-photography-without-spending/"><u>[New] 2024 Approved  Finding Premium Photography Without Spending</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-from-beginner-to-master-a-stepwise-guide-for-excellent-posts/"><u>[New] 2024 Approved  From Beginner to Master  A Stepwise Guide for Excellent Posts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-preventing-htc-vive-disorientation-and-nausea/"><u>[New] 2024 Approved  Preventing HTC Vive Disorientation and Nausea</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-prime-sites-to-propel-youtube-content-reach/"><u>[New] 2024 Approved  Prime Sites to Propel YouTube Content Reach</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-sync-soundscapes-from-downloads-to-personalized-phone-alerts/"><u>[New] 2024 Approved  Sync Soundscapes  From Downloads to Personalized Phone Alerts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-complete-blueprint-for-optimizing-data-in-adobes-cloud-realm/"><u>[New] 2024 Approved  The Complete Blueprint for Optimizing Data in Adobe's Cloud Realm</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-drone-visuals-perfection-editing-essentials-unveiled/"><u>[New] Drone Visuals Perfection  Editing Essentials Unveiled</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ssential-gif-making-software-the-ultimate-guide/"><u>[New] Essential GIF Making Software  The Ultimate Guide</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-how-to-use-zoom-in-your-daily-gmail-routine/"><u>[New] How to Use Zoom in Your Daily Gmail Routine</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-dawns-judgment-new-ideas/"><u>[New] In 2024, Dawn’s Judgment  New Ideas</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-mastering-rapid-windows-document-examination-for-2024/"><u>[New] Mastering Rapid Windows Document Examination for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-top-ten-screencasting-apps-for-modern-teachers/"><u>[New] Top Ten Screencasting Apps for Modern Teachers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-under-100-budget-friendly-action-cams-top-choices-guide/"><u>[New] Under-$100 Budget-Friendly Action Cams – Top Choices Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-uplifting-cinema-the-ultimate-list-of-motivation-for-2024/"><u>[New] Uplifting Cinema  The Ultimate List of Motivation for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-visualize-drone-flights-complimentary-dji-miniair-luts-trial/"><u>[New] Visualize Drone Flights – Complimentary DJI Mini/Air LUTS Trial</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-recording-quality-unlocked-best-mics/"><u>[Updated] 2024 Approved  Recording Quality Unlocked  Best Mics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-simplifying-the-world-of-ifunnys-meme-application/"><u>[Updated] 2024 Approved  Simplifying the World of iFunny's Meme Application</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-vividvistazoom-7-captivating-larger-images/"><u>[Updated] 2024 Approved  VividVistaZoom 7  Captivating Larger Images</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-srt-mods-ultimate-upgrades-for-macwindows/"><u>[Updated] Best SRT Mods  Ultimate Upgrades for Mac/Windows</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-design-delight-complimentary-3d-psd-treasures-for-2024/"><u>[Updated] Design Delight  Complimentary 3D PSD Treasures for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-extended-scrutiny-gopro-slr4-black-edition-model/"><u>[Updated] In 2024, Extended Scrutiny  GoPro SLR4 Black Edition Model</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-perfecting-game-capture-techniques-and-tricks/"><u>[Updated] In 2024, Perfecting Game Capture  Techniques & Tricks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-video-production-atlas-xstudio-analysis-edition/"><u>[Updated] In 2024, Video Production Atlas  XStudio Analysis Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-initiate-your-streaming-success-story-with-periscope-for-2024/"><u>[Updated] Initiate Your Streaming Success Story with Periscope for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-picture-perfect-in-the-sky-discover-infinite-complimentary-and-paid-cloud-repositories/"><u>[Updated] Picture Perfect in the Sky  Discover Infinite, Complimentary, & Paid Cloud Repositories</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-revolutionary-additions-to-windows-11/"><u>[Updated] Revolutionary Additions to Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-start-with-snapseed-a-foundation-for-image-editing-for-2024/"><u>[Updated] Start with Snapseed  A Foundation for Image Editing for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-uncover-the-power-of-sound-no-cost-voice-effects-at-your-fingertips/"><u>[Updated] Uncover the Power of Sound  No-Cost Voice Effects at Your Fingertips</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleashing-your-youtube-potential-a-comprehensively-tailored-upload-process/"><u>[Updated] Unleashing Your YouTube Potential  A Comprehensively Tailored Upload Process</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-bridging-identities-with-100-creative-and-empowering-insta-captions/"><u>2024 Approved  Bridging Identities with 100 Creative and Empowering Insta Captions</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/2024-approved-central-luts-in-action-movie-visuals-enhancement/"><u>2024 Approved  Central Luts in Action  Movie Visuals Enhancement</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-ripple-producer-guide/"><u>2024 Approved  Ripple Producer Guide</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-step-by-step-guide-to-mobile-snapchat-screen-recording/"><u>2024 Approved  Step-by-Step Guide to Mobile Snapchat Screen Recording</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-transforming-ideas-into-engaging-captivate-content/"><u>2024 Approved  Transforming Ideas Into Engaging Captivate Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/basics-in-the-realm-of-tale-construction-for-2024/"><u>Basics in the Realm of Tale Construction for 2024</u></a></li>
+<li><a href="https://network-issues.techidaily.com/clarified-unknown-direct-x-flub-on-legends-of-lol/"><u>Clarified Unknown Direct X Flub on Legends of LoL</u></a></li>
+<li><a href="https://article-tips.techidaily.com/convert-your-sbt-to-cutting-edge-srt-with-our-top-8-software-for-desktop-users/"><u>Convert Your SBT to Cutting-Edge SRT with Our Top 8 Software for Desktop Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crafting-connectivity-with-metaverse-strategies/"><u>Crafting Connectivity with Metaverse Strategies</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-how-to-bypass-oppo-find-n3-frp-android-10111213-by-drfone-android/"><u>Easy Guide How To Bypass Oppo Find N3 FRP Android 10/11/12/13</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-download-of-wacom-intuos-pro-driver-compatible-with-windows-11/"><u>Effortless Download of Wacom Intuos Pro Driver Compatible with Windows 11</u></a></li>
+<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-motorola-moto-g04-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Motorola Moto G04 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/how-to-unbrick-a-dead-vivo-v29-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Unbrick a Dead Vivo V29 | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-color-grading-movies-with-efficient-luts-usage/"><u>In 2024, Color Grading Movies with Efficient Luts Usage</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-iphone-lens-magic-perfecting-close-up-and-macro-shots/"><u>In 2024, IPhone Lens Magic  Perfecting Close-Up and Macro Shots</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-step-up-your-image-game-the-best-free-online-editors/"><u>In 2024, Step Up Your Image Game  The Best Free Online Editors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-video-hub-usability-and-quality-audit/"><u>In 2024, Video Hub Usability & Quality Audit</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/mastering-file-repair-a-guide-to-using-windows-chkdsk-utility/"><u>Mastering File Repair: A Guide to Using Windows' ChkDsk Utility</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/-learning-path-for-keying-mastery-for-2024/"><u>Rapid Learning Path for Keying Mastery for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-pros-guide-to-hidden-power-ups-in-vlc-playback/"><u>The Pro's Guide to Hidden Power-Ups in VLC Playback</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-guide-to-avi-to-gif-transformation-using-filmora-for-both-oses-for-2024/"><u>The Ultimate Guide to AVI-to-GIF Transformation Using Filmora for Both OSes for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/the-ultimate-guide-to-mastering-nikon-d7500/"><u>The Ultimate Guide to Mastering Nikon D7500</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-convert-mts-for-huawei-p60-by-aiseesoft-video-converter-play-mts-on-android/"><u>The way to convert MTS for Huawei P60</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-top-6-causes-for-apple-visual-lookup-feature-failure/"><u>Troubleshooting: Top 6 Causes for Apple Visual Lookup Feature Failure</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unveiling-the-finest-4-sites-for-tones/"><u>Unveiling the Finest 4 Sites for Tones</u></a></li>
+</ul></div>

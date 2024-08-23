@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Principles of Plot Construction\""
-date: 2024-07-10T23:09:14.639Z
-updated: 2024-07-11T23:09:14.639Z
+date: 2024-08-22T16:34:32.516Z
+updated: 2024-08-23T16:34:32.516Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,9 @@ A thriller script template will structure character movement, staging, and dialo
 
 We currently have screenplay format templates for nearly every theatrical and film genre, including drama, comedy, action, thriller, autobiography, and others. Each of these templates has a unique structure, but the best ones share some characteristics.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.zonealarm.com/order/checkout.php?PRODS=38658749&QTY=1&AFFILIATE=108875&CART=1"><img src="https://sc1.checkpoint.com/sc1/za/images/boxes/pa_500.png" border="0">ZoneAlarm Pro Antivirus + Firewall NextGen</a>
+<!-- affiliate ads end -->
 ### 1\. Characteristics of the Ideal Screenplay Format Template
 
 Regardless of the screenplay genre, each screenplay template has some characteristics that set it apart from the rest. However, all ideal scenarios have the following characteristics in common:
@@ -81,6 +84,9 @@ Regardless of the screenplay genre, each screenplay template has some characteri
 
 Let's look at each of the characteristics individually.
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/1873313/18544" target="_top" id="1873313"><img src="//a.impactradius-go.com/display-ad/18544-1873313" border="0" alt="" width="1080" height="1263"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873313/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 2\. Comprehensive Layout
 
 If you look at the screenplays for some of the greatest movies ever made, you'll find that they all contain a complete and detailed story arc with textbook variations in pacing and dialogue as the story progresses.
@@ -105,6 +111,9 @@ The same title page, with the same standard Courier font, text indentation, scen
 
 ![contemporary features](https://images.wondershare.com/filmora/article-images/2022/08/what-is-screenplay-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://funwhole.sjv.io/c/5597632/1702887/17189" target="_top" id="1702887"><img src="//a.impactradius-go.com/display-ad/17189-1702887" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702887/17189" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 However, with the advent of app-based screenwriting software, we have plenty of contemporary features such as automatic page numbers, time of day, parentheses, and pop-ups with specific character names.
 
 Even the general rule of thumb "one-page equals one minute of screen time" doesn't apply to all scripts today.
@@ -113,6 +122,9 @@ While it's not necessary to have a fully automated script layout interface, any 
 
 Plus, since most writers today prefer a smartphone to a traditional typewriter, it pays to have a screenplay editor in the palm of your hand.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### 4\. Configurability
 
 Rigid script formatting risks making your story look and sound like all the stories that have used it in the past.
@@ -125,6 +137,9 @@ For example, when I'm writing a character who's learning to write a book, I'd li
 
 Taking an unconventional approach to character development can seem counterproductive and time-consuming. However, a good script draft will allow the writer to do this without making the script unbalanced.
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
 ### 5\. Creative Space
 
 Stiffness is a very common factor in most traditional screenplay formats.
@@ -143,6 +158,9 @@ In addition, the best templates should allow screenwriters to adjust their plot 
 
 Common fictional tropes have already been adopted by thousands of screenwriters around the world. The job of a perfect template is to give you enough creative space to create a unique story from a traditional genre.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 4\. Make your own screenplay by using Filmora
 
 After you have chosen what template is more appropriate for your needs, you will have to start writing your script. Here is a step-to-step guide to help you.
@@ -187,3 +205,81 @@ The article has provided the most information about screenplays and how to write
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-premiere-pros-approach-to-clearing-iphone-video-overexposure/"><u>[New] 2024 Approved  Premiere Pro's Approach to Clearing iPhone Video Overexposure</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/new-2024-approved-premium-5-conferencing-recording-equipment-guide/"><u>[New] 2024 Approved  Premium 5 Conferencing Recording Equipment Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-simplified-blur-methods-for-perfect-iphone-pics-a-quick-guide/"><u>[New] 2024 Approved  Simplified Blur Methods for Perfect iPhone Pics - A Quick Guide</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-top-5-gaming-chairs-on-a-shoestring-budget/"><u>[New] 2024 Approved  Top 5 Gaming Chairs on a Shoestring Budget</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-vlc-analysis-and-substitutes-revisited/"><u>[New] 2024 Approved  VLC Analysis & Substitutes Revisited</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-avoid-blur-and-clarity-issues-zooming-techniques-with-videoleap-for-2024/"><u>[New] Avoid Blur and Clarity Issues  Zooming Techniques with Videoleap for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-avoid-these-8-steps-that-newcomers-often-miss-on-youtube/"><u>[New] Avoid These 8 Steps that Newcomers Often Miss on YouTube</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-constructing-youtube-video-content-that-resonates-with-viewers-for-2024/"><u>[New] Constructing YouTube Video Content That Resonates with Viewers for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-design-and-construct-your-dream-mc-house-for-2024/"><u>[New] Design and Construct Your Dream MC House for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-expertise-in-audio-on-windows-best-8-applications-you-should-use/"><u>[New] Expertise in Audio on Windows  Best 8 Applications You Should Use</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exploring-the-world-of-digital-color-grading/"><u>[New] Exploring the World of Digital Color Grading</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-film-length-conversion-hours-to-storage-gb/"><u>[New] Film Length Conversion  Hours to Storage (GB)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-from-spoken-words-to-written-text-ppt-innovation-guide-for-2024/"><u>[New] From Spoken Words to Written Text  PPT Innovation Guide for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/new-how-to-address-and-overcome-a-youtube-content-id-issue/"><u>[New] How to Address and Overcome a YouTube Content ID Issue</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-how-to-make-and-convert-slow-motion-videos-on-iphone-for-2024/"><u>[New] How to Make and Convert Slow Motion Videos on iPhone for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-conquering-challenges-the-comprehensive-guide-to-google-podcasts/"><u>[New] In 2024, Conquering Challenges  The Comprehensive Guide to Google Podcasts</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-discover-the-top-8-instagram-management-tools-for-iphone-and-android/"><u>[New] In 2024, Discover the Top 8 Instagram Management Tools for iPhone and Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-iphone-guide-to-achieving-stunning-hdr-photos/"><u>[New] In 2024, IPhone Guide to Achieving Stunning HDR Photos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-luminalabs-exploring-affordable-video-editors/"><u>[New] In 2024, LuminaLabs  Exploring Affordable Video Editors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-tips-for-efficient-music-import-in-inshot-app/"><u>[New] In 2024, Tips for Efficient Music Import in InShot App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-iphone-tricks-adjusting-picture-size-efficiently/"><u>[New] IPhone Tricks  Adjusting Picture Size Efficiently</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-optimizing-audio-transition-from-cds-using-wmp/"><u>[New] Optimizing Audio Transition From Cds Using WMP</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-securing-your-youtube-profile-a-guide/"><u>[New] Securing Your YouTube Profile  A Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-joy-of-journeys-end-innovative-box-revelations/"><u>[New] The Joy of Journey's End  Innovative Box Revelations</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-top-video-montages-on-mobile-devices-a-8-must-have-list/"><u>[New] Top Video Montages on Mobile Devices  A 8 Must-Have List</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-whimsical-video-downloader-score/"><u>[New] Whimsical Video Downloader Score</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-cutting-edge-strategies-for-instagram-video-cropping/"><u>[Updated] 2024 Approved  Cutting-Edge Strategies for Instagram Video Cropping</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-dispel-image-fuzziness-the-best-10-web-editing-software-reviewed/"><u>[Updated] 2024 Approved  Dispel Image Fuzziness  The Best 10 Web Editing Software Reviewed</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-unveiling-the-power-of-images-in-instagram-movies/"><u>[Updated] 2024 Approved  Unveiling the Power of Images in Instagram Movies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-become-a-kinemaster-wizard-essentials-techniques-and-10-top-online-contenders/"><u>[Updated] Become a KineMaster Wizard  Essentials, Techniques & 10 Top Online Contenders</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-best-choices-for-livestreaming-made-simple-mac-edition-for-2024/"><u>[Updated] Best Choices for Livestreaming Made Simple - Mac Edition for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-boosting-your-videos-chance-on-vimeo-staff-list/"><u>[Updated] Boosting Your Video's Chance on Vimeo Staff List</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-diversifying-from-googles-ar-enhancements/"><u>[Updated] Diversifying From Google's AR Enhancements</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-engaging-consumer-openings/"><u>[Updated] Engaging Consumer Openings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-becoming-a-green-mastermind-with-kinemasters-gs-knowledge/"><u>[Updated] In 2024, Becoming a Green Mastermind with KineMaster's GS Knowledge</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-capture-cinematic-moments-seamlessly-across-pcs-and-smartphones/"><u>[Updated] In 2024, Capture Cinematic Moments Seamlessly Across PCs & Smartphones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-creating-your-first-home-theater-disc-with-mac/"><u>[Updated] In 2024, Creating Your First Home Theater Disc with Mac</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-in-2024-digital-fortune-makers-top-earning-youtubers/"><u>[Updated] In 2024, Digital Fortune Makers  Top Earning YouTubers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-is-consumer-feedback-compensated-in-vlogs-for-2024/"><u>[Updated] Is Consumer Feedback Compensated in Vlogs for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-scripts-to-screen-a-filmmakers-guide-for-2024/"><u>[Updated] Scripts to Screen  A Filmmaker's Guide for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-key-to-smooth-segments-crossfade-logic-pro-steps-for-2024/"><u>[Updated] The Key to Smooth Segments  Crossfade Logic Pro Steps for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-the-ultimate-list-best-8-free-open-source-enterprise-callers-for-2024/"><u>[Updated] The Ultimate List  Best 8 Free, Open Source Enterprise Callers for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-ultimate-list-hashtags-for-maximum-video-engagement-in-games/"><u>[Updated] Ultimate List  Hashtags for Maximum Video Engagement in Games</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/2024-approved-free-top-8-best-apps-to-get-likes-on-instagram/"><u>2024 Approved  FREE Top 8 Best Apps to Get Likes on Instagram</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-gopro-innovations-a-side-by-side-exploration/"><u>2024 Approved  GoPro Innovations  A Side-by-Side Exploration</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-pastimes-pairing-with-your-favorite-audio-shows/"><u>2024 Approved  Ideal Pastimes Pairing with Your Favorite Audio Shows</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-propel-your-productivity-mastering-marketing-in-the-telegram-world/"><u>2024 Approved  Propel Your Productivity  Mastering Marketing in the Telegram World</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/7-troubleshooting-tactics-for-non-functional-firefox-in-windows/"><u>7 Troubleshooting Tactics for Non-Functional Firefox in Windows</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/boost-icloud-mail-safety-using-two-step-verification-methods/"><u>Boost iCloud Mail Safety Using Two-Step Verification Methods</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/cant-play-mp4-files-on-motorola-moto-g-stylus-2023-by-aiseesoft-video-converter-play-mp4-on-android/"><u>Can't play MP4 files on Motorola Moto G Stylus (2023)</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/comparing-snapchat-and-tiktok-the-ultimate-guide/"><u>Comparing Snapchat & TikTok  The Ultimate Guide</u></a></li>
+<li><a href="https://os-tips.techidaily.com/expert-tips-for-a-full-mac-refresh-returning-your-computer-to-its-default-configuration/"><u>Expert Tips for a Full Mac Refresh: Returning Your Computer to Its Default Configuration</u></a></li>
+<li><a href="https://article-tips.techidaily.com/exploring-the-landscape-of-music-and-intellectual-property-on-insta/"><u>Exploring the Landscape of Music & Intellectual Property on Insta</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-does-the-stardust-trade-cost-in-pokemon-go-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>How does the stardust trade cost In pokemon go On Nokia XR21? | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-crafting-audio-magic-a-windows-10-sound-journey/"><u>In 2024, Crafting Audio Magic  A Windows 10 Sound Journey</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/in-2024-dos-and-donts-the-ultimate-fb-cover-video-tutorial/"><u>In 2024, Dos & Don'ts  The Ultimate FB Cover Video Tutorial</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-check-distance-and-radius-on-google-maps-for-your-itel-s23-drfone-by-drfone-virtual-android/"><u>In 2024, How to Check Distance and Radius on Google Maps For your Itel S23 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-paramount-top-rated-vr-movies/"><u>In 2024, Paramount Top-Rated VR Movies</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-prank-your-friends-easy-ways-to-fake-and-share-google-maps-location-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Prank Your Friends! Easy Ways to Fake and Share Google Maps Location On Apple iPhone 13 mini | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-step-by-step-crafting-memes-with-kinemaster/"><u>In 2024, Step-by-Step  Crafting Memes with KineMaster</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-streamlining-color-grading-with-lut-techniques-in-ae/"><u>In 2024, Streamlining Color Grading with LUT Techniques in AE</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-seamless-shift-your-path-to-kinemaster-expertise/"><u>In 2024, The Seamless Shift  Your Path to Kinemaster Expertise</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-ultimate-video-camera-compendium-year/"><u>In 2024, The Ultimate Video Camera Compendium Year</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-10-fingerprint-lock-apps-to-lock-your-xiaomi-redmi-note-13-proplus-5g-phone-by-drfone-android/"><u>In 2024, Top 10 Fingerprint Lock Apps to Lock Your Xiaomi Redmi Note 13 Pro+ 5G Phone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-top-starter-gopro-gear-essentials/"><u>In 2024, Top Starter GoPro Gear Essentials</u></a></li>
+<li><a href="https://article-tips.techidaily.com/lightning-fast-windowed-photo-reader-for-win11/"><u>Lightning-Fast Windowed Photo Reader for Win11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/master-the-basics-essential-photo-edits-for-starters/"><u>Master the Basics  Essential Photo Edits for Starters</u></a></li>
+<li><a href="https://article-tips.techidaily.com/next-level-vr-tools-top-8-selection-for-2024/"><u>Next-Level VR Tools  Top 8 Selection for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/opening-overtures-10-superior-tunes-to-pique-interest/"><u>Opening Overtures  10 Superior Tunes to Pique Interest</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/revolutionize-your-views-non-xplit-applications/"><u>Revolutionize Your Views  Non-Xplit Applications</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/secure-methods-to-transfer-instagram-media-onto-iphone/"><u>Secure Methods to Transfer Instagram Media Onto iPhone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-art-of-digital-alterations-tips-for-text-in-pictures/"><u>The Art of Digital Alterations  Tips for Text in Pictures</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ultimate-guide-to-saving-memories-as-videos-on-iphone/"><u>Ultimate Guide to Saving Memories as Videos on iPhone</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-infinix-note-30-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Infinix Note 30 | Dr.fone</u></a></li>
+</ul></div>

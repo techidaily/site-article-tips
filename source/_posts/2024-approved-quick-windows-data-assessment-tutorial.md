@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Quick Windows Data Assessment Tutorial\""
-date: 2024-07-10T23:09:28.339Z
-updated: 2024-07-11T23:09:28.339Z
+date: 2024-08-22T16:34:26.951Z
+updated: 2024-08-23T16:34:26.951Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,9 @@ Step4 After a successful installation, find the file you want to preview and sel
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
+<!-- affiliate ads begin -->
+<a href="https://aofit.pxf.io/c/5597632/1399701/16396" target="_top" id="1399701"><img src="//a.impactradius-go.com/display-ad/16396-1399701" border="0" alt="" width="960" height="300"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1399701/16396" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
 Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years. But are we going to see QuickLook coming to Windows 10/11 anytime soon? According to sources, plans are already underway to add this feature to Microsoft Windows and rename it Peek. After selecting a file on Explorer, simply tap the Shift + Space bar to preview the content. Like the macOS version, you can preview PDFs, Excels, Words, images, videos, audio, and pretty much anything.
@@ -70,6 +73,9 @@ Meanwhile, it’s expected that QuickLook will come with a small preview screen.
 
 In other related news, Microsoft will be answering the prayers of their loyal patrons to get tabbed browsing. This is another feature similar to what you currently have on macOS, where you can open new tabs for numerous file locations. In return, this makes moving and copying files more straightforward. This easy-to-navigate addition will definitely make Microsoft Windows users more productive than before.
 
+<!-- affiliate ads begin -->
+<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<!-- affiliate ads end -->
 ## Part 4: Frequently Asked Questions
 
 #### 1\. Which digital file formats are compatible with QuickLook?
@@ -84,6 +90,9 @@ Unfortunately, Microsoft QuickLook doesn’t offer native support for E-books. B
 
 Now this is one of the primary advantages of using the Mac QuickLook. You can trim video and audio clips, rotate photos, and use markups directly on the program. We hope that the Windows version will add these convenient features as well.
 
+<!-- affiliate ads begin -->
+<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 This guidepost is another testament that your PC has massive hidden abilities. With QuickLook for Windows, you can preview any document, image, or media file with a single click. And don’t forget to install the QuickLook plugins from GitHub to unlock the program’s full potential.
@@ -119,3 +128,48 @@ This guidepost is another testament that your PC has massive hidden abilities. W
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-how-to-correct-fisheye-lens-distortion-from-gopro-footage/"><u>[New] 2024 Approved  How to Correct Fisheye (Lens Distortion) From GoPro Footage</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-conquering-gameplay-logic-from-console-to-computer-playback/"><u>[New] Conquering Gameplay Logic  From Console to Computer Playback</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-cost-effective-high-performance-asmr-microphones-guide/"><u>[New] Cost-Effective, High-Performance ASMR Microphones Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-auto-enhancing-shots-with-innovative-exposure-algorithms/"><u>[New] In 2024, Auto-Enhancing Shots with Innovative Exposure Algorithms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-brush-boldly-beyond-professionals-palette-play/"><u>[New] In 2024, Brush Boldly Beyond - Professionals' Palette Play</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-turning-tales-upside-down-iphone-video-guide/"><u>[New] In 2024, Turning Tales Upside Down  IPhone Video Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unveiling-the-most-effective-web-subtitle-editors/"><u>[New] In 2024, Unveiling the Most Effective Web Subtitle Editors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-livestreaming-leaderboards-which-software-tops-the-chartvmixwirecast-in-2024/"><u>[New] Livestreaming Leaderboards  Which Software Tops the Chart—VMix/Wirecast, In 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-morning-judgment-creative-viewpoints/"><u>[New] Morning Judgment  Creative Viewpoints</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-power-of-pixels-a-review-of-the-4k-cg318-4k-monitor-for-2024/"><u>[New] The Power of Pixels  A Review of the 4K CG318-4K Monitor for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mac-enthusiasts-selection-of-premier-editing-suites/"><u>[Updated] 2024 Approved  Mac Enthusiasts' Selection of Premier Editing Suites</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-pro-anglers-choice-the-top-5-cameras-for-fishing/"><u>[Updated] 2024 Approved  Pro Angler's Choice  The Top 5 Cameras For Fishing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-tailored-ending-scenes-get-em-for-free/"><u>[Updated] 2024 Approved  Tailored Ending Scenes - Get 'Em for Free</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-a-comprehensive-guide-to-producing-videos-for-social-media/"><u>[Updated] A Comprehensive Guide to Producing Videos For Social Media</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-are-apples-new-processors-revolutionizing-editing-tech-for-2024/"><u>[Updated] Are Apple's New Processors Revolutionizing Editing Tech for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-channel-identity-made-simple-with-these-top-11-zero-cost-tools-for-2024/"><u>[Updated] Channel Identity Made Simple with These Top 11 Zero-Cost Tools for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-htc-vive-a-gateway-to-extraordinary-virtual-realms/"><u>[Updated] HTC Vive  A Gateway to Extraordinary Virtual Realms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-bring-the-beat-home-add-songs-to-your-inshot-app/"><u>[Updated] In 2024, Bring the Beat Home  Add Songs to Your InShot App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-prime-places-to-find-high-quality-vectors/"><u>[Updated] In 2024, Prime Places to Find High-Quality Vectors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-pushing-boundaries-upward-an-incisive-mavic-pro-review/"><u>[Updated] In 2024, Pushing Boundaries Upward  An Incisive Mavic Pro Review</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-pulse-of-the-population-vllo-analysis/"><u>[Updated] In 2024, The Pulse of the Population  VLLO Analysis</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-yuneec-breeze-4k-the-ultimate-uav-showcase/"><u>[Updated] Yuneec Breeze 4K - The Ultimate UAV Showcase</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/2024-approved-elite-video-editing-tools-tailored-to-windows-platforms/"><u>2024 Approved  Elite Video Editing Tools Tailored to Windows Platforms</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-kinemaster-editors-unite-building-fluid-sequences-together/"><u>2024 Approved  Kinemaster Editors Unite  Building Fluid Sequences Together</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/accelerate-your-iphone-and-android-videos-with-top-free-slo-motion-apps-for-2024/"><u>Accelerate Your iPhone and Android Videos with Top Free Slo-Motion Apps for 2024</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/decoding-hardware-with-tom-expert-opinions-on-tech-specs-and-reviews/"><u>Decoding Hardware with Tom: Expert Opinions on Tech Specs and Reviews</u></a></li>
+<li><a href="https://article-tips.techidaily.com/exploring-eight-premium-tablets-revolutionizing-photography-editing-for-2024/"><u>Exploring Eight Premium Tablets Revolutionizing Photography Editing for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-3-things-you-must-know-about-fake-snapchat-location-on-realme-11x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Things You Must Know about Fake Snapchat Location On Realme 11X 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-enhancing-productivity-with-azure-voice-recognition/"><u>In 2024, Enhancing Productivity with Azure Voice Recognition</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-oneplus-12r-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On OnePlus 12R? Fixed | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-rhythm-on-rings-creating-tamil-ringtone-playlists/"><u>In 2024, Rhythm on Rings  Creating Tamil Ringtone Playlists</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-transform-imaging-expertise-in-adobes-high-dynamic-range/"><u>In 2024, Transform Imaging  Expertise in Adobe's High Dynamic Range</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-tweetvidcutter-mp4webm-extractor/"><u>In 2024, TweetVidCutter  MP4/WebM Extractor</u></a></li>
+<li><a href="https://article-tips.techidaily.com/live-large-the-top-5-mac-streaming-applications-for-2024/"><u>Live, Large  The Top 5 Mac Streaming Applications for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/simple-steps-to-set-up-your-email-signature-in-microsoft-outlook-a-guide-for-users-of-versions-2-and-2/"><u>Simple Steps to Set Up Your Email Signature in Microsoft Outlook: A Guide for Users of Versions 2# and 2#</u></a></li>
+<li><a href="https://article-tips.techidaily.com/syncopated-sounds-discovering-crossfades/"><u>Syncopated Sounds  Discovering Crossfades</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-metaverse-gear-showdown-top-8-compared-for-2024/"><u>The Ultimate Metaverse Gear Showdown  Top 8 Compared for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unlock-the-power-of-spotifys-advertising-potential-for-2024/"><u>Unlock the Power of Spotify’s Advertising Potential for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unveiling-sms-secrets-top-whatsapp-tricks-revealed/"><u>Unveiling SMS Secrets  Top WhatsApp Tricks Revealed</u></a></li>
+<li><a href="https://driver-download.techidaily.com/upgrade-to-the-latest-epson-wf-2930-driver-version-for-seamless-printing-on-windows-7-81-and-nt-windows-10/"><u>Upgrade to the Latest Epson WF-2930 Driver Version for Seamless Printing on Windows 7, 8.1 & nT (Windows 10)</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-poco-c55-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Poco C55 | Dr.fone</u></a></li>
+</ul></div>

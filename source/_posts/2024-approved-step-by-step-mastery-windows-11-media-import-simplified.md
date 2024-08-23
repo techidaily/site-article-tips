@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Step-by-Step Mastery  Windows 11 Media Import Simplified\""
-date: 2024-07-10T23:11:33.111Z
-updated: 2024-07-11T23:11:33.111Z
+date: 2024-08-22T16:33:36.872Z
+updated: 2024-08-23T16:33:36.872Z
 tags: 
   - screen-recording
   - ai video
@@ -45,12 +45,18 @@ If you are moving photos and video to Windows 10 from a smartphone, you will fir
 
 Your phone will have settings regarding file transfers when it is connected to a computer. Make sure that media viewing and transferring is selected, which will allow Windows 10 File Explorer on the computer to recognize your device.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Step 3: Import Photos and Videos
 
 Now that your phone is recognized, you should see the camera or phone pop up along with your hard drives and other external drives. You can right click on its icon, select “Import Photos and Videos” and proceed from there.
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-video-photos-to-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
+<!-- affiliate ads end -->
 ### Step 4: Import
 
 Your computer will tell you how many pictures and photos were found. You can either review, organize and group these items, or you can choose to import all the new items in one go.
@@ -67,10 +73,16 @@ Click the Import button on the Photos app and choose the items that you want to 
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 Within the app, it is easy to see your photos and videos as they are organized based on the date they are imported. So you will be able to see exactly what you have added in the most recent imports and with future imports as well.
 
 **You may also like:** [How to Add Titles/Text to Video on Photos App in Windows 10 >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://twopages.pxf.io/c/5597632/2016067/18544" target="_top" id="2016067"><img src="//a.impactradius-go.com/display-ad/18544-2016067" border="0" alt="" width="1020" height="380"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2016067/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Part 3: Troubleshooting the Phone to PC Connection
 
 There are instances where you may have some problems connecting your phone to the computer, even if you have the USB cable connected on both ends.
@@ -89,12 +101,18 @@ Connect the camera to your phone and then follow the above steps to import your 
 
 ![Import Photos and Video in windows 10](https://images.wondershare.com/filmora/article-images/import-photos-video-from-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 If you own a Windows 10 desktop or laptop, it is very easy to connect a smartphone or digital camera to your computer. Then you will be able to use File Explorer or the built in Photos app to access and download your photos and videos. Adding your content to the computer lets you save the files, share them with friends, edit them using programs like Photoshop, or save space on your smartphone/camera.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2067133&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/gcb/banScrn.jpg" border="0">Greeting Card Builder</a>
+<!-- affiliate ads end -->
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -121,3 +139,45 @@ Follow @Shanoon Cox
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlocking-crypto-potential-the-ultimate-list-of-nft-engines/"><u>[New] 2024 Approved  Unlocking Crypto Potential  The Ultimate List of NFT Engines</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-bridging-language-barriers-windows-media-player-subtitle-guide-for-2024/"><u>[New] Bridging Language Barriers  Windows Media Player Subtitle Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-elevating-youtube-performance-consistency-in-cc-usage/"><u>[New] In 2024, Elevating YouTube Performance  Consistency in CC Usage</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-from-beginner-to-master-a-stepwise-guide-for-excellent-posts/"><u>[New] In 2024, From Beginner to Master  A Stepwise Guide for Excellent Posts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-ultimate-road-watch-select-automotive-cams/"><u>[New] In 2024, Ultimate Road Watch  Select Automotive Cams</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-panoramic-portals-cutting-edge-filmscapes/"><u>[New] Panoramic Portals  Cutting-Edge Filmscapes</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/updated-20-timeless-anime-themes-making-a-mark-on-tiktok-for-2024/"><u>[Updated] 20 Timeless Anime Themes Making a Mark on TikTok for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-accelerated-cinematic-tips-diy-filming-mastery/"><u>[Updated] 2024 Approved  Accelerated Cinematic Tips  DIY Filming Mastery</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-price-benchmarking-top-value-in-cloud-services/"><u>[Updated] 2024 Approved  Price Benchmarking  Top Value in Cloud Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-reddits-golden-threads-celebrating-the-highest-rated-posts/"><u>[Updated] 2024 Approved  Reddit's Golden Threads  Celebrating the Highest-Rated Posts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-acid-pro-critique-and-comparable-software/"><u>[Updated] ACID Pro  Critique and Comparable Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-a-comprehensive-guide-to-previewing-facebooks-hidden-activities/"><u>[Updated] In 2024, A Comprehensive Guide to Previewing Facebook's Hidden Activities</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-crafting-a-plan-to-locate-breathtaking-photos-in-minutes-on-pexels/"><u>[Updated] In 2024, Crafting a Plan to Locate Breathtaking Photos in Minutes on Pexels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-essential-samples-the-finest-free-after-effects-templates/"><u>[Updated] In 2024, Essential Samples  The Finest Free After Effects Templates</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-snapshot-sophistication-expert-advice-on-editing-magic/"><u>[Updated] In 2024, Snapshot Sophistication  Expert Advice on Editing Magic</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-tweaking-audio-outputs-sony-ps4-and-ps5-tips/"><u>[Updated] In 2024, Tweaking Audio Outputs  Sony PS4 & PS5 Tips</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unpacking-the-multifaceted-nature-of-wirecast-tools/"><u>[Updated] In 2024, Unpacking the Multifaceted Nature of WireCast Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-one-earbud-woes-restoration-tips-for-2024/"><u>[Updated] One Earbud Woes  Restoration Tips for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-revolutionary-techniques-for-chronological-categorization-of-photographs-for-2024/"><u>[Updated] Revolutionary Techniques for Chronological Categorization of Photographs for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-top-rated-economical-timer-services/"><u>[Updated] Top-Rated Economical Timer Services</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-ideal-audio-gear-compatible-with-cutting-edge-4k-technology/"><u>2024 Approved  Ideal Audio Gear Compatible with Cutting-Edge 4K Technology</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/best-budget-friendly-android-chat-services-for-2024/"><u>Best Budget-Friendly Android Chat Services for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discovering-your-role-with-nvidias-generative-ai/"><u>Discovering Your Role with NVIDIA's Generative AI</u></a></li>
+<li><a href="https://driver-install.techidaily.com/get-tp-links-wireless-adapter-software-for-windows-gratis/"><u>Get TP-Link's Wireless Adapter Software for Windows Gratis</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-infinix-smart-7-hd-frp-in-3-different-ways-by-drfone-android/"><u>How To Bypass Infinix Smart 7 HD FRP In 3 Different Ways</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-laughter-lines-timely-meme-trends-to-share/"><u>In 2024, Laughter Lines  Timely Meme Trends to Share</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-lens-legends-top-six-selecting-high-quality-4k-dslrs/"><u>In 2024, Lens Legends' Top Six  Selecting High-Quality 4K DSLRs</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/in-2024-masterclass-in-visual-storytelling-for-youtube-live-videos/"><u>In 2024, Masterclass in Visual Storytelling for YouTube Live Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/in-2024-mastering-video-cuts-for-instagram-feed/"><u>In 2024, Mastering Video Cuts for Instagram Feed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/inside-the-action-camera-revolution-a-yi-4k-journey-for-2024/"><u>Inside the Action Camera Revolution  A Yi 4K Journey for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/lock-your-nokia-c210-phone-in-style-the-top-5-gesture-lock-screen-apps-by-drfone-android/"><u>Lock Your Nokia C210 Phone in Style The Top 5 Gesture Lock Screen Apps</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/metaverse-comedy-crafting-top-tips-for-diy-memetic-mastery/"><u>Metaverse Comedy Crafting  Top Tips for DIY Memetic Mastery</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/multitasking-mac-tech-screensound-recorder-for-2024/"><u>Multitasking Mac Tech  Screen/Sound Recorder for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/pazera-free-extractor-analysis-the-ultimate-guide-to-2024-sound-freedom/"><u>Pazera Free Extractor Analysis  The Ultimate Guide to 2024 Sound Freedom</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/share-and-keep-record-of-all-your-interactions-using-these-powerful-chatgpt-extensions/"><u>Share and Keep Record of All Your Interactions Using These Powerful ChatGPT Extensions!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-art-of-going-unseen-during-instagram-live-events-for-2024/"><u>The Art of Going Unseen During Instagram Live Events for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-made-easy-the-best-10-apps-for-unlocking-your-samsung-galaxy-s23-device-by-drfone-android/"><u>Unlocking Made Easy The Best 10 Apps for Unlocking Your Samsung Galaxy S23 Device</u></a></li>
+<li><a href="https://ai-video-editing.techidaily.com/updated-so-in-this-short-tutorial-well-learn-how-to-create-a-vintage-1980-style-video-with-a-retro-effect-that-will-leave-your-audience-yearning-for-more/"><u>Updated So, in This Short Tutorial, Well Learn How to Create a Vintage 1980-Style Video with a Retro Effect that Will Leave Your Audience Yearning for More</u></a></li>
+</ul></div>

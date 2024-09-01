@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Hearing Beginnings  Mastering Volume Control in Adobe Audition\""
-date: 2024-07-10T22:46:08.397Z
-updated: 2024-07-11T22:46:08.397Z
+date: 2024-08-31T15:22:43.480Z
+updated: 2024-09-01T15:22:43.480Z
 tags: 
   - screen-recording
   - ai video
@@ -65,6 +65,9 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Steps to use Filmora
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -72,6 +75,9 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4631056&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/997e65474a248252883b485717f7d098/products/buy-windows.png" border="0">Allavsoft Batch Download Online Videos, Music Offline to MP4, MP3, MOV, etc format </a>
+<!-- affiliate ads end -->
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
@@ -90,6 +96,9 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
 ## Conclusion
 
 Adobe Audition has always been a powerful platform for audio editing. But as every coin has its two faces so is the case with this also. Due to the expensive price of a monthly subscription, not everyone will be able to use this and get the benefits from using this. Though if you want to excel in audio editing, you should go for a subscription. If you are doing podcasting or video editing and looking for a complementary product for your projects, Audition is a perfect match. This is particularly if you have already worked with other best-leading Adobe software like Photoshop or Premiere.
@@ -100,6 +109,9 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/1853659/21526" target="_top" id="1853659"><img src="//a.impactradius-go.com/display-ad/21526-1853659" border="0" alt="" width="1920" height="750"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1853659/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### **Steps to use Filmora
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -111,6 +123,10 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
+<!-- affiliate ads begin -->
+<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
+LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<!-- affiliate ads end -->
 ## Part 3\. Related FAQs
 
 ### 1\. How do you fade in multitrack in Audition?
@@ -121,10 +137,16 @@ If you want to fade in and fade out two clips at the same time, then controlling
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4081991&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
+<!-- affiliate ads end -->
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048972/16384" target="_top" id="2048972"><img src="//a.impactradius-go.com/display-ad/16384-2048972" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048972/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ## Conclusion
 
 Adobe Audition has always been a powerful platform for audio editing. But as every coin has its two faces so is the case with this also. Due to the expensive price of a monthly subscription, not everyone will be able to use this and get the benefits from using this. Though if you want to excel in audio editing, you should go for a subscription. If you are doing podcasting or video editing and looking for a complementary product for your projects, Audition is a perfect match. This is particularly if you have already worked with other best-leading Adobe software like Photoshop or Premiere.
@@ -158,3 +180,58 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-gradual-transition-tactics-for-premiere-professionals/"><u>[New] 2024 Approved  Gradual Transition Tactics for Premiere Professionals</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-leading-vr-gear-for-drone-operators/"><u>[New] 2024 Approved  Leading VR Gear for Drone Operators</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-quick-fix-guide-reviving-dead-or-slow-moving-airdrop-links/"><u>[New] 2024 Approved  Quick Fix Guide  Reviving Dead or Slow-Moving Airdrop Links</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-crafting-chuckles-in-cyberspace-diy-memes-of-the-metaverse/"><u>[New] Crafting Chuckles in Cyberspace  DIY Memes of the Metaverse</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-fierce-fortifications-top-laptops-crafting-4k-videos/"><u>[New] Fierce Fortifications  Top Laptops Crafting 4K Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-gentle-fading-audio-paths-in-live-for-2024/"><u>[New] Gentle Fading Audio Paths in Live for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-immersive-metaverse-reflections-inspirational-messages-for-2024/"><u>[New] Immersive Metaverse Reflections  Inspirational Messages for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-discover-the-most-exciting-no-cost-comic-designs/"><u>[New] In 2024, Discover the Most Exciting, No-Cost Comic Designs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-how-to-remove-signature-background-in-seconds/"><u>[New] In 2024, How to Remove Signature Background in Seconds</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-precision-in-volume-decrease-lumafusions-methodology/"><u>[New] Precision in Volume Decrease  Lumafusion's Methodology</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-refine-your-remote-sessions-zoom-in-effectively/"><u>[New] Refine Your Remote Sessions  Zoom in Effectively</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-step-by-step-approach-to-uncovering-favorite-youtube-remarks/"><u>[New] Step-by-Step Approach to Uncovering Favorite YouTube Remarks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-visionaries-crafting-next-gen-vr-worlds/"><u>[New] Visionaries Crafting Next-Gen VR Worlds</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-youtube-tunes-integration-with-visual-content/"><u>[New] YouTube Tunes Integration with Visual Content</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-accelerate-your-adrenaline-the-ultimate-5-racing-game-list/"><u>[Updated] 2024 Approved  Accelerate Your Adrenaline  The Ultimate 5 Racing Game List</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-equipment-guide-for-dynamic-documentary-making/"><u>[Updated] 2024 Approved  Equipment Guide for Dynamic Documentary Making</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-best-practices-for-a-robust-spotify-ad-campaign-for-2024/"><u>[Updated] Best Practices for a Robust Spotify Ad Campaign for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-digital-dividends-the-creators-guide-to-monetization-for-2024/"><u>[Updated] Digital Dividends  The Creator's Guide to Monetization for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-empowering-audiences-the-playlist-sharing-approach-for-2024/"><u>[Updated] Empowering Audiences  The Playlist Sharing Approach for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-evaluating-the-effectiveness-of-shake-reduction-in-adobe-photos-for-2024/"><u>[Updated] Evaluating the Effectiveness of 'Shake' Reduction in Adobe Photos for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-experts-selection-cutting-edge-camera-stabilization-tech/"><u>[Updated] Expert's Selection  Cutting Edge Camera Stabilization Tech</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-full-range-kinetics-review/"><u>[Updated] Full Range Kinetics Review</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-high-quality-speech-to-text-solutions/"><u>[Updated] High-Quality Speech-to-Text Solutions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-ideal-image-integration-apps-for-the-year-ahead-for-2024/"><u>[Updated] Ideal Image Integration Apps for the Year Ahead for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-calculated-viewing-time-for-a-standard-20mb-film/"><u>[Updated] In 2024, Calculated Viewing Time for a Standard 20Mb Film</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-your-gateway-to-innovation-windows-10s-latest-apps-and-games/"><u>[Updated] In 2024, Your Gateway to Innovation  Windows 10’S Latest Apps & Games</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-mastering-screen-sharing-on-skype-for-remote-collaboration-for-2024/"><u>[Updated] Mastering Screen Sharing on Skype for Remote Collaboration for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-obsessed-with-broadcasting-choose-between-xsplit-and-obs-for-2024/"><u>[Updated] Obsessed with Broadcasting? Choose Between XSplit & OBS for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-prior-upgrades-key-points-revisited/"><u>[Updated] Prior Upgrades? Key Points Revisited</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-top-ten-recommendations-for-dynamic-instagram-grid-crafting/"><u>2024 Approved  Top Ten Recommendations for Dynamic Instagram Grid Crafting</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-call-logs-on-asus-rog-phone-7-ultimate-by-fonelab-android-recover-call-logs/"><u>Complete guide for recovering call logs on Asus ROG Phone 7 Ultimate</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-and-update-amd-smbus-drivers-simple-steps-for-a-swift-upgrade/"><u>Download and Update AMD SMBus Drivers: Simple Steps for a Swift Upgrade</u></a></li>
+<li><a href="https://android-frp.techidaily.com/easy-guide-to-motorola-moto-g-stylus-5g-2023-frp-bypass-with-best-methods-by-drfone-android/"><u>Easy Guide to Motorola Moto G Stylus 5G (2023) FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/harnessing-the-full-spectrum-of-creativity-with-luts-in-video-editing-for-2024/"><u>Harnessing the Full Spectrum of Creativity with LUTs in Video Editing for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/highlight-effects-assessment-essential-or-excessive/"><u>Highlight Effects Assessment  Essential or Excessive?</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-downgrade-iphone-11-pro-max-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade iPhone 11 Pro Max without Losing Data? | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-building-an-online-empire-through-effective-marketing/"><u>In 2024, Building an Online Empire Through Effective Marketing</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-apple-iphone-se-drfone-by-drfone-virtual-ios/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Apple iPhone SE | Dr.fone</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-list-of-affordable-licensed-game-music-websites/"><u>In 2024, List of Affordable, Licensed Game Music Websites</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-paint-peculiar-pictures-with-giphy/"><u>In 2024, Paint Peculiar Pictures with Giphy</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-proiphone-techniques-capturing-perfect-close-up-and-macro-shots/"><u>In 2024, Proiphone Techniques  Capturing Perfect Close-Up and Macro Shots</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-twist-and-tell-the-art-of-angling-your-videos-for-instagram-audiences/"><u>In 2024, Twist & Tell  The Art of Angling Your Videos for Instagram Audiences</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-virtual-jogging-meets-reality-treadmill-evaluations/"><u>In 2024, Virtual Jogging Meets Reality  Treadmill Evaluations</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/key-steps-to-take-before-buying-wireless-devices/"><u>Key Steps to Take Before Buying Wireless Devices</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/leading-examples-for-chatgpt-qanda-on-github-repositories/"><u>Leading Examples for ChatGPT Q&A on GitHub Repositories</u></a></li>
+<li><a href="https://win11.techidaily.com/navigating-windows-terminal-mastering-focus-mode-transitions/"><u>Navigating Windows Terminal: Mastering Focus Mode Transitions</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/quick-solutions-for-turtle-beach-elite-atlas-mic-failure-problems/"><u>Quick Solutions for Turtle Beach Elite Atlas Mic Failure Problems</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/shifting-spectrum-skills-pro-tips-unveiled-for-2024/"><u>Shifting Spectrum Skills - Pro Tips Unveiled for 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/step-by-step-guide-how-to-terminate-hanging-applications-on-windows-11-systems/"><u>Step-by-Step Guide: How to Terminate Hanging Applications on Windows 11 Systems</u></a></li>
+<li><a href="https://win11.techidaily.com/steps-to-eliminate-freezing-issues-in-microsoft-teams-win11win10/"><u>Steps to Eliminate Freezing Issues in Microsoft Teams Win11/Win10</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/troubleshooting-steps-for-solving-bloodhunts-crashes-and-lags-on-your-windows-computer/"><u>Troubleshooting Steps for Solving Bloodhunt's Crashes & Lags on Your Windows Computer</u></a></li>
+</ul></div>

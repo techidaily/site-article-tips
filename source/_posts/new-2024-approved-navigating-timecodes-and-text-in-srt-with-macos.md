@@ -1,0 +1,594 @@
+---
+title: "\"[New] 2024 Approved  Navigating Timecodes and Text in SRT with macOS\""
+date: 2024-08-31T15:32:49.803Z
+updated: 2024-09-01T15:32:49.803Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "\"This Article Describes [New] 2024 Approved: Navigating Timecodes and Text in SRT with macOS\""
+excerpt: "\"This Article Describes [New] 2024 Approved: Navigating Timecodes and Text in SRT with macOS\""
+keywords: "SRT Timecode Basics,MacOS SRT Editor,Editing SRT Files,Text Alignment in SRT,Navigate SRT Subtitles,MacSrtSyncTool,Subtitle Timing in OSX"
+thumbnail: https://thmb.techidaily.com/2e9cfa327b9759eb425968540a827a94cde4fe4ea34aa4ab5faa41249fabd55a.jpg
+---
+
+## Navigating Timecodes and Text in SRT with macOS
+
+There will be a need to edit subtitles like the SRT file when you make movies and live videos. Or, it may happen sometimes that SRT subtitles are grammatically wrong or aligned incorrectly with the video playback. Then, an effective subtitle editor could be helpful.
+
+In this article, we will walk you through some best tools to show you how to adjust the .srt file style, speed, and placement. Read ahead to know what they are.
+
+1. [Method 1: Open SRT files on Mac using TextEdit](#part2-1)
+2. [Method 2: Open SRT files with VLC Media on Mac](#part2-2)
+3. [Method 3: Use a Browser-based Online Tool like HappyScribe on Mac](#part2-3)
+4. [Method 4: Open SRT files on Built-in App Mac QuickTime Player](#part2-4)
+
+* [The Best Way to Edit .SRT Files for Videos on Mac](#part3)
+
+## Part 1: Does the SRT file work on a Mac?
+
+The SRT file is typically a plain text-based file with time markers, sequence numbers, and captions. Most third-party media players do showcase the SRT-based format easily. So, you can also use Preview apps or any other software to access and read the basic text documents on Mac.
+
+However, the QuickTime player on Mac does not always support SRT in videos. You have to convert them to a format the QuickTime Player supports or utilize a third-party **SRT editor Mac** allows.
+
+## Part 2: What Programs can open SRT Files on Mac, and How to do it?
+
+Indeed, you have to install specific types of software on your Mac device if you want to **SRT edit Mac-**based videos. Specific programs support the SRT file in media files on Mac devices. You must use these tools separately to open and edit the SRT file.
+
+### Method 1: Open SRT files on Mac using TextEdit
+
+It is possible to use NotePad for viewing the **SRT Mac-based** files if they are planning to open the basic text-based SRT files. However, the alternative for Mac is called TextEdit, and it works similarly as the NotePad word-processing program.
+
+**Features:**
+
+* Simple user interface.
+* Easy to create new SRT files.
+* No major length-based limitations.
+* Lightweight solution.
+
+ Pros
+
+* Easily accessible on the device.
+* Pre-built utility.
+* No additional installation is necessary.
+
+ Cons
+
+* Mainly for text-based SRT editing/creation.
+
+**How to use TextEdit to open SRT files on Mac?**
+
+Step1 Go to the Mac homepage and access the TextEdit app.
+
+Step2 Open a new file and type 1 in the editor timeline to indicate the caption sequence you are starting with. Hit Enter.
+
+![type in the editor timeline](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BBusiness%2B970x90%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/business-970x90.gif" border="0"></a>
+<!-- affiliate ads end -->
+Step3 Add the starting and ending time codes with the following command. Press Enter again.
+
+\[hours:minutes:seconds,milliseconds ––> hours:minutes:seconds,milliseconds\]
+
+Step4 Insert the caption text and hit the Enter key twice. This will create a blank line for the second caption sequence- try to include two lines for each caption to reduce the amount of space it takes on the screen.
+
+Continue the same steps for the next few caption sequences.
+
+Step5 Click the Format tab > Make Plain Text. Alternatively, press the Shift + Command + T keys on the keyboard.
+
+![click the format tab](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-2.jpg)
+
+Step6 Open File > Save. Add the file name under "Save As" and insert '.srt' at the name's end in place of '.txt'.
+
+### Method 2: Open SRT files with VLC Media on Mac
+
+VLC Media is one of the most popular media players for different operating systems, including macOS devices. You can use it to play your videos in different formats. Users can play the video projects with SRT formatted files after merging them.
+
+**Features:**
+
+* Open and edit the files you are viewing.
+* Add SRT to video files in different formats.
+* Record the playing video on the screen for further editing.
+* Merge video clips with the text to play them.
+
+ Pros
+
+* Easy to use for playing media files.
+* Multi-OS support.
+* Free to use.
+
+ Cons
+
+* It would help if you had.ar.SRT/.ar.ass files to add text to MP4 videos.
+* Unstable security and performance on modern devices.
+
+**How to use VLC Media to embed/open SRT files on Mac?**
+
+Step1 On your Mac device, download the VLC player from its official website, install the software, and launch it.
+
+Step2 Download a compatible SRT file, if not available.
+
+Keep both the video you are adding the SRT into and the downloaded SRT file in one folder on your Mac device.
+
+![keep both video and srt file in one folder](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-3.jpg)
+
+Step3 Open your video file on the VLC player by double-clicking on the movie and choosing the “Open with VLC media player” option. Or, drag and drop it into the media player. Another way is to tap on the File tab in the software and press the “Open File” option.
+
+![tap on the file tab](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-4.jpg)
+
+Step4 The video will begin playing. Go to the menu bar and click on the Subtitles tab > choose the “Add Subtitle File…” button.
+
+![choose the add subtitle file button](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
+<!-- affiliate ads end -->
+Step5 Choose the SRT file from your device and then load it.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
+<!-- affiliate ads end -->
+### Method 3: Use a Browser-based Online Tool like HappyScribe on Mac
+
+For opening **SRT for Mac,** you can download the third-party software of [HappyScribe](https://www.happyscribe.com/). This software has automatic transcription features, with multilingual support, i.e., edit SRT files in different languages besides English, like Dutch and Hebrew.
+
+Here, you can add a file of any length or size for quick edits and see the plain text visually in Soundwave mode.
+
+**Features:**
+
+* Edit the SRT files as the starting timecode.
+* Check the text in soundwave and visual timeline formats in real time.
+* It supports various formats during export, including SRT.
+* Share SRT files in edit or view-only mode.
+
+ Pros
+
+* Supports multiple languages.
+* Many settings to edit the preset text in files.
+* Use the CPL/line/CPS management to customize the text appearance in videos.
+
+ Cons
+
+* All the editing functions, like Automatic Subtitles, require payment.
+* Streaming service-standard videos with SRT, like for Netflix, are under cost-per-minute plans.
+
+**How to use HappyScribe to open SRT files on Mac?**
+
+Step1 Open HappyScribe through your preferred browser. Press the Upload a File option to choose the MP4 file for burning the SRT file.
+
+![press the upload a file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-6.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="720" height="300" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.jpeg" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:720px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Step2 Tap the "Autogenerate subtitles" option, or you can browse for suitable SRT files.
+
+![browse for suitable subtitles](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Step3 Make changes to the text color, caption, position, and font, as needed.
+
+Step4 Press the “Add Subtitle” button. It will insert into the MP4 within some minutes. The file will then automatically download into your Mac device.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<!-- affiliate ads end -->
+### Method 4: Open SRT files on Built-in App Mac QuickTime Player
+
+The QuickTime player is the primary video playback software built into Mac devices. However, this only supports the native QT format for text in videos during playback and does not accept SRT formatted files.
+
+If you want to know **how to open an SRT file on Mac** via QuickTime Player, the best route is converting the SRT file into QT formatted text. The Caption Converter, for example, is a capable solution for this process, with zero downloading-related issues**.**
+
+**How can Caption Converter alter SRT to QT file for QuickTime Player?**
+
+Step1 Open your chosen browser, and search the Caption Converter-Rev tool. Access the site.
+
+Step2 Click on the “Select Caption Files” option and press the “SELECT .SRT FILES” choice in red button form. Add the SRT file(s) you want to edit.
+
+![press the select srt files option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-8.jpg)
+
+Step3 Choose the output format for the file. Choose QT available in the fourth spot.
+
+![choose the output format](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-9.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<!-- affiliate ads end -->
+Step4 After rechecking that you chose the right format, add your email address; you will receive the translated QT formatted file there. Press the Convert button to activate the conversion process.
+
+![press the convert button](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-10.jpg)
+
+Step5 On your Mac device, launch the QuickTime Pro software (upgrade the software to Pro beforehand if it is not already available).
+
+Step6 Access the video file and press View > Subtitles. Press the submenu and choose Open.
+
+Step7 Click on the Windows tab > Properties and make adjustments to the file.
+
+![make adjustments to the file](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-11.jpg)
+
+## Part 3: The Best Way to Edit .SRT Files for Videos on Mac
+
+While all of the solutions given in Part 2 allow you to access SRT files on Mac, the editing benefits are limited. Instead, you can opt for an efficient video editing software like Filmora if you are wondering **how to create SRT file on Mac** and then edit it. The software supports SRT files for viewing, formatting, editing, and more.
+
+**What is Filmora?**
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a major video editing software for Mac and even Windows users to try out. Users can add their video files in any format, including MOV files with MJPEG or MPEG4 codec encoding for QuickTime Player.
+
+The software comes with various standard-level and advanced editing functions, including speech-to-text for voiceover-based transcriptions into the video. Moreover, you can use the preset effects, including Boris FX/NewBlue FX (on certain Mac devices only), to further optimize video quality. Not only the video, but you can also edit the audio playback, voiceovers, and edit SRT files here.
+
+**How to use Filmora to Edit the SRT-formatted Files on Mac?**
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+Step1 Launch Filmora on Mac and click on New Project. Add the video file and drag it to the timeline for editing.
+
+![launch filmora on mac](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-12.jpg)
+
+Step2 Click on the Media tab and import the SRT file.
+
+Step3 Right-click your cursor on the editor timeline > Choose the Advanced Edit option.
+
+![choose the advanced edit option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
+<!-- affiliate ads end -->
+Alternatively, double-click on top of the chosen SRT file and clip it.
+
+Step4 Make customizations, like changing the text, editing the timecode, adjusting the font style, and merging/adding/deleting the text strips. Press OK after you are done.
+
+![press ok after you are done](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=3922934&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4b0a0290ad7df100b77e86839989a75e/products/ripperpro.png" border="0">WonderFox DVD Ripper Pro</a>
+<!-- affiliate ads end -->
+Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
+
+![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.dbschema.com/order/checkout.php?PRODS=19867419&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/176b22bab4e94a28619ca2433b2ef241/products/1_icon256.png" border="0">
+DbSchema database designer for all databases, schema design in the team, schema deployment, interactive diagrams, documentation, data and query tools. </a>
+<!-- affiliate ads end -->
+## Final Words
+
+You can easily try out these methods to effectively open the SRT files in videos on Mac devices, either by converting them for QuickTime Player or using another player. The Filmora software is suitable for the best results if you plan to open and edit the SRT files with further precision. Carry out all of the steps carefully for a good user experience.
+
+URL for Filmora on Mac steps/pics: <https://filmora.wondershare.com/guide-mac/stt-tts-srt.html>
+
+URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/how-to-add-subtitles-in-vlc.html>
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+Part 1: Does the SRT file work on a Mac?
+
+The SRT file is typically a plain text-based file with time markers, sequence numbers, and captions. Most third-party media players do showcase the SRT-based format easily. So, you can also use Preview apps or any other software to access and read the basic text documents on Mac.
+
+However, the QuickTime player on Mac does not always support SRT in videos. You have to convert them to a format the QuickTime Player supports or utilize a third-party **SRT editor Mac** allows.
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599951&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+Epubor Ultimate for Win：Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
+<!-- affiliate ads end -->
+## Part 2: What Programs can open SRT Files on Mac, and How to do it?
+
+Indeed, you have to install specific types of software on your Mac device if you want to **SRT edit Mac-**based videos. Specific programs support the SRT file in media files on Mac devices. You must use these tools separately to open and edit the SRT file.
+
+### Method 1: Open SRT files on Mac using TextEdit
+
+It is possible to use NotePad for viewing the **SRT Mac-based** files if they are planning to open the basic text-based SRT files. However, the alternative for Mac is called TextEdit, and it works similarly as the NotePad word-processing program.
+
+**Features:**
+
+* Simple user interface.
+* Easy to create new SRT files.
+* No major length-based limitations.
+* Lightweight solution.
+
+ Pros
+
+* Easily accessible on the device.
+* Pre-built utility.
+* No additional installation is necessary.
+
+ Cons
+
+* Mainly for text-based SRT editing/creation.
+
+**How to use TextEdit to open SRT files on Mac?**
+
+Step1 Go to the Mac homepage and access the TextEdit app.
+
+Step2 Open a new file and type 1 in the editor timeline to indicate the caption sequence you are starting with. Hit Enter.
+
+![type in the editor timeline](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://getlyla.pxf.io/c/5597632/1455723/15391" target="_top" id="1455723"><img src="//a.impactradius-go.com/display-ad/15391-1455723" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1455723/15391" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Step3 Add the starting and ending time codes with the following command. Press Enter again.
+
+\[hours:minutes:seconds,milliseconds ––> hours:minutes:seconds,milliseconds\]
+
+Step4 Insert the caption text and hit the Enter key twice. This will create a blank line for the second caption sequence- try to include two lines for each caption to reduce the amount of space it takes on the screen.
+
+Continue the same steps for the next few caption sequences.
+
+Step5 Click the Format tab > Make Plain Text. Alternatively, press the Shift + Command + T keys on the keyboard.
+
+![click the format tab](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-2.jpg)
+
+Step6 Open File > Save. Add the file name under "Save As" and insert '.srt' at the name's end in place of '.txt'.
+
+### Method 2: Open SRT files with VLC Media on Mac
+
+VLC Media is one of the most popular media players for different operating systems, including macOS devices. You can use it to play your videos in different formats. Users can play the video projects with SRT formatted files after merging them.
+
+**Features:**
+
+* Open and edit the files you are viewing.
+* Add SRT to video files in different formats.
+* Record the playing video on the screen for further editing.
+* Merge video clips with the text to play them.
+
+ Pros
+
+* Easy to use for playing media files.
+* Multi-OS support.
+* Free to use.
+
+ Cons
+
+* It would help if you had.ar.SRT/.ar.ass files to add text to MP4 videos.
+* Unstable security and performance on modern devices.
+
+**How to use VLC Media to embed/open SRT files on Mac?**
+
+Step1 On your Mac device, download the VLC player from its official website, install the software, and launch it.
+
+Step2 Download a compatible SRT file, if not available.
+
+Keep both the video you are adding the SRT into and the downloaded SRT file in one folder on your Mac device.
+
+![keep both video and srt file in one folder](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-3.jpg)
+
+Step3 Open your video file on the VLC player by double-clicking on the movie and choosing the “Open with VLC media player” option. Or, drag and drop it into the media player. Another way is to tap on the File tab in the software and press the “Open File” option.
+
+![tap on the file tab](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-4.jpg)
+
+Step4 The video will begin playing. Go to the menu bar and click on the Subtitles tab > choose the “Add Subtitle File…” button.
+
+![choose the add subtitle file button](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://caperobbin.sjv.io/c/5597632/2006123/18460" target="_top" id="2006123"><img src="//a.impactradius-go.com/display-ad/18460-2006123" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006123/18460" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Step5 Choose the SRT file from your device and then load it.
+
+<!-- affiliate ads begin -->
+<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<!-- affiliate ads end -->
+### Method 3: Use a Browser-based Online Tool like HappyScribe on Mac
+
+For opening **SRT for Mac,** you can download the third-party software of [HappyScribe](https://www.happyscribe.com/). This software has automatic transcription features, with multilingual support, i.e., edit SRT files in different languages besides English, like Dutch and Hebrew.
+
+Here, you can add a file of any length or size for quick edits and see the plain text visually in Soundwave mode.
+
+**Features:**
+
+* Edit the SRT files as the starting timecode.
+* Check the text in soundwave and visual timeline formats in real time.
+* It supports various formats during export, including SRT.
+* Share SRT files in edit or view-only mode.
+
+ Pros
+
+* Supports multiple languages.
+* Many settings to edit the preset text in files.
+* Use the CPL/line/CPS management to customize the text appearance in videos.
+
+ Cons
+
+* All the editing functions, like Automatic Subtitles, require payment.
+* Streaming service-standard videos with SRT, like for Netflix, are under cost-per-minute plans.
+
+**How to use HappyScribe to open SRT files on Mac?**
+
+Step1 Open HappyScribe through your preferred browser. Press the Upload a File option to choose the MP4 file for burning the SRT file.
+
+![press the upload a file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+Step2 Tap the "Autogenerate subtitles" option, or you can browse for suitable SRT files.
+
+![browse for suitable subtitles](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-7.jpg)
+
+Step3 Make changes to the text color, caption, position, and font, as needed.
+
+Step4 Press the “Add Subtitle” button. It will insert into the MP4 within some minutes. The file will then automatically download into your Mac device.
+
+<!-- affiliate ads begin -->
+<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653853&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bcb41ccdc4363c6848a1d760f26c28a0/products/14_videoproc-converter-ai-box.png" border="0"></a>
+<!-- affiliate ads end -->
+### Method 4: Open SRT files on Built-in App Mac QuickTime Player
+
+The QuickTime player is the primary video playback software built into Mac devices. However, this only supports the native QT format for text in videos during playback and does not accept SRT formatted files.
+
+If you want to know **how to open an SRT file on Mac** via QuickTime Player, the best route is converting the SRT file into QT formatted text. The Caption Converter, for example, is a capable solution for this process, with zero downloading-related issues**.**
+
+**How can Caption Converter alter SRT to QT file for QuickTime Player?**
+
+Step1 Open your chosen browser, and search the Caption Converter-Rev tool. Access the site.
+
+Step2 Click on the “Select Caption Files” option and press the “SELECT .SRT FILES” choice in red button form. Add the SRT file(s) you want to edit.
+
+![press the select srt files option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-8.jpg)
+
+Step3 Choose the output format for the file. Choose QT available in the fourth spot.
+
+![choose the output format](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-9.jpg)
+
+Step4 After rechecking that you chose the right format, add your email address; you will receive the translated QT formatted file there. Press the Convert button to activate the conversion process.
+
+![press the convert button](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-10.jpg)
+
+Step5 On your Mac device, launch the QuickTime Pro software (upgrade the software to Pro beforehand if it is not already available).
+
+Step6 Access the video file and press View > Subtitles. Press the submenu and choose Open.
+
+Step7 Click on the Windows tab > Properties and make adjustments to the file.
+
+![make adjustments to the file](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://parisrhonecom.sjv.io/c/5597632/1896607/21553" target="_top" id="1896607"><img src="//a.impactradius-go.com/display-ad/21553-1896607" border="0" alt="" width="750" height="422"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1896607/21553" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2090698/16836" target="_top" id="2090698"><img src="//a.impactradius-go.com/display-ad/16836-2090698" border="0" alt="" width="720" height="300"/></a>
+<!-- affiliate ads end -->
+## Part 3: The Best Way to Edit .SRT Files for Videos on Mac
+
+While all of the solutions given in Part 2 allow you to access SRT files on Mac, the editing benefits are limited. Instead, you can opt for an efficient video editing software like Filmora if you are wondering **how to create SRT file on Mac** and then edit it. The software supports SRT files for viewing, formatting, editing, and more.
+
+**What is Filmora?**
+
+[Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is a major video editing software for Mac and even Windows users to try out. Users can add their video files in any format, including MOV files with MJPEG or MPEG4 codec encoding for QuickTime Player.
+
+The software comes with various standard-level and advanced editing functions, including speech-to-text for voiceover-based transcriptions into the video. Moreover, you can use the preset effects, including Boris FX/NewBlue FX (on certain Mac devices only), to further optimize video quality. Not only the video, but you can also edit the audio playback, voiceovers, and edit SRT files here.
+
+**How to use Filmora to Edit the SRT-formatted Files on Mac?**
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+Step1 Launch Filmora on Mac and click on New Project. Add the video file and drag it to the timeline for editing.
+
+![launch filmora on mac](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-12.jpg)
+
+Step2 Click on the Media tab and import the SRT file.
+
+Step3 Right-click your cursor on the editor timeline > Choose the Advanced Edit option.
+
+![choose the advanced edit option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-13.jpg)
+
+Alternatively, double-click on top of the chosen SRT file and clip it.
+
+Step4 Make customizations, like changing the text, editing the timecode, adjusting the font style, and merging/adding/deleting the text strips. Press OK after you are done.
+
+![press ok after you are done](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-14.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
+<!-- affiliate ads end -->
+Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
+
+![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<!-- affiliate ads end -->
+## Final Words
+
+You can easily try out these methods to effectively open the SRT files in videos on Mac devices, either by converting them for QuickTime Player or using another player. The Filmora software is suitable for the best results if you plan to open and edit the SRT files with further precision. Carry out all of the steps carefully for a good user experience.
+
+URL for Filmora on Mac steps/pics: <https://filmora.wondershare.com/guide-mac/stt-tts-srt.html>
+
+URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/how-to-add-subtitles-in-vlc.html>
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
+
+[Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-achieving-effortless-seams-in-inshot-videos/"><u>[New] 2024 Approved  Achieving Effortless Seams in Inshot Videos</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-2024-approved-premium-hardware-hunt-cards-for-4k-editors/"><u>[New] 2024 Approved  Premium Hardware Hunt  Cards for 4K Editors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-expertise-in-spotify-advertising-a-playbook-guide-for-2024/"><u>[New] Expertise in Spotify Advertising  A Playbook Guide for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-illustrators-secret-creating-seamless-image-movement-for-2024/"><u>[New] Illustrator's Secret  Creating Seamless Image Movement for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-ultimate-guide-to-using-adobe-and-finding-substitutes/"><u>[New] In 2024, The Ultimate Guide to Using Adobe and Finding Substitutes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-initiating-voice-transformations-with-minimal-effort-in-pubg/"><u>[New] Initiating Voice Transformations with Minimal Effort in PUBG</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-mastering-podcast-beginnings-eye-catching-strategies-for-2024/"><u>[New] Mastering Podcast Beginnings  Eye-Catching Strategies for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-precision-in-film-craft-advanced-kinemaster-strategies/"><u>[New] Precision in Film Craft  Advanced Kinemaster Strategies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unlimited-potential-with-best-in-class-pp-templates-for-2024/"><u>[New] Unlimited Potential with Best-in-Class PP Templates for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unlocking-creative-photos-using-pexels-effectively-for-2024/"><u>[New] Unlocking Creative Photos  Using Pexels Effectively for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-how-to-look-at-comments-on-youtube/"><u>[Updated] 2024 Approved  How to Look at Comments on YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-iphone-x876-owners-must-have-gif-apps-guide/"><u>[Updated] 2024 Approved  IPhone X/8/7/6 Owners' Must-Have GIF Apps Guide</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-cutting-edge-approaches-to-mov-file-recordings-on-windows-10/"><u>[Updated] Cutting-Edge Approaches to MOV File Recordings on Windows 10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elevate-your-content-with-advanced-vsco-techniques-for-2024/"><u>[Updated] Elevate Your Content with Advanced VSCO Techniques for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-how-to-post-a-video-from-youtube-on-instagram/"><u>[Updated] How to Post a Video From YouTube on Instagram</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-identifying-ideal-release-moments-for-podcasts/"><u>[Updated] Identifying Ideal Release Moments for Podcasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-become-an-audio-trailblazer-exclusive-vocal-change-techniques-in-free-fire-free/"><u>[Updated] In 2024, Become an Audio Trailblazer – Exclusive Vocal Change Techniques in Free Fire (Free)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-crafting-the-best-video-aspect-ratio-experience/"><u>[Updated] In 2024, Crafting the Best Video Aspect Ratio Experience</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-magical-voice-change-tools-for-efficient-calls/"><u>[Updated] In 2024, Magical Voice Change Tools for Efficient Calls</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-premium-accelerated-photo-browser-for-windows/"><u>[Updated] In 2024, Premium Accelerated Photo Browser for Windows</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-ultimate-guide-to-perfecting-your-yt-visual-footprint/"><u>[Updated] In 2024, The Ultimate Guide to Perfecting Your YT Visual Footprint</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-increase-photographic-imagery-keeping-details-intact-for-2024/"><u>[Updated] Increase Photographic Imagery, Keeping Details Intact for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-orchestrating-the-scene-adding-cropping-and-adjusting-music-in-canva/"><u>[Updated] Orchestrating the Scene  Adding, Cropping & Adjusting Music in Canva</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-basics-what-makes-a-vr-device-special/"><u>[Updated] The Basics  What Makes a VR Device Special?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-educators-roadmap-to-effective-multimedia-use/"><u>[Updated] The Educator's Roadmap to Effective Multimedia Use</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-voiceover-dynamics-for-stellar-ppt-presentations-for-2024/"><u>[Updated] Voiceover Dynamics for Stellar PPT Presentations for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-techniques-for-finding-no-cost-image-frame-films/"><u>2024 Approved  Techniques for Finding No-Cost Image Frame Films</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/blend-tech-geniuses-setting-up-chromecast-compatibility-with-fire-stick/"><u>Blend Tech Geniuses: Setting Up Chromecast Compatibility with Fire Stick</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/ditch-the-search-get-your-filmora-discount-code-here/"><u>Ditch the Search Get Your Filmora Discount Code Here</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-netflix-location-to-get-more-country-version-on-samsung-galaxy-s21-fe-5g-2023-drfone-by-drfone-virtual-android/"><u>How to Change Netflix Location to Get More Country Version On Samsung Galaxy S21 FE 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-show-wi-fi-password-on-motorola-edge-2023-by-drfone-android/"><u>How to Show Wi-Fi Password on Motorola Edge 2023</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-asmr-tactics-your-path-to-nocturnal-serenity/"><u>In 2024, ASMR Tactics  Your Path to Nocturnal Serenity</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-intriguing-openings-scripted-success-stories/"><u>In 2024, Intriguing Openings  Scripted Success Stories</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-tecno-spark-10-5gfrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Tecno Spark 10 5GFRP Lock</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-honor-x50-gt-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, iSpoofer is not working On Honor X50 GT? Fixed | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-pro-level-stabilization-systems-for-streaming-content/"><u>In 2024, Pro-Level Stabilization Systems for Streaming Content</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-smile-station-quick-tips-for-chuckling-creations/"><u>In 2024, Smile Station  Quick Tips for Chuckling Creations</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-sprint-showcase-short-track-22-glory/"><u>In 2024, Sprint Showcase  Short Track '22 Glory</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-ultimate-guide-to-profiting-off-reddit-13-ways-here/"><u>In 2024, The Ultimate Guide to Profiting Off Reddit - 13 Ways Here</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/issue-resolved-keyboard-now-responding-say-goodbye-to-typos/"><u>Issue Resolved: Keyboard Now Responding - Say Goodbye to Typos!</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/mastering-android-device-manager-the-ultimate-guide-to-unlocking-your-nokia-g42-5g-device-by-drfone-android/"><u>Mastering Android Device Manager The Ultimate Guide to Unlocking Your Nokia G42 5G Device</u></a></li>
+<li><a href="https://win-able.techidaily.com/solved-overcoming-ds4-windows-not-working-guide-to-correctly-update-the-device-driver/"><u>Solved! Overcoming 'DS4 Windows Not Working' - Guide to Correctly Update the Device Driver</u></a></li>
+<li><a href="https://article-tips.techidaily.com/syncing-soundscapes-with-visuals-in-film-teasers-for-2024/"><u>Syncing Soundscapes with Visuals in Film Teasers for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-essential-list-of-premium-free-srt-translators/"><u>The Essential List of Premium FREE SRT Translators</u></a></li>
+<li><a href="https://article-posts.techidaily.com/tips-for-harnessing-free-visual-content-creatively/"><u>Tips for Harnessing Free Visual Content Creatively</u></a></li>
+</ul></div>

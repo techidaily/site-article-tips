@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Digital Distortion Made Simple for Creative Minds\""
-date: 2024-08-31T15:45:21.265Z
-updated: 2024-09-01T15:45:21.265Z
+date: 2024-09-04T21:18:13.077Z
+updated: 2024-09-05T21:18:13.077Z
 tags: 
   - screen-recording
   - ai video
@@ -145,5 +145,8 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=2201613&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.macdvdripperpro.com/images/devices-3.png" border="0"></a>
+<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "Evaluating Second Count for a 20MB Visual File"
-date: 2024-08-31T15:44:49.654Z
-updated: 2024-09-01T15:44:49.654Z
+date: 2024-09-04T21:18:13.718Z
+updated: 2024-09-05T21:18:13.718Z
 tags: 
   - screen-recording
   - ai video
@@ -417,5 +417,8 @@ How many minutes of video is 100 megabytes of data used? A YouTube video that la
 </ul></div>
 
 <!-- affiliate ads begin -->
-<a href="https://engwe.pxf.io/c/5597632/2093504/25579" target="_top" id="2093504"><img src="//a.impactradius-go.com/display-ad/25579-2093504" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2093504/25579" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->

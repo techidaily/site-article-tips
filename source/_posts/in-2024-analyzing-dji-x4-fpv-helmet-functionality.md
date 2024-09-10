@@ -1,0 +1,218 @@
+---
+title: "In 2024, Analyzing DJI X4 FPV Helmet Functionality"
+date: 2024-09-09T10:08:46.834Z
+updated: 2024-09-10T10:08:46.834Z
+tags: 
+  - screen-recording
+  - ai video
+  - ai audio
+  - ai auto
+categories: 
+  - ai
+  - screen
+description: "This Article Describes In 2024, Analyzing DJI X4 FPV Helmet Functionality"
+excerpt: "This Article Describes In 2024, Analyzing DJI X4 FPV Helmet Functionality"
+keywords: "DJI X4 Analysis,FPV Helmet Study,DJI Headgear Review,FPV Technology Examination,DJI Flight Experience,VR Drone Safety Check,DJI Ride Insights"
+thumbnail: https://thmb.techidaily.com/a7c3b7288a2ba7cb90e6052babba4915f51445892d0c27222e3c559cd653e7a3.png
+---
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115936/19272" target="_top" id="2115936">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115936" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115936/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Analyzing DJI X4 FPV Helmet Functionality
+
+# Review for DJI FPV Goggles
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+##### Max Wales
+
+ Mar 27, 2024• Proven solutions
+
+ Last year, DJI released [Mavic Pro's](https://tools.techidaily.com/wondershare/filmora/download/) Foldable small unmanned aerial vehicles, which has a mini body capable of being fit into the camera bag with awesome flight power. And it supports 4K real-time video transmission from up to 2 km away. It has almost compacted every sensor in Phantom 4 inside Mavic Pro. It is an excellent choice for small unmanned aerial vehicles (From 24th May, the best choice is DJI Spark). However, the public has not officially seen an accessory that was revealed in the conference. This is DJI Goggles – a first person perspective FPV flying glasses that has resolution comparable to VR glasses. Now, it is finally online on [DJI website](https://www.dji.com/dji-goggles). The price is $499 and is available for purchase on 20th May.
+
+[Check at Amazon](https://www.amazon.com/gp/product/B071Z6DSHB/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B071Z6DSHB&linkId=7289b5ef284ae3b0206e825eeb794baa)
+
+## Design
+
+ DJI Goggles can be split into two parts - headband and display module.
+
+ The display module has two 5" 1080O LED display, DJI cleverly position the display screen on the back and top of the display module.
+
+![DJI Goggle's design](https://images.wondershare.com/filmora/article-images/dji-goggle-gif.gif)
+
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Image resource: [DJI Official Site](https://store.dji.com/guides/dji-goggles-unboxing-and-quick-review/)
+
+ The display module composes of a power button, touchpad, return key, Fn key, IPD adjustment knob and HDMI, several commonly used interface of Micro SD card. All the keys are aligned on the right-hand side of the display, which allows you to operate it with one hand conveniently.
+
+**Wearing experience:**
+
+* The fixation level of the headband is related with the user's head type
+* The feeling of \[top heavy\] is obvious.
+* When using head trackingfeature, the goggles have a risk of falling off.
+
+## Compatible products for DJI Goggles
+
+ Available on Mavic Pro, Phantom 4 Advanced, Professional, Inspire 2, etc.
+
+| |  image viewing      | video viewing | Latency               |       |
+| --------------------- | ------------- | --------------------- | ----- |
+| Mavic Pro             | 720p/60 fps   | 720p/120fps           | 110ms |
+| Phantom 4 ProAdvanced | 720p/60 fps   | 720p/60 fps or 120fps | 150ms |
+| Phantom 4             | 720p/30 fps   | 720p/60 fps           | 167ms |
+| Inspire 2 + X5S       | 720p/60 fps   | 1080p/120fps          | 140ms |
+| Inspire 2 + X4S       | 720p/60 fps   | 1080p/60fps           | 190ms |
+
+ Moreover, DJI Goggles can be connected to a computer, PS4 for watching videos and gaming. But, regarding to experience…the same budget can allow you to purchase 28" 4K display.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Main features and experience
+
+### Head Tracking
+
+###### #1\. What is Head Tracking
+
+ Like remote controller sticks, you can now use head movements to control both aircraft yaw and camera tilt in Head Tracking Flight mode. You can simply control turn left or right to yaw left or right, and straighten your head to stop turning. In Head Tracking Gimbal mode, you will not affect the jaw as only the gimbal will move.
+
+###### #2\. Experience: Fun but not very practical
+
+ In the past, an unmanned drone is always separated by a mobile phone no matter how high the resolution of the graphic is. Now, you can have the image transmission directly displayed in your eyes. Through head tracking, you can achieve a similar effect to that of VR. It is very interesting.
+
+ But, in my opinion, these head tracking remains in a stage where it is only for playing once in a while, it is unlikely to be used in photo shooting mission for the long term. Here are the reasons:
+
+* Frame rate is slightly lower, there are delays
+
+ Mavic's OcuSync image transmission works perfect on iPad, but it indeed caused dizziness on DJI Goggles.
+
+ To reduce the effect of dizziness, the ideal number of frames rate of Goggles is 120fps. PSVR's 90 fps had caused a lot of complaints. But, with DJI Goggles, this number is lowered to the lowest 30fps. With 110s image transmission delay, any head rotation at any point will make anyone feel dizzy.
+
+* Too sensitive
+
+ The mission of 3-axis gimbal is to remove any camera shakes and stabilize the footage. But, the DJI Goggles' head tracking actually bring back these shakes which do not come from the camera itself, but as a result of the commands of head tracking.
+
+### Tapfly
+
+###### #1\. What is Tapfly
+
+ With the integration of touchpad into DJI Goggles or 5D button on the Mavic Pro controller, users can access to key intelligent features. This makes navigating the internal menu system simple and intuitive.
+
+![DJI Goggle's touchpad](https://images.wondershare.com/filmora/article-images/goggles-touchpad.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+ Image resource: [DJI Official Site](https://store.dji.com/guides/dji-goggles-unboxing-and-quick-review/)
+
+###### #2\. Experience
+
+ DJI Goggles's main interaction needs to be done through the touchpad. This touchpad supports swipe and clicks of single and double fingers. It is responsive to unusual speed. Sometimes it is too sensitive that occasionally, a swipe will be misunderstood as a click. In the case of a fault in touch, we can use double fingers to slide back to lock the touchpad.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115933/19272" target="_top" id="2115933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115933" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115933/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+## Conclusion
+
+ As DJI's first generation digital image transmission FPV goggles, I think it has a lot of room for improvement. Although Many software issues and hardware design still need to be improved, I think it worth to try.
+
+![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+Max Wales
+
+Max Wales is a writer and a lover of all things video.
+
+Follow @Max Wales
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-avi-to-gif-conversion-windows-and-mac-edition-using-filmora/"><u>[New] 2024 Approved Mastering AVI-to-GIF Conversion Windows & Mac Edition Using Filmora</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-navigating-whatsapps-vocal-messaging-system/"><u>[New] 2024 Approved Navigating WhatsApp's Vocal Messaging System</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/new-brilliance-bunch-leading-gk-video-channels/"><u>[New] Brilliance Bunch Leading GK Video Channels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-effective-multitasking-during-podcast-engagement/"><u>[New] Effective Multitasking During Podcast Engagement</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exclusive-android-3d-video-enthusiasts-choice/"><u>[New] Exclusive Android 3D Video Enthusiasts' Choice</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-lens-leaders-showcase-unveiling-the-best-6-4k-dslrs/"><u>[New] In 2024, Lens Leaders Showcase Unveiling the Best 6 4K DSLRs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unveiling-the-secrets-of-advanced-camera-settings/"><u>[New] In 2024, Unveiling the Secrets of Advanced Camera Settings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-legal-chants-for-clarity-top-10-downloads-guide/"><u>[New] Legal Chants for Clarity Top 10 Downloads Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigate-the-world-of-video-conferencing-for-2024/"><u>[New] Navigate the World of Video Conferencing for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-visual-journey-app-performance-analysis/"><u>[New] Visual Journey App Performance Analysis</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-10-affordable-mobile-apps-to-boost-your-images-visual-impact/"><u>[Updated] 10 Affordable Mobile Apps to Boost Your Image's Visual Impact</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-2024-approved-elevating-your-live-broadcast-with-mixer-on-macos/"><u>[Updated] 2024 Approved Elevating Your Live Broadcast with Mixer on macOS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-how-to-use-funimate-video-downloader/"><u>[Updated] 2024 Approved How to Use Funimate Video Downloader</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elite-guide-from-concept-to-compelling-fullscreen-edits-in-premiere-pro-for-2024/"><u>[Updated] Elite Guide From Concept to Compelling Fullscreen Edits in Premiere Pro for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-exploring-the-best-of-gopro-cameras-side-by-side/"><u>[Updated] Exploring the Best of GoPro Cameras Side by Side</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-best-instagram-highlight-cover-makers-online-you-should-know/"><u>[Updated] In 2024, Best Instagram Highlight Cover Makers Online You Should Know</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-conquering-consumer-attention-metaverse-marketing-tips/"><u>[Updated] In 2024, Conquering Consumer Attention Metaverse Marketing Tips</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-efficient-editing-techniques-mastering-video-cropping-and-exporting/"><u>[Updated] In 2024, Efficient Editing Techniques Mastering Video Cropping and Exporting</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-how-to-easily-and-quickly-draw-on-photos-app-in-windows-10/"><u>[Updated] In 2024, How to Easily and Quickly Draw on Photos App in Windows 10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-maximizing-android-video-brilliance-simple-steps/"><u>[Updated] In 2024, Maximizing Android Video Brilliance Simple Steps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-resolving-no-video-issue-on-sony-a6400-device/"><u>[Updated] Resolving No-Video Issue on Sony A6400 Device</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-guide-to-choosing-the-best-free-photo-collage-ios-apps/"><u>[Updated] The Ultimate Guide to Choosing the Best FREE Photo Collage iOS Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-uncovering-top-tier-cloud-services-to-sustain-data/"><u>[Updated] Uncovering Top-Tier Cloud Services to Sustain Data</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-zoomjoint-reporting/"><u>[Updated] ZoomJoint Reporting</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-honor-90-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/continuous-screenshot-providers-for-2024/"><u>Continuous Screenshot Providers for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/eye-catching-graphic-principles-for-podcast-titles-for-2024/"><u>Eye-Catching Graphic Principles for Podcast Titles for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/fine-tune-your-igtv-videos-appeal-a-tale-of-titles-and-descriptions-for-2024/"><u>Fine-Tune Your IGTV Video's Appeal A Tale of Titles & Descriptions for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/honorable-warriors-reimagined-best-matching-gaming-titles/"><u>Honorable Warriors, Reimagined Best Matching Gaming Titles</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Vivo Phone without PIN</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-jokejigsaw-crafting-comedy-graphics/"><u>In 2024, JokeJigsaw Crafting Comedy Graphics</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-motorola-moto-g34-5g-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Motorola Moto G34 5G Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://win-dash.techidaily.com/install-or-update-your-hp-deskjet-3050-printer-software-on-windows-no-cost/"><u>Install or Update Your HP Deskjet 3050 Printer Software on Windows: No Cost</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/instant-download-and-setup-of-logitech-drivers-for-pcs/"><u>Instant Download & Setup of Logitech Drivers for PCs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/optimizing-live-periscope-video-speed-for-2024/"><u>Optimizing Live Periscope Video Speed for 2024</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/overcoming-the-invisible-screen-hurdle-youtube-fixes-for-2024/"><u>Overcoming the Invisible Screen Hurdle YouTube Fixes for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/proven-ways-in-how-to-hide-location-on-life360-for-xiaomi-14-ultra-drfone-by-drfone-virtual-android/"><u>Proven Ways in How To Hide Location on Life360 For Xiaomi 14 Ultra | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/systematic-upgrade-procedures-for-macos-sierra-users-for-2024/"><u>Systematic Upgrade Procedures for macOS Sierra Users for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/the-future-of-insurance-automation-uncovering-the-key-component-at-abbyy-industry-forward/"><u>The Future of Insurance Automation: Uncovering the Key Component at ABBYY | Industry Forward</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-pantheon-of-popularity-reddits-top-10-posts-for-2024/"><u>The Pantheon of Popularity Reddit's Top 10 Posts for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unlock-the-power-of-auto-coding-with-these-asterisk-7-alternatives-to-chatgpt/"><u>Unlock the Power of Auto-Coding with These Asterisk 7 Alternatives to ChatGPT</u></a></li>
+<li><a href="https://article-tips.techidaily.com/vrs-essentials-the-trending-gear-list/"><u>VR's Essentials The Trending Gear List</u></a></li>
+</ul></div>

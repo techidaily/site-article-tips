@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] IPhone Time Travel  Mastering Prolonged Photo Captures\""
-date: 2024-07-10T22:19:55.355Z
-updated: 2024-07-11T22:19:55.355Z
+date: 2024-09-09T10:03:16.503Z
+updated: 2024-09-10T10:03:16.503Z
 tags: 
   - screen-recording
   - ai video
@@ -37,22 +37,58 @@ thumbnail: https://thmb.techidaily.com/7e475b588f2cf5836119cf29eeb77a68a0d6cc175
 
  When you take long exposure shots using a digital SLR, the physical shutter which captures the image stays open for longer. You can also fiddle with the aperture size, to make it easier to capture these images in different light levels. This process is meticulously replicated by the iPhone's newest Photos app, so if you're already on iOS 11, here's how to use it:
 
+<!-- affiliate ads begin -->
+<span id="1702748">
+					<video width="192" height="320" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1702748.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18544-1702748">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1702748.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftwopages.pxf.io%2Fc%2F5597632%2F1702748%2F18544'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1702748/18544" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Users on iOS 11
 
  First of all, make sure Live Photos is switched on. Within the camera app, simply tap the circular button in the middle of the top menu bar to turn it on. Once activated, the button will turn yellow and the 'live' notification will be shown on screen.
 
 ![take-live-photo-on-iphone](https://images.wondershare.com/filmora/article-images/take-live-photo-on-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
+  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image resource: imore
 
  Next, take a live photo. This is a moving image, a bit like recording with your video camera, but much shorter. Try to keep the iPhone steady as you take your shot, and choose to shoot something that is continually moving, but with a relatively stable background. Something like cars going down a street is a great place to start.
 
 ![long-exposure-effect-iphone](https://images.wondershare.com/filmora/article-images/long-exposure-effect-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image resource: iPhoneMod
 
  Now bring up your live photo within the Photos app and bring up the effects selector. You can see this either by tapping 'details' or by simply swiping up whilst viewing the photo. There are lots of effects you can apply to your live photo, but the one we're looking for here is 'long exposure'. Simply tap this and your clever iPhone will make all the adjustments necessary to produce an awesome pro-looking photograph using long exposure.
 
+<!-- affiliate ads begin -->
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### Not a user of iOS 11?
 
  If you don't have iOS 11 yet (or can't get it for your model), there is a way around this. Some developers have produced apps which mimic the extended shutter speed of Live Photos. This is achieved by combining multiple exposures of the same photograph, and then stitching them together with an overlain effect to create a simulated long exposure image.
@@ -72,6 +108,12 @@ thumbnail: https://thmb.techidaily.com/7e475b588f2cf5836119cf29eeb77a68a0d6cc175
 
  This feature is one of the most exciting and interesting uses of Live Photos to date, and is well worth checking out if you haven't done so already.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 ### What should you capture with your long exposure iPhone shots?
 
  Long exposure shots are magical, giving a dreamy, almost ethereal quality to everyday situations. No doubt you'll find your own amazing things to shoot, but to get you started, why not try a long exposure iPhone shot of:
@@ -86,12 +128,30 @@ thumbnail: https://thmb.techidaily.com/7e475b588f2cf5836119cf29eeb77a68a0d6cc175
 
 ![long-trails-exposure](https://images.wondershare.com/filmora/article-images/long-trails-exposure.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image resource: WallDevil
 
 * **Motion blur:** To give the sense of something really moving fast, a motion blur can be a captivating effect. From vehicles on the city street to a galloping horse, allowing the moving object to blur whilst everything else around it stays in focus can add a dose of drama to your shots.
 
 ![motion-blur-long-exposure](https://images.wondershare.com/filmora/article-images/motion-blur-long-exposure.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
  Image resource: Digital Photo Secrets
 
 * **Low light photography:** With a longer exposure, things which were previously un-snappable are suddenly within your grasp. Beautiful fountains at night, bridges, buildings… anything which would previously have been little more than a shadow can now become part of your collection, simply by extending the exposure length.
@@ -136,3 +196,58 @@ Follow @Ollie Mattison
 
 
 
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-instant-video-mastery-editing-made-effortless-in-windows-11/"><u>[New] 2024 Approved Instant Video Mastery Editing Made Effortless in Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-on-the-go-gyroscopic-footage-smoother/"><u>[New] 2024 Approved On-the-Go Gyroscopic Footage Smoother</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultrawide-uhd-dilemranc-which-monitor-wins/"><u>[New] 2024 Approved The Ultrawide-UHD Dilemranc Which Monitor Wins?</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-audience-engagement-trends-to-master-on-instagram/"><u>[New] Audience Engagement Trends to Master on Instagram</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-complete-guide-to-morphvox-voice-changer/"><u>[New] Complete Guide to MorphVOX Voice Changer</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-configure-youtube-pip-on-iphone-quickly/"><u>[New] Configure YouTube PIP on iPhone Quickly</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-data-size-and-time-coefficient-in-video-files-20mb/"><u>[New] Data Size and Time Coefficient in Video Files (20MB)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-engaging-instagram-stories-with-animated-text-effects-for-2024/"><u>[New] Engaging Instagram Stories with Animated Text Effects for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-from-zero-to-zoom-expertise-in-a-flash/"><u>[New] From Zero to Zoom Expertise in a Flash</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-horizon-hopping-reviewing-the-gopro-karma-drone-for-2024/"><u>[New] Horizon Hopping Reviewing the GoPro Karma Drone for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-hue-harmonies-crafting-visual-balance/"><u>[New] Hue Harmonies Crafting Visual Balance</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-lg-bp550-review-2023-update/"><u>[New] In 2024, LG BP550 Review - 2023 Update</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-skys-palette-explored-top-websites-showcasing-hd-imagery/"><u>[New] In 2024, Sky's Palette Explored - Top Websites Showcasing HD Imagery</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-tailored-transmission-terminal-podcasters-hub/"><u>[New] In 2024, Tailored Transmission Terminal Podcaster's Hub</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-uncovering-the-appeal-filmora-editors-most-attractive-features/"><u>[New] In 2024, Uncovering the Appeal Filmora Editor's Most Attractive Features</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unlock-the-secrets-of-internet-humor-with-a-guide-on-9gag/"><u>[New] In 2024, Unlock the Secrets of Internet Humor with a Guide on 9GAG</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-jokeglyph-customize-funny-visuals-easily-for-2024/"><u>[New] Jokeglyph Customize Funny Visuals Easily for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-master-premiere-pros-art-free-template-pack-2023/"><u>[New] Master Premiere Pro's Art Free Template Pack 2023</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ready-for-victory-try-this-top-ranked-free-voice-alteration-software-now-for-2024/"><u>[New] Ready for Victory? Try This Top-Ranked Free Voice Alteration Software Now for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-reinstating-windows-photo-viewer-on-windows-10-a-twin-strategy/"><u>[New] Reinstating Windows Photo Viewer on Windows 10 A Twin Strategy</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-comprehensible-rundown-on-djis-latest-creation-inspire-2/"><u>[New] The Comprehensible Rundown on DJI's Latest Creation - Inspire 2</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-triggering-windows-11-hdr-in-dynamic-mode/"><u>[New] Triggering Windows 11 HDR in Dynamic Mode</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ringtone-repository-best-sources-online/"><u>[Updated] 2024 Approved Ringtone Repository Best Sources Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-best-quick-fixes-top-5-no-download-online-gif-to-video-convertors-for-2024/"><u>[Updated] Best Quick Fixes Top 5 No-Download, Online GIF to Video Convertors for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-standard-rgb-versus-srgb-standards/"><u>[Updated] In 2024, Standard Rgb Versus Srgb Standards</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-ultimate-canon-editing-kit-freepay-for-luts-included/"><u>[Updated] In 2024, Ultimate Canon Editing Kit - Free/Pay for LUTs Included</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-depth-walkthrough-for-proficient-use-of-green-screen-in-kinemaster/"><u>[Updated] In-Depth Walkthrough for Proficient Use of Green Screen in Kinemaster</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-iphone-and-android-edition-compile-the-most-useful-top-8-edits-tools-for-2024/"><u>[Updated] IPhone and Android Edition Compile the Most Useful Top 8 Edits Tools for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-live-stream-platform-showdown-xsplit-and-obs-face-off-for-2024/"><u>[Updated] Live Stream Platform Showdown XSplit & OBS Face-Off for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mastering-the-art-of-effective-interview-techniques-for-2024/"><u>[Updated] Mastering The Art Of Effective Interview Techniques for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mastering-the-art-of-professional-gopro-cinematography/"><u>[Updated] Mastering the Art of Professional Gopro Cinematography</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-podcast-renaming-made-easy-with-these-ai-tools-for-2024/"><u>[Updated] Podcast Renaming Made Easy with These AI Tools for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-sensational-headline-architect/"><u>[Updated] Sensational Headline Architect</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-sync-your-social-media-savvy-with-video-posting-tips-for-instagram-for-2024/"><u>[Updated] Sync Your Social Media Savvy with Video Posting Tips for Instagram for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-ignite-your-online-presence-nine-essential-tips-for-mastering-instagram-stardom/"><u>2024 Approved Ignite Your Online Presence Nine Essential Tips for Mastering Instagram Stardom</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-honor-x9a-by-drfone-android/"><u>A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Honor X9a</u></a></li>
+<li><a href="https://article-tips.techidaily.com/essential-guide-to-selecting-artistic-win-programs-for-2024/"><u>Essential Guide to Selecting Artistic Win Programs for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-app-not-available-in-your-country-play-store-problem-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix App Not Available in Your Country Play Store Problem on OnePlus Nord CE 3 Lite 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/gigglegraphs-designing-delightful-memes/"><u>GiggleGraphs Designing Delightful Memes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/high-quality-speech-to-text-solutions/"><u>High-Quality Speech-to-Text Solutions</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-do-i-sign-a-dot-file-free-by-ldigisigner-sign-a-word-sign-a-word/"><u>How do i sign a .dot file free</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-call-history-on-realme-gt-5-pro-by-fonelab-android-recover-call-logs/"><u>How to restore wiped call history on Realme GT 5 Pro?</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-made-easy-the-best-10-apps-for-unlocking-your-xiaomi-redmi-note-12-proplus-5g-device-by-drfone-android/"><u>In 2024, Unlocking Made Easy The Best 10 Apps for Unlocking Your Xiaomi Redmi Note 12 Pro+ 5G Device</u></a></li>
+<li><a href="https://article-tips.techidaily.com/iphone-lens-hacks-capturing-perfect-reflections/"><u>IPhone Lens Hacks Capturing Perfect Reflections</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-subtitle-extraction-from-youtube-unveiling-three-steps-for-2024/"><u>Mastering Subtitle Extraction From YouTube Unveiling Three Steps for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-crop-like-a-pro-a-step-by-step-fcpx-guide/"><u>New 2024 Approved Crop Like a Pro A Step-by-Step FCPX Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/photovideo-tips-manipulating-text-with-style/"><u>Photo/Video Tips Manipulating Text with Style</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/step-by-step-methods-for-amassing-tiktok-videos-for-2024/"><u>Step-by-Step Methods for Amassing TikTok Videos for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-guide-to-discovering-whatsapp-hacks-for-2024/"><u>The Ultimate Guide to Discovering WhatsApp Hacks for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-list-of-ios-tools-for-erasing-intrusive-images/"><u>The Ultimate List of iOS Tools for Erasing Intrusive Images</u></a></li>
+<li><a href="https://article-tips.techidaily.com/uncharted-territories-virtual-realitys-role-in-leisure/"><u>Uncharted Territories Virtual Reality's Role in Leisure</u></a></li>
+</ul></div>

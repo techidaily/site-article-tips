@@ -1,7 +1,7 @@
 ---
 title: "\"Top Trending Images  Tales Behind the Graphics for 2024\""
-date: 2024-09-09T10:19:34.225Z
-updated: 2024-09-10T10:19:34.225Z
+date: 2024-09-09T17:19:20.875Z
+updated: 2024-09-15T17:33:35.553Z
 tags: 
   - screen-recording
   - ai video
@@ -33,12 +33,6 @@ Since 2011, Hide the Pain Harold continues to rank as one of the world's most po
 
 ![meme appears on social media](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130873/7443" target="_top" id="2130873">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130873" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130873/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * A text-to-speech YouTube video on the meme has over 492,000 views since going live in September 2015.
 * The stock photo meme guy conducted a TEDx talk in his native Ukraine in September 2018\. During the talk, Mr. Andras Arato, a 73-year-old retired electrical engineer, speaks on his fame as a meme-personality and his profession. Currently, the video has nearly 7.87 million views on TEDx's official YouTube channel.
 * Finally, you can view all Hide the Pain Harold memes from its dedicated website.
@@ -49,12 +43,6 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
@@ -65,12 +53,6 @@ The original photo is the work of Antonio Guillem, who uploaded it on iStock in 
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
 Since then, the meme continues to enjoy mass popularity, including:
@@ -90,36 +72,18 @@ In addition, Antonio Guillem also has a stock image meme where the roles are rev
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123479/16836" target="_top" id="2123479">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123479" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123479/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
 However, subsequent memes feature satirical themes. Here are some of the most popular versions and their popularity.
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
 * Redditor GallowBoob received 34,700 points and 350 comments within 24 hours of posting it.
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115917/19272" target="_top" id="2115917">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115917" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115917/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
 
 * The meme also appears in a 2017 tweet by @NFLRT, an NFL fan account, where the man questions when Colin Kaepernick will be signed.
@@ -128,24 +92,19 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115944/19272" target="_top" id="2115944">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115944" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115944/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137221/26400" target="_top" id="2137221">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137221" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137221/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
 Since then, internet users have continued to use the Bonjour Bear meme to reference their reactions to different scenarios. Typically, you will find the stock photo meme representing some surprise attacks. Below are some of the most popular versions of the meme:
@@ -160,6 +119,7 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 </a>
 <img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
 
 * Others use the meme as a reaction to when your relatives visit. The captions indicate your parent informing you that your uncle and aunt are visiting and they have brought presents.
@@ -168,17 +128,12 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part5: FAQs
 
 ### 1\. Can you use stock photos for memes?
@@ -227,47 +182,19 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-best-assortment-professional-webcam-supports/"><u>[New] 2024 Approved Best Assortment Professional Webcam Supports</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-discover-leading-free-apps-excellent-srt-file-converters/"><u>[New] Discover Leading Free Apps Excellent Srt File Converters</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/levate-your-channel-hit-the-10000-view-mark-fast/"><u>[New] Elevate Your Channel Hit the 10,000 View Mark Fast!</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-elitemac-perfect-blend-of-screen-and-audio-capturing-features/"><u>[New] EliteMac Perfect Blend of Screen and Audio Capturing Features</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-fcps-best-10-plug-ins-a-professionals-list-for-2024/"><u>[New] FCP's Best 10 Plug-Ins A Professional's List for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-leading-edge-computers-for-your-office/"><u>[New] In 2024, Leading-Edge Computers for Your Office</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-straightforward-steps-for-hassle-free-high-dynamic-range/"><u>[New] In 2024, Straightforward Steps for Hassle-Free High Dynamic Range</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-top-10-high-res-cameras-for-capturing-music-videos-4k-hd-future/"><u>[New] In 2024, Top 10 High-Res Cameras for Capturing Music Videos (4K HD, Future)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-top-10-high-resolution-tv-experiences/"><u>[New] In 2024, Top 10 High-Resolution TV Experiences</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-top-iphone-filming-software-catalog/"><u>[New] In 2024, Top iPhone Filming Software Catalog</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-uncover-the-essentials-of-blurring-faces-using-picscanner/"><u>[New] In 2024, Uncover the Essentials of Blurring Faces Using PicScanner</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-instantaneous-windows-image-player-for-2024/"><u>[New] Instantaneous Windows Image Player for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-public-domain-soundtracks-downloadable-playing-games-for-2024/"><u>[New] Public Domain Soundtracks Downloadable, Playing Games for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-language-of-cinema-writing-as-an-art/"><u>[New] The Language of Cinema Writing as an Art</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-flight-pattern-perfection-dissecting-bebops-parrot-expedition/"><u>[Updated] 2024 Approved Flight Pattern Perfection Dissecting Bebop's Parrot Expedition</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-the-ultimate-checklist-for-transferring-snaps-to-photos-folder/"><u>[Updated] 2024 Approved The Ultimate Checklist for Transferring Snaps to Photos Folder</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-drone-racers-manual-fundamentals-to-high-scores-and-best-drones/"><u>[Updated] Drone Racer's Manual Fundamentals to High Scores and Best Drones</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-deciphering-the-sideways-photo-puzzle-on-ig/"><u>[Updated] In 2024, Deciphering the Sideways Photo Puzzle on IG</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-real-time-transmission-of-recorded-content-on-social-media-via-facebook/"><u>[Updated] In 2024, Real-Time Transmission of Recorded Content on Social Media via Facebook</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-step-by-step-walkthrough-of-google-docs-text-conversion/"><u>[Updated] In 2024, Step-by-Step Walkthrough of Google Docs Text Conversion</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-peering-through-the-lens-an-in-depth-review-of-polaroid-cubeplus/"><u>[Updated] Peering Through the Lens An In-Depth Review of Polaroid Cube+</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-prime-windows-11-software-for-cutting-edge-editing-for-2024/"><u>[Updated] Prime Windows 11 Software for Cutting-Edge Editing for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-simplified-approach-to-nvidia-screen-recording-for-2024/"><u>[Updated] Simplified Approach to NVIDIA Screen Recording for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-streamline-your-shooting-canons-time-lapse-techniques/"><u>[Updated] Streamline Your Shooting Canon's Time-Lapse Techniques</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-top-8-apps-accelerating-slow-motion-footage/"><u>[Updated] Top 8 Apps Accelerating Slow Motion Footage</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-unleash-creativity-with-iphone-burst-photography-for-2024/"><u>[Updated] Unleash Creativity with iPhone Burst Photography for 2024</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-innovative-metaverse-perspectives-a-30-quote-collection/"><u>2024 Approved Innovative Metaverse Perspectives A 30-Quote Collection</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-vivo-s18-pro-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Vivo S18 Pro | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/big-byte-in-mini-pcs-but-barely-booming/"><u>Big Byte in Mini PCs, But Barely Booming</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/boost-your-start-menu-efficiency-in-the-world-of-windows-11/"><u>Boost Your Start Menu Efficiency in the World of Windows 11</u></a></li>
-<li><a href="https://howto.techidaily.com/cellular-network-not-available-for-voice-calls-on-xiaomi-civi-3-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Cellular Network Not Available for Voice Calls On Xiaomi Civi 3 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/free-speech-finesse-in-online-combat-for-2024/"><u>Free Speech Finesse in Online Combat for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-3-easy-ways-to-factory-reset-a-locked-iphone-8-plus-without-itunes-drfone-by-drfone-ios/"><u>In 2024, 3 Easy Ways to Factory Reset a Locked iPhone 8 Plus Without iTunes | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-basic-principles-of-story-artistry/"><u>In 2024, Basic Principles of Story Artistry</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-ultimate-software-guide-to-gamers-broadcast/"><u>In 2024, Ultimate Software Guide to Gamers' Broadcast</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-on-your-apple-iphone-12-pro-max-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud On your Apple iPhone 12 Pro Max</u></a></li>
-<li><a href="https://article-tips.techidaily.com/mastering-the-art-of-finding-cost-effective-graphics/"><u>Mastering the Art of Finding Cost-Effective Graphics</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/medical-mistakes-reasons-to-doubt-chatgpt-advice/"><u>Medical Mistakes: Reasons to Doubt ChatGPT Advice</u></a></li>
-<li><a href="https://article-tips.techidaily.com/premier-pro-fullscreen-techniques-compendium/"><u>Premier Pro Fullscreen Techniques Compendium</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/resident-evil-village-troubleshooting-common-sound-problems/"><u>Resident Evil Village - Troubleshooting Common Sound Problems</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-ultimate-guide-to-free-video-editing-and-effects-sites/"><u>The Ultimate Guide to Free Video Editing and Effects Sites</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/transform-how-you-interact-9-critical-benefits-of-opting-for-chatgpt-plus-today/"><u>Transform How You Interact: 9 Critical Benefits of Opting for ChatGPT Plus Today!</u></a></li>
-<li><a href="https://driver-error.techidaily.com/unblock-your-nonworking-laptop-keys-a-simple-guide-to-restore-functionality-in-no-time-tech-talker-359-chars/"><u>Unblock Your Nonworking Laptop Keys: A Simple Guide to Restore Functionality in No Time - Tech Talker 359 Chars</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-diy-sports-highlights-a-comprehensive-guide/"><u>[New] 2024 Approved DIY Sports Highlights A Comprehensive Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-essential-tips-for-erasing-with-photoshop/"><u>[New] In 2024, Essential Tips for Erasing with Photoshop</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-metaverse-laughs-crafting-funny-virtual-memes/"><u>[New] In 2024, Metaverse Laughs Crafting Funny Virtual Memes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-in-2024-streamlining-cross-platform-communication-via-skype-chat-rooms/"><u>[New] In 2024, Streamlining Cross-Platform Communication via Skype Chat Rooms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unveiling-audio-magic-the-gradual-introduction-with-audition/"><u>[New] Unveiling Audio Magic The Gradual Introduction with Audition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elevating-instagram-stories-speed-control-techniques/"><u>[Updated] Elevating Instagram Stories Speed Control Techniques</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-growth-excellence-in-valheim-optimal-seeds-unveiled/"><u>[Updated] Growth Excellence in Valheim Optimal Seeds Unveiled</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/19-secrets-to-free-capture-of-virtual-learning-sessions-for-2024/"><u>19 Secrets to FREE Capture of Virtual Learning Sessions for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-exploring-lgs-new-tech-horizon-in-bp550/"><u>2024 Approved Exploring LG's New Tech Horizon in BP550</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/2024-approved-your-guide-to-8-best-fb-movies-downloader-selection/"><u>2024 Approved Your Guide to #8 Best FB Movies Downloader Selection</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/enjoy-high-quality-pc-audio-recording-install-x-recorder/"><u>Enjoy High-Quality PC Audio Recording - Install X-Recorder</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-9-tecno-spark-20-pro-monitoring-apps-for-parental-controls-drfone-by-drfone-virtual-android/"><u>In 2024, Top 9 Tecno Spark 20 Pro Monitoring Apps for Parental Controls | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-two-ways-to-sync-contacts-from-oppo-find-x7-ultra-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Two Ways to Sync Contacts from Oppo Find X7 Ultra to Gmail | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-video-filter-installation-in-zoom-the-simplified-method/"><u>In 2024, Video Filter Installation in Zoom The Simplified Method</u></a></li>
 </ul></div>
+

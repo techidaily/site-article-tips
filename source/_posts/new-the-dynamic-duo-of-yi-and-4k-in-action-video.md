@@ -1,7 +1,7 @@
 ---
 title: "[New] The Dynamic Duo of Yi and 4K in Action Video"
-date: 2024-09-09T10:24:06.760Z
-updated: 2024-09-10T10:24:06.760Z
+date: 2024-09-10T17:59:44.886Z
+updated: 2024-09-15T16:10:53.457Z
 tags: 
   - screen-recording
   - ai video
@@ -16,24 +16,12 @@ keywords: "\"Yi & 4K Video Dynamics,High-Quality 4K Videos,4K Resolution Yi,Dyna
 thumbnail: https://thmb.techidaily.com/33bb4081d4eeefa2b002761f140e6d8a1ab23c4b8fc2690daa04e9c88bdd81bd.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115920/19272" target="_top" id="2115920">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115920" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115920/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Dynamic Duo of Yi and 4K in Action Video
 
 # Yi 4K + Action Camera Complete Review
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -126,24 +114,12 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115924/19272" target="_top" id="2115924">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115924" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115924/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -169,50 +145,23 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-breaking-down-augmented-realitys-mysteries/"><u>[New] 2024 Approved Breaking Down Augmented Reality's Mysteries</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-investigating-ffmpeg-for-intact-audio-preservation/"><u>[New] 2024 Approved Investigating FFmpeg for Intact Audio Preservation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-magix-acid-pros-successors-in-vector-editing/"><u>[New] 2024 Approved Magix ACID Pro's Successors in Vector Editing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-rapid-windows-revision-techniques-explored/"><u>[New] 2024 Approved Rapid Windows Revision Techniques Explored</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-transformative-power-of-augmented-vision/"><u>[New] 2024 Approved The Transformative Power of Augmented Vision</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-ace-your-films-with-these-top-15-gopro-video-luts-for-2024/"><u>[New] Ace Your Films with These Top 15 GoPro Video LUTs for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-crafting-cinema-magic-with-fcps-top-10-plugin-choices-for-2024/"><u>[New] Crafting Cinema Magic with FCP’s Top 10 Plugin Choices for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-direct-focus-the-power-of-leading-lines-in-iphone-photos/"><u>[New] Direct Focus The Power of Leading Lines in iPhone Photos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-elevate-your-reddit-presence-with-these-essentials/"><u>[New] Elevate Your Reddit Presence with These Essentials</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-full-scrutiny-the-dji-inspire-1-experience/"><u>[New] Full Scrutiny The DJI Inspire 1 Experience</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-elevating-photography-with-canons-time-lapse-methods/"><u>[New] In 2024, Elevating Photography with Canon's Time-Lapse Methods</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-in-2024-the-experts-blueprint-boosting-income-via-vimeo-advertising/"><u>[New] In 2024, The Expert's Blueprint Boosting Income via Vimeo Advertising</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-leading-nintendo-switch-combat-arcade-games-max-156/"><u>[New] Leading Nintendo Switch Combat Arcade Games (Max 156)</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-mastering-the-subtle-art-of-dimming-sounds-via-audacity-for-2024/"><u>[New] Mastering the Subtle Art of Dimming Sounds via Audacity for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-the-art-of-humor-in-video-tips-for-facebook-and-instagram-memes-for-2024/"><u>[New] The Art of Humor in Video Tips for Facebook and Instagram Memes for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-essence-of-intelligence-in-moto-z2-reviewed/"><u>[New] The Essence of Intelligence in Moto Z2 Reviewed</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-turn-back-the-tape-on-twitch-broadcasting/"><u>[New] Turn Back the Tape on Twitch Broadcasting</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-cultivating-inquisitive-interview-habits/"><u>[Updated] 2024 Approved Cultivating Inquisitive Interview Habits</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-historical-imagery-unleashed-from-copyrights/"><u>[Updated] 2024 Approved Historical Imagery Unleashed From Copyrights</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-seamless-integration-12-stream-app-experience/"><u>[Updated] 2024 Approved Seamless Integration 12 Stream App Experience</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-top-10-immersive-traits-in-filmoras-editing-software/"><u>[Updated] 2024 Approved Top 10 Immersive Traits in Filmora's Editing Software</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/updated-a-comprehensive-guide-to-thumbnail-production-for-2024/"><u>[Updated] A Comprehensive Guide to Thumbnail Production for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-elevating-imagery-an-in-depth-review-of-the-gopro-karma-drone-for-2024/"><u>[Updated] Elevating Imagery An In-Depth Review of the GoPro Karma Drone for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-insta-angle-alchemy-crafting-content-with-a-twist-for-maximum-impact/"><u>[Updated] Insta-Angle Alchemy Crafting Content with a Twist for Maximum Impact</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-iphone-techniques-for-full-sphere-videography/"><u>[Updated] IPhone Techniques for Full-Sphere Videography</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-launchpad-logic-the-complete-framework-for-founders-of-a-reviews-channel-for-2024/"><u>[Updated] Launchpad Logic The Complete Framework for Founders of a Reviews Channel for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/15-secrets-to-discovering-window-settings/"><u>15 Secrets to Discovering Window Settings</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/2024-approved-hasty-and-hassle-free-images-on-windows-11/"><u>2024 Approved Hasty & Hassle-Free Images on Windows 11</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-best-route-generator-apps-you-should-try-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>5 Best Route Generator Apps You Should Try On OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/full-guide-to-unlock-your-nubia-by-drfone-android/"><u>Full Guide to Unlock Your Nubia</u></a></li>
-<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-realme-12-5g-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Realme 12 5G | Dr.fone</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/in-2024-explore-affordable-cross-platform-video-chat-platforms-for-windowsmac/"><u>In 2024, Explore Affordable, Cross-Platform Video Chat Platforms for Windows/Mac</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-list-of-pokemon-go-joysticks-on-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, List of Pokémon Go Joysticks On Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-samsungs-visionary-leap-the-ubd-k850-ultrablade-2023/"><u>In 2024, Samsung’s Visionary Leap - The UBD K850 UltraBlade 2023</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-streamline-your-media-files-8-pro-convertors-sub-to-srt-style/"><u>In 2024, Streamline Your Media Files 8 Pro Convertors, Sub to Srt Style</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-top-rated-components-for-smooth-live-transmissions/"><u>In 2024, Top-Rated Components for Smooth Live Transmissions</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/learn-urdu-swiftly-with-daily-10-minute-intervals/"><u>Learn Urdu Swiftly with Daily 10-Minute Intervals</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/mastering-fb-slideshows-for-content-sharing/"><u>Mastering FB Slideshows for Content Sharing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/metaverse-insight-discovering-6-realistic-examples/"><u>Metaverse Insight Discovering 6 Realistic Examples</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-how-to-create-closed-captions-in-final-cut-pro-x-2023-update/"><u>New In 2024, How to Create Closed Captions in Final Cut Pro X (2023 Update)</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/real-time-reality-showdown-softwares-supremacy-over-hardware-in-2024/"><u>Real-Time Reality Showdown Software's Supremacy Over Hardware, In 2024</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/secure-your-spot-elite-imagery-repair-solutions-now/"><u>Secure Your Spot - Elite Imagery Repair Solutions Now</u></a></li>
-<li><a href="https://article-tips.techidaily.com/stylizing-strings-for-cinematic-results/"><u>Stylizing Strings for Cinematic Results</u></a></li>
-<li><a href="https://games-able.techidaily.com/tailoring-your-gaming-mastery-of-steam-deck-keys/"><u>Tailoring Your Gaming: Mastery of Steam Deck Keys</u></a></li>
-<li><a href="https://extra-information.techidaily.com/techniques-for-downloading-twitter-videos-and-creating-mp3s/"><u>Techniques for Downloading Twitter Videos and Creating MP3s</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/your-guide-to-earning-online-the-top-13-no-skill-approaches/"><u>Your Guide to Earning Online - The Top 13 No-Skill Approaches</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-2024-approved-navigating-the-world-of-videomosaic-androids-8-freepaid-selection/"><u>[New] 2024 Approved Navigating the World of Videomosaic Android's #8-Free/Paid Selection</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/024-approved-skyrocketing-youtube-views-strategies-to-dodge-bots/"><u>[New] 2024 Approved Skyrocketing YouTube Views Strategies to Dodge Bots</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-elite-4k-gaming-laptops-ranked-1/"><u>[New] In 2024, Elite 4K Gaming Laptops Ranked #1</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-rotating-reality-in-visuals-the-art-of-spinning-images-for-instagram-triumphs/"><u>[New] Rotating Reality in Visuals The Art of Spinning Images for Instagram Triumphs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastery-in-converting-classic-vhs-into-high-quality-pictures/"><u>[Updated] 2024 Approved Mastery in Converting Classic VHS Into High-Quality Pictures</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-can-instant-subscription-lead-to-higher-watch-time/"><u>[Updated] In 2024, Can Instant Subscription Lead to Higher Watch Time?</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/updated-unlocking-creativity-top-10-insider-canva-tricks/"><u>[Updated] Unlocking Creativity Top 10 Insider Canva Tricks</u></a></li>
+<li><a href="https://android-location.techidaily.com/fake-android-location-without-rooting-for-your-oppo-reno-11-pro-5g-drfone-by-drfone-virtual/"><u>Fake Android Location without Rooting For Your Oppo Reno 11 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-stop-google-chrome-from-tracking-your-location-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>How to Stop Google Chrome from Tracking Your Location On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-mastering-panoramic-photography-with-a-fisheye-effect/"><u>In 2024, Mastering Panoramic Photography with a Fisheye Effect</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-unlocking-the-power-of-time-lapse-with-samsung-smartphones/"><u>In 2024, Unlocking the Power of Time Lapse with Samsung Smartphones</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005184/22899" target="_top" id="2005184">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005184" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005184/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

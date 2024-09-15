@@ -1,7 +1,7 @@
 ---
 title: Asus Unveils the First-Ever Gaming Desktop PC - The ROG NUC with Core Ultra 9 Processors and RTX Letech RTX 4070 Graphics, Available From $1,629
-date: 2024-09-09T10:21:20.821Z
-updated: 2024-09-10T10:21:20.821Z
+date: 2024-09-08T16:32:40.565Z
+updated: 2024-09-15T16:28:53.202Z
 tags:
   - desktop
 categories:
@@ -9,12 +9,6 @@ categories:
 thumbnail: https://thmb.techidaily.com/28465b8c38f841bc90d82827dc716baf4b925631d4d6cc6877470968ff1a65ec.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114265/17093" target="_top" id="2114265">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114265" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114265/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Asus Unveils the First-Ever Gaming Desktop PC - The ROG NUC with Core Ultra 9 Processors and RTX Letech RTX 4070 Graphics, Available From $1,629
 
 Asus is launching its first gaming mini-PC with the ROG NUC. This tiny PC weighs just 2.6 kg and comes in a 2.5-liter chassis that measures 270 x 180 x 50mm. Even though it has a diminutive form factor, you won't miss out on performance as it comes with either an Intel Core Ultra 7 155H or a Core Ultra 9 185H. Both models also have a discrete GPU — an RTX 4060 for the Ultra 7 and RTX 4070 for the Ultra 9.
@@ -47,12 +41,6 @@ These are the specifications of the two Asus ROG NUC models:
 
  You can now see both devices on the[Asus website](https://clk.tradedoubler.com/click?p=332082&a=2384895&epi=tomshardware-us-6479410811963061514&url=https%3A%2F%2Frog.asus.com%2Fus%2Fdesktops%2Fmini-pc%2Frog-nuc%2F) , but they're marked as 'Temporarily Out of Stock.' Nevertheless, if you're looking for a tiny gaming PC, you can ask Asus to notify you when they become available. You should also prepare your wallet if you want this device with its high starting price. It does come with a discrete GPU, though, unlike other mini-PC designs, where you need an eGPU dock to enjoy high-quality graphics.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -61,14 +49,11 @@ These are the specifications of the two Asus ROG NUC models:
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -79,38 +64,24 @@ These are the specifications of the two Asus ROG NUC models:
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-best-playstation-5-and-xbox-series-x-games-consoles-ranked/"><u>[New] 2024 Approved Best PlayStation 5 & Xbox Series X Games Consoles Ranked</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-picsart-app-insights-comprehensive-review-and-walkthrough/"><u>[New] 2024 Approved PicsArt App Insights Comprehensive Review and Walkthrough</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-scaling-up-subscriber-numbers-with-savvy-strategies/"><u>[New] 2024 Approved Scaling Up Subscriber Numbers with Savvy Strategies</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-supreme-4k-tvs-for-the-ultimate-gaming-experience/"><u>[New] 2024 Approved Supreme 4K TVs for the Ultimate Gaming Experience</u></a></li>
-<li><a href="https://article-helps.techidaily.com/new-2024-approved-vloggers-guide-to-smooth-cinematography-equipment/"><u>[New] 2024 Approved Vlogger’s Guide to Smooth Cinematography Equipment</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-baffled-by-blank-screens-on-a6400-for-2024/"><u>[New] Baffled by Blank Screens on A6400 for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/new-capturing-the-heavens-phone-panorama-basics/"><u>[New] Capturing the Heavens Phone Panorama Basics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-enhancing-aerial-video-the-best-gimbals-reviewed-for-2024/"><u>[New] Enhancing Aerial Video The Best Gimbals Reviewed for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-from-snapchat-to-youtube-uploading-pics/"><u>[New] From Snapchat to YouTube Uploading Pics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-intrinsic-storytelling-principles/"><u>[New] In 2024, Intrinsic Storytelling Principles</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-photography-editing-tips-for-creating-stunning-photos/"><u>[New] In 2024, Photography Editing Tips for Creating Stunning Photos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-spark-creativity-get-to-know-windows-11s-movie-maker-app/"><u>[New] In 2024, Spark Creativity Get to Know Windows 11'S Movie Maker App</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-srt-innovation-how-technology-shapes-industry-standards/"><u>[New] In 2024, SRT Innovation How Technology Shapes Industry Standards</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-navigate-to-the-top-10-most-advanced-photo-changer-apps/"><u>[New] Navigate to the Top 10 Most Advanced Photo Changer Apps</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ise-above-the-noise-must-have-video-seo-tools/"><u>[New] Rise Above the Noise – Must-Have Video SEO Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-ultimate-selection-explore-these-top-8-tablets-beyond-filmora-for-2024/"><u>[New] The Ultimate Selection Explore These Top 8 Tablets Beyond Filmora for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-sparring-spirits-versus-social-media-savvy/"><u>[Updated] 2024 Approved Sparring Spirits Versus Social Media Savvy</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-photographic-soundtracking-online/"><u>[Updated] In 2024, Photographic Soundtracking Online</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-peering-into-the-future-lg-tv-bp550-2023-review-for-2024/"><u>[Updated] Peering Into the Future LG TV BP550 2023 Review for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-tailoring-battery-choices-for-exceptional-drone-performance/"><u>[Updated] Tailoring Battery Choices for Exceptional Drone Performance</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-your-all-inclusive-guide-to-advanced-srt-systems-for-2024/"><u>[Updated] Your All-Inclusive Guide to Advanced SRT Systems for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-dive-into-a-world-of-timelessness-crafting-slow-motion-videos-using-mobile-apps/"><u>2024 Approved Dive Into a World of Timelessness Crafting Slow Motion Videos Using Mobile Apps</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/2024-approved-facebook-film-fans-choosing-the-best-extensions-and-downloader-plugins-on-firefox/"><u>2024 Approved Facebook Film Fans Choosing the Best Extensions and Downloader Plugins on Firefox</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-harmonizing-scores-with-cinematic-vision-in-film-trailers/"><u>2024 Approved Harmonizing Scores with Cinematic Vision in Film Trailers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-mastering-iphone-saving-and-utilizing-gifs-effectively/"><u>2024 Approved Mastering iPhone Saving & Utilizing GIFs Effectively</u></a></li>
-<li><a href="https://howto.techidaily.com/4-ways-to-fix-android-blue-screen-of-death-on-vivo-t2-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>4 Ways to Fix Android Blue Screen of Death On Vivo T2 5G | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/achieve-massive-momentum-hit-1k-ig-gains-monthly-for-2024/"><u>Achieve Massive Momentum Hit 1K IG Gains Monthly for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/elite-web-based-voice-recorders-the-best-of-2023-for-2024/"><u>Elite Web-Based Voice Recorders - The Best of 2023 for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-can-motorola-edge-40-promirror-share-to-pc-drfone-by-drfone-android/"><u>How Can Motorola Edge 40 ProMirror Share to PC? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-preferred-craftsmen-exceptional-iphone-tones/"><u>In 2024, Preferred Craftsmen Exceptional iPhone Tones</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-unveiling-the-secrets-perfecting-motion-blur-in-photoshop/"><u>In 2024, Unveiling the Secrets Perfecting Motion Blur in Photoshop</u></a></li>
-<li><a href="https://win11.techidaily.com/overcoming-utorrent-download-halt-on-windows-os/"><u>Overcoming uTorrent Download Halt on Windows OS</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-hackers-handbook-navigating-anonymous-instagram-streaming-for-2024/"><u>The Hacker’s Handbook Navigating Anonymous Instagram Streaming for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/top-voice-dictation-apps-dominating-the-market-in-2amo/"><u>Top Voice Dictation Apps Dominating the Market in 2Amo</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-enhancing-twits-visuals-to-fhd-standards/"><u>[New] 2024 Approved Enhancing Twit's Visuals to FHD Standards</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-handheld-gyro-stabilization-upgrade/"><u>[New] 2024 Approved Handheld Gyro Stabilization Upgrade</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-2024-approved-pc-videography-leveraging-windows-hdr/"><u>[New] 2024 Approved PC Videography Leveraging Windows HDR</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unveiling-top-10-camcorders-in-depth-reviews/"><u>[New] 2024 Approved Unveiling Top 10 Camcorders In-Depth Reviews</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-step-by-step-how-to-master-zoom-in-windows-10-for-2024/"><u>[New] Step-by-Step How to Master Zoom in Windows 10 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-embrace-virtual-worlds-must-have-gadgets-unveiled/"><u>[Updated] In 2024, Embrace Virtual Worlds Must-Have Gadgets Unveiled</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/2024-approved-excellent-20-anime-opening-anthems/"><u>2024 Approved Excellent 20 Anime Opening Anthems</u></a></li>
+<li><a href="https://article-tips.techidaily.com/fast-and-easy-photovideo-exchange-between-ios-gear/"><u>Fast & Easy Photo/Video Exchange Between iOS Gear</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/guide-to-successfully-download-and-setup-the-printer-driver-for-hp-laserjet-pro-m402n-in-your-windows-environment/"><u>Guide to Successfully Download & Setup the Printer Driver for HP LaserJet Pro M402n in Your Windows Environment</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/razer-kraken-microphone-issues-resolved-tips-for-getting-your-sound-back-on-track/"><u>Razer Kraken Microphone Issues Resolved: Tips for Getting Your Sound Back On Track</u></a></li>
+<li><a href="https://driver-install.techidaily.com/windows-11-audibility-boost-with-convex-audio-drivers/"><u>Windows 11 Audibility Boost with Convex Audio Drivers</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/60p60i-60i60p/"><u>コンバート 手順で、60pと60iの主要な違いを解き明かす - 60Iが60pに変換可能ですか？</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

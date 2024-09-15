@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Elevate Your iPhone Snaps to High Dynamic Range Levels\""
-date: 2024-09-09T10:24:14.980Z
-updated: 2024-09-10T10:24:14.980Z
+date: 2024-09-12T17:41:24.885Z
+updated: 2024-09-15T17:36:00.128Z
 tags: 
   - screen-recording
   - ai video
@@ -24,12 +24,6 @@ Most people have to use photo editing software to fix the exposures of photos, b
 
 In this article, we will give you a brief overview of HDR photography and then guide you on how to shoot HDR photos with an iPhone.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136613/26400" target="_top" id="2136613">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136613" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136613/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: What is HDR Photography for iPhone?
 
 HDR is short for High Dynamic Range, and it refers to a photography technique where multiple exposures of a scene are combined to create one well-lit picture. It captures a scene's darkest and lightest tone and shows them as such in the final photo.
@@ -52,24 +46,6 @@ With the iPhone's HDR feature, you can get a perfectly exposed photo showing det
 
 ![hdr shoot with different exposure](https://images.wondershare.com/filmora/article-images/2022/09/how-to-shoot-hdr-photos-with-iphone-2.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1899850">
-					<video width="486" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123468/16836" target="_top" id="2123468">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123468" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123468/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to take an HDR Photo with your iPhone Camera?
 
 Now that we know how HDR helps make our pictures pop out, let's look at how you can take an HDR photo with your iPhone camera.
@@ -84,12 +60,6 @@ The first step for you is to go to your iPhone Settings. Here, click on the Came
 
 ![go to settings and click on camera](https://images.wondershare.com/filmora/article-images/2022/09/how-to-shoot-hdr-photos-with-iphone-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120865/26400?prodsku=mercury" target="_top" id="2120865">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120865" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120865/26400?prodsku=mercury" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step2Adjust the Settings
 
 Here, ensure that the Smart HDR (or Auto HDR in iPhone 8, iPhone 8 Plus, and iPhone X) is toggled off. The HDR option will not be available in the camera if you do not switch this off.
@@ -119,17 +89,12 @@ In the iPhone 13 models, the steps for taking an HDR photo are slightly differen
 Once the toggle is on, go to the Camera app. You will see the HDR option where you can turn it On/Off or set it to Automatic.
 
 <!-- affiliate ads begin -->
-<span id="1983446">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983446.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983446">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983446.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983446%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983446/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2115930/19272" target="_top" id="2115930">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115930" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115930/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 3: How Not to Have Two Same Photos When Shot with HDR on your iPhone?
 
 You may notice that when you shoot photos with HDR on your iPhone, your camera roll shows two identical pictures. This happens when the "Keep Normal Photo" setting is enabled in the iPhone Camera Settings. This setting is only available on iPhone X and earlier.
@@ -153,23 +118,18 @@ You will see a "Keep Normal Photo" toggle in the HDR panel. Turn the toggle off.
 Once the toggle is off, you can go and take an HDR photo. The camera app will no longer save the non-HDR version of the image.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123481/16836" target="_top" id="2123481">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123481" border="0" alt="https://techidaily.com" width="720" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135351/19272" target="_top" id="2135351">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135351" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123481/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135351/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Part 4: iPhone Camera Smart HDR Not Working, Why?
 
 The iPhone's HDR option enables you to get great shots. Apple introduced a "Smart HDR" option on iPhone where the camera shoots photos in HDR (when necessary) by default. This option ensures that users don't have to go to great lengths to get amazing shots.
 
 However, there may be instances when you feel that the "Smart HDR" option is not working.
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123480/16836" target="_top" id="2123480">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123480" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123480/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### **Scenario 1: No HDR toggle option in the Camera App**
 
 There may be a case where you open your Camera app to take a picture in HDR but there is no HDR option available to you. This is usually the case with iPhone 13 models, and its pro variants.
@@ -194,6 +154,13 @@ However, if you still have any queries, here is a link to a very useful video.
 
 How to use HDR with an iPhone X
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Final Words
 
 iPhones all around the world are known for their fantastic camera results. With each new model of the iPhone, Apple tends to introduce some cool new features, such as the HDR feature.
@@ -208,12 +175,6 @@ This article perfectly sums up all the information you need in order to capture 
 
 How to use HDR with an iPhone X
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Final Words
 
 iPhones all around the world are known for their fantastic camera results. With each new model of the iPhone, Apple tends to introduce some cool new features, such as the HDR feature.
@@ -250,55 +211,19 @@ This article perfectly sums up all the information you need in order to capture 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-cutting-edge-top-20-anime-song-intros/"><u>[New] 2024 Approved Cutting-Edge Top 20 Anime Song Intros</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-intelligent-digital-diary-with-mematic-services/"><u>[New] 2024 Approved Intelligent Digital Diary with Mematic Services</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-speed-on-thin-ice-top-performances-from-the-olympics/"><u>[New] 2024 Approved Speed on Thin Ice Top Performances From the Olympics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultimate-screenshot-sticker-guide-for-iphones-and-androids/"><u>[New] 2024 Approved The Ultimate Screenshot-Sticker Guide for iPhones and Androids</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-cloud-savvy-pinpointing-optimal-data-purchases-for-2024/"><u>[New] Cloud Savvy Pinpointing Optimal Data Purchases for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-complete-review-for-hero4-black-for-2024/"><u>[New] Complete Review for Hero4 Black for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-elite-20-anime-series-opener-tunes/"><u>[New] Elite 20 Anime Series Opener Tunes</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/new-from-novice-to-expert-learning-the-ins-and-outs-of-instagram-hashtags/"><u>[New] From Novice to Expert Learning the Ins and Outs of Instagram Hashtags</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-gopros-greatest-hits-max-360-vs-hero-11-comparison/"><u>[New] GoPro's Greatest Hits Max 360 vs Hero 11 Comparison</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-amplify-aspirations-top-10-motivation-movies/"><u>[New] In 2024, Amplify Aspirations Top 10 Motivation Movies</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-in-game-sound-transformation-the-no-cost-pathway-in-free-fire/"><u>[New] In 2024, In-Game Sound Transformation The No-Cost Pathway in Free Fire</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-mastering-iphones-hdr-a-photography-essential/"><u>[New] Mastering iPhone's HDR A Photography Essential</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-mirth-mechanics-gratis-tools-to-amuse-and-entertain/"><u>[New] Mirth Mechanics Gratis Tools to Amuse and Entertain</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-streamlining-submission-a-podcasters-guide/"><u>[New] Streamlining Submission A Podcaster's Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-integrate-efficiently-macos-sierra-for-desktop-enhancement/"><u>[Updated] 2024 Approved Integrate Efficiently MacOS Sierra for Desktop Enhancement</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-master-your-craft-best-drawing-tools-on-the-chromebook-spectrum/"><u>[Updated] 2024 Approved Master Your Craft Best Drawing Tools on the Chromebook Spectrum</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-optimize-your-windows-11-photo-viewing-include-audio-files-and-artistic-layers/"><u>[Updated] 2024 Approved Optimize Your Windows 11 Photo Viewing Include Audio Files and Artistic Layers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-crafting-your-future-a-guide-to-prosperity-in-graphic-designing-for-2024/"><u>[Updated] Crafting Your Future A Guide to Prosperity in Graphic Designing for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-discover-cost-free-vfx-wonders-on-the-net/"><u>[Updated] Discover Cost-Free VFX Wonders on the Net</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-from-blank-page-to-airwaves-writing-engaging-podcast-episodes-for-2024/"><u>[Updated] From Blank Page to Airwaves Writing Engaging Podcast Episodes for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-delving-into-quantum-hdr-a-complete-overview/"><u>[Updated] In 2024, Delving Into Quantum HDR A Complete Overview</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-master-the-art-of-gaming-best-monitors-and-tvs-for-xbox-series-x/"><u>[Updated] In 2024, Master the Art of Gaming Best Monitors & TVs For Xbox Series X</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-transition-your-tunes-transferring-collections-between-services/"><u>[Updated] In 2024, Transition Your Tunes Transferring Collections Between Services</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-mastering-ifunny-meme-downloads-and-fun/"><u>[Updated] Mastering iFunny Meme Downloads & Fun</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-mastering-sound-communication-on-whatsapp/"><u>[Updated] Mastering Sound Communication on WhatsApp</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-score-big-with-these-8-low-cost-3d-video-apps-for-pcmac-for-2024/"><u>[Updated] Score Big with These 8 Low-Cost 3D Video Apps for PC/Mac for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-toolwiz-app-unveiled-a-critical-examination-of-its-functionality/"><u>[Updated] Toolwiz App Unveiled A Critical Examination of Its Functionality</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-video-tools-an-educators-guide-to-classroom-engagement/"><u>[Updated] Video Tools An Educator's Guide to Classroom Engagement</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-voice-versus-video-making-the-right-media-selection-for-2024/"><u>[Updated] Voice Versus Video Making the Right Media Selection for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/2024-approved-budget-friendly-tips-for-acquiring-high-end-gopros/"><u>2024 Approved Budget-Friendly Tips for Acquiring High-End GoPros</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-note-to-call-how-to-convert-tamil-songs-into-ringtones/"><u>2024 Approved Note to Call How To Convert Tamil Songs Into Ringtones</u></a></li>
-<li><a href="https://some-skills.techidaily.com/2024-approved-unlocking-the-secrets-of-a-captivating-end-episode-note/"><u>2024 Approved Unlocking the Secrets of a Captivating End-Episode Note</u></a></li>
-<li><a href="https://windows11.techidaily.com/design-dilemma-overcoming-unexpected-screen-shades/"><u>Design Dilemma: Overcoming Unexpected Screen Shades</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/drive-more-visitors-using-the-power-of-cookiebot-technology/"><u>Drive More Visitors Using the Power of Cookiebot Technology</u></a></li>
-<li><a href="https://article-tips.techidaily.com/freed-images-public-domain-canvas-for-2024/"><u>Freed Images Public Domain Canvas for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-xiaomi-redmi-note-13-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Complete Tutorial to Use GPS Joystick to Fake GPS Location On Xiaomi Redmi Note 13 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-eliminate-youtubes-automatic-preplay-buffer/"><u>In 2024, Eliminate YouTube's Automatic Preplay Buffer</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-how-to-use-dslr-for-facebook-live-on-your-pc/"><u>In 2024, How to Use DSLR for Facebook Live on Your PC?</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-podcasts-vs-youtube-which-should-you-choose/"><u>In 2024, Podcasts Vs. YouTube Which Should You Choose?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-prime-filters-for-smooth-streaming-sessions/"><u>In 2024, Prime Filters for Smooth Streaming Sessions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-twisting-typography-in-visual-screens/"><u>In 2024, Twisting Typography in Visual Screens</u></a></li>
-<li><a href="https://article-tips.techidaily.com/instant-transformation-gifs-becoming-stickers-across-discord-whatsapp-and-more-for-2024/"><u>Instant Transformation Gifs Becoming Stickers Across Discord, WhatsApp & More for 2024</u></a></li>
-<li><a href="https://ai-video-editing.techidaily.com/navigating-the-digital-world-with-toms-hardware-wisdom/"><u>Navigating the Digital World with Tom's Hardware Wisdom</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-in-2024-best-free-video-cutting-software-for-divx-files-2023-update/"><u>New In 2024, Best Free Video Cutting Software for Divx Files (2023 Update)</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-honor-90-gt-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Honor 90 GT Screen Mirroring App | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/speed-up-your-file-format-shift-from-srt-to-text-txt-for-2024/"><u>Speed-Up Your File Format Shift From SRT to Text (TXT) for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/toms-tech-hub-in-depth-reviews-and-news/"><u>Tom's Tech Hub: In-Depth Reviews and News</u></a></li>
-<li><a href="https://article-tips.techidaily.com/understanding-the-basics-of-vsco-filters-for-2024/"><u>Understanding the Basics of VSCO Filters for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/understanding-why-your-camera-stops-in-the-mid-action-for-2024/"><u>Understanding Why Your Camera Stops in the Mid-Action for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/where-to-find-budget-friendly-gopros-online-for-2024/"><u>Where to Find Budget-Friendly GoPros Online for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/whimsical-words-in-motion-animated-captions-for-ig-stories/"><u>Whimsical Words in Motion Animated Captions for IG Stories</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-waterresistant-wondercameras-ranked-7/"><u>[New] 2024 Approved WaterResistant WonderCameras Ranked #7</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-deciphering-your-social-media-shadows-privacy-on-facebook/"><u>[New] Deciphering Your Social Media Shadows Privacy on Facebook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exclusive-techniques-to-maximize-windows-11-for-2024/"><u>[New] Exclusive Techniques to Maximize Windows 11 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-optimal-days-for-podcast-drops/"><u>[New] Optimal Days for Podcast Drops</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-reimagine-video-narratives-with-windows-10s-story-remix-tool-for-2024/"><u>[New] Reimagine Video Narratives with Windows 10'S Story Remix Tool for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-cutting-edge-video-techniques-for-windows-11-users/"><u>[Updated] 2024 Approved Cutting-Edge Video Techniques for Windows 11 Users</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-ultimate-breakdown-of-12-youtubes-best-in-class-gaming-openings/"><u>[Updated] The Ultimate Breakdown of 12 YouTube's Best-in-Class Gaming Openings</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-unlock-potential-in-social-media-storytelling-fb-slideshows-for-2024/"><u>[Updated] Unlock Potential in Social Media Storytelling FB Slideshows for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/easy-instructions-for-downloading-and-setting-up-microsoft-store-apps-on-windows-10/"><u>Easy Instructions for Downloading and Setting Up Microsoft Store Apps on Windows 10</u></a></li>
+<li><a href="https://os-tips.techidaily.com/end-of-an-era-the-discontinuation-of-the-iconic-iphone-13-mini/"><u>End of an Era: The Discontinuation of the Iconic iPhone 13 Mini</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/snapchat-tricks-unveiled-a-complete-guide-to-reverse-video-effects/"><u>Snapchat Tricks Unveiled: A Complete Guide to Reverse Video Effects</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-art-of-blending-primary-footage-with-b-roll/"><u>The Art of Blending Primary Footage with B Roll</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/top-starter-gear-for-gopro-cameras/"><u>Top Starter Gear for GoPro Cameras</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/troubleshooting-steps-improve-your-handbrake-generated-videos-visual-fidelity/"><u>Troubleshooting Steps: Improve Your Handbrake-Generated Video's Visual Fidelity</u></a></li>
 </ul></div>
+

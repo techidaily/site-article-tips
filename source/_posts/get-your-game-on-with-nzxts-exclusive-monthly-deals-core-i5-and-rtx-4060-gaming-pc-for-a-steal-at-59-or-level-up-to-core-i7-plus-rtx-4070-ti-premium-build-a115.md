@@ -1,0 +1,73 @@
+---
+title: "Get Your Game On with NZXT's Exclusive Monthly Deals: Core I5 & RTX 4060 Gaming PC for a Steal at $59 or Level Up to Core I7 + RTX 4070 Ti Premium Build at Just $169"
+date: 2024-09-08T17:48:33.242Z
+updated: 2024-09-15T16:05:20.324Z
+tags:
+  - desktop
+categories:
+  - hardware
+thumbnail: https://thmb.techidaily.com/b8cf7f364a0eb33deca5de4b670b31137b8637ef9737c06562bbb999378e5773.jpg
+---
+
+## Get the Best of Both Worlds! Affordable Intel I5, GTX 4060 NZXT Gaming PC at $59/Month or Indulge in Luxury with Core I7 and RTX 4070 Ti for $169 a Month
+
+NZXT has initiated a new subscription plan —[NZXT Flex](https://shareasale.com/r.cfm?b=755373&u=4338022&m=60525&afftrack=techidaily&urllink=https%3A%2F%2Fsilver-cuisine.pxf.io%2Fnlgolx) — that enables gamers to rent a pre-built NZXT gaming system for a monthly fee. With NZXT Flex, customers can rent a gaming PC for as little as $59 monthly with guaranteed component upgrades every two years.
+
+ NZXT Flex has three subscription tiers revolving around NZXT's pre-existing Player pre-built gaming PCs. The Player: One, featuring a Core i5-14400F,[RTX 4060](https://www.tomshardware.com/reviews/nvidia-geforce-rtx-4060-review-asus-dual) , and H5 Flow case, is the cheapest offering with NZXT's subscription service that can be rented for $59 monthly. The Player: Two is the mid-range offering featuring a Ryzen 5 5600X, RTX 4070 Super, and H5 Elite case, which can be rented for $119 monthly. The Player: Three is the most potent system users can rent from NZXT, featuring a Core i7-13700KF, RTX 4070 Ti Super, and H7 Flow chassis for $169 monthly.
+
+ Additional perks of the Flex subscription service include a lifetime warranty and 24/7 support. Customers who keep their systems long enough will also receive "guaranteed" PC upgrades every two years to keep their systems up to date.
+
+![NZXT Flex Subscription Tiers](https://cdn.mos.cms.futurecdn.net/xHzgMBCkYAYYHmc6iPETgK-320-80.png)
+
+(Image credit: NZXT)
+
+ Flex was made to improve PC gaming accessibility. According to Bryan De Zayas, NZXT's Head of Marketing: "At NZXT, we believe everyone should be able to play the games they love," "In the past, that meant buying a pre-built PC or building your own. Our new Flex subscription service offers gamers more flexibility and choice, so they can focus on what really matters – playing the games they love." NZXT's subscription service gives gamers access to a modern gaming PC when they otherwise couldn't afford one.
+
+ LATEST VIDEOS FROM tomshardware Tom's Hardware
+
+ The only caveat with NZXT Flex is that it starts to lose its value over a long period — for customers who plan to rent their machines for over two years. The Player: One, for instance, can be bought for approximately $1,054.00 with virtually the same specs as the rentable version for $59 a month, translating into almost 18 months before you've spent enough money to buy the system outright (approximately). But the upside is that you are getting unlimited support and free component upgrades every two years.
+
+ Flex won't be for everyone, but for gamers who need a modern gaming PC in a pinch and don't want to buy a new system on a credit card (which can add interest to the system's total cost), NZXT's Flex subscription service is a solution.
+
+## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
+
+ Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
+
+ Contact me with news and offers from other Future brands  Receive email from us on behalf of our trusted partners or sponsors
+
+ By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-format="autorelaxed"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="1223367746"></ins>
+
+<ins class="adsbygoogle"
+     style="display:block"
+     data-ad-client="ca-pub-7571918770474297"
+     data-ad-slot="8358498916"
+     data-ad-format="auto"
+     data-full-width-responsive="true"></ins>
+
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-skype-soundtrack-hub-finding-the-right-tones-online/"><u>[New] In 2024, Skype Soundtrack Hub Finding the Right Tones Online</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/nleash-creativity-with-top-10-youtube-short-video-editors/"><u>[New] Unleash Creativity with Top 10 YouTube Short Video Editors</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-step-by-step-tutorial-to-create-engaging-valorant-videos-with-thumbnails/"><u>[Updated] 2024 Approved Step-by-Step Tutorial to Create Engaging Valorant Videos with Thumbnails</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-how-to-successfully-embed-youtube-playlists-via-web-scripts/"><u>[Updated] How to Successfully Embed YouTube Playlists via Web Scripts</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-innovating-everyday-life-top-10-vr-accessory-guide/"><u>[Updated] Innovating Everyday Life Top 10 VR Accessory Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-quintessential-writes-for-diverse-cinematic-fields/"><u>[Updated] Quintessential Writes for Diverse Cinematic Fields</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-honor-x9a-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Honor X9a without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-augment-your-cams-with-top-accessory-picks/"><u>In 2024, Augment Your Cams with Top Accessory Picks</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-16-video-openers-to-surge-your-traffic/"><u>Prime 16 Video Openers to Surge Your Traffic</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/streamline-digital-hygiene-using-stellar-file-eraser-5-configurable-windows-interface-and-pre-set-cleanup-timetables-for-optimal-security/"><u>Streamline Digital Hygiene Using Stellar File Eraser 5 - Configurable Windows Interface & Pre-Set Cleanup Timetables for Optimal Security</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2098701/14409" target="_top" id="2098701">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098701" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098701/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

@@ -1,7 +1,7 @@
 ---
 title: "[New] Photoshop's Handy Hacks for Horizontal and Vertical Warping"
-date: 2024-09-09T10:26:02.462Z
-updated: 2024-09-10T10:26:02.462Z
+date: 2024-09-14T17:40:00.814Z
+updated: 2024-09-15T16:43:16.762Z
 tags: 
   - screen-recording
   - ai video
@@ -34,12 +34,6 @@ After creating the new document, open the image that you want to curve. You may 
 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139110/17108" target="_top" id="2139110">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139110" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139110/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step3Warp the Image
 
 Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking and holding on the Transform Tool in the toolbar. The Warp Tool is located at the bottom of the Transform Tool's fly-out menu. Alternatively, you may press Ctrl+T or Command+T on your keyboard to open the Transform Tool's fly-out menu and then select the Warp Tool from there.
@@ -52,48 +46,18 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123471/16836" target="_top" id="2123471">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123471" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123471/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134238/18498" target="_top" id="2134238">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134238" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134238/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137209/26400" target="_top" id="2137209">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137209" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137209/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
@@ -104,12 +68,6 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
 We hope this post has helped you learn how to curve an image in Photoshop. The best part about it? It's easy to do, and you can do it quickly. So, don't wait another minute! Get out there and start curving your images today (we know we are).
@@ -144,44 +102,27 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-download-free-sound-effects-for-youtubers/"><u>[New] 2024 Approved Download Free Sound Effects for YouTubers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultimate-guide-to-audio-selection-in-video-unboxing/"><u>[New] 2024 Approved The Ultimate Guide to Audio Selection in Video Unboxing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-closing-credits-creations-affordable-premium-and-more/"><u>[New] In 2024, Closing Credits Creations Affordable, Premium & More</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-beginners-blueprint-for-dynamic-illustration/"><u>[New] In 2024, The Beginner's Blueprint for Dynamic Illustration</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-unveiling-the-power-of-grading-insights-from-dr-john-doe/"><u>[New] In 2024, Unveiling the Power of Grading Insights From Dr. John Doe</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-packing-list-film-your-excursions-for-2024/"><u>[New] Packing List Film Your Excursions for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-premium-quick-insight-for-pics-on-win-11-for-2024/"><u>[New] Premium Quick Insight for Pics on Win 11 for 2024</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-pro-video-setup-the-ultimate-recording-companion-for-2024/"><u>[New] Pro Video Setup The Ultimate Recording Companion for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-quintessential-14-text-motion-design-examples-for-2024/"><u>[New] Quintessential 14 Text Motion Design Examples for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-step-by-step-to-effortless-iphone-screen-recording-for-2024/"><u>[New] Step-by-Step to Effortless IPhone Screen Recording for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/updated-capture-the-moment-no-cost-cross-platform-screen-recorders-for-pcmac/"><u>[Updated] Capture the Moment - No-Cost, Cross-Platform Screen Recorders for PC/Mac</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-crafting-success-on-youtube-standard-studio-or-beta-for-2024/"><u>[Updated] Crafting Success on YouTube Standard Studio or Beta for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-futuristic-enlightenment-the-best-30-virtual-musings/"><u>[Updated] Futuristic Enlightenment The Best 30 Virtual Musings</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/updated-game-modders-and-tutorial-content-leaders/"><u>[Updated] Game Modders & Tutorial Content Leaders</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-harnessing-the-power-of-fisheye-photography/"><u>[Updated] Harnessing the Power of Fisheye Photography</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-boosting-team-engagement-with-zoom-techniques-on-msteams/"><u>[Updated] In 2024, Boosting Team Engagement with ZOOM Techniques on MSTEAMS</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-demystifying-the-process-of-high-dynamic-range-in-photoshop/"><u>[Updated] In 2024, Demystifying the Process of High Dynamic Range in Photoshop</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-professional-4k-capture-selecting-top-gimbals/"><u>[Updated] Professional 4K Capture Selecting Top Gimbals</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-strategic-approaches-to-maximize-impact-with-spotify-ads-for-2024/"><u>[Updated] Strategic Approaches to Maximize Impact with Spotify Ads for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-tomorrows-digital-playground-a-comparative-study-of-metaverse-and-omniverse-for-2024/"><u>[Updated] Tomorrow's Digital Playground A Comparative Study of Metaverse & Omniverse for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-graphic-wizardry-from-novice-to-industry-success-story/"><u>2024 Approved Graphic Wizardry From Novice to Industry Success Story</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/2024-approved-youtubes-chief-revenue-generator/"><u>2024 Approved YouTube’s Chief Revenue Generator</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/artisanaiphotostudio-seamless-image-magic/"><u>ArtisanAiPhotoStudio Seamless Image Magic</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/expert-tips-for-resolving-the-missing-msidll-file-error-on-your-pc/"><u>Expert Tips for Resolving the Missing msi.dll File Error on Your PC</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/exploring-superior-performance-on-the-apple-iphone-12-pro-max-going-big-has-its-perks/"><u>Exploring Superior Performance on the Apple iPhone 12 Pro Max - Going Big Has Its Perks!</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/how-can-i-get-more-stardust-in-pokemon-go-on-oppo-reno-8t-5g-drfone-by-drfone-virtual-android/"><u>How can I get more stardust in pokemon go On Oppo Reno 8T 5G? | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-full-guide-to-fix-itoolab-anygo-not-working-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>In 2024, Full Guide to Fix iToolab AnyGO Not Working On Tecno Pop 8 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-photography-tips-for-iphone/"><u>In 2024, Photography Tips for iPhone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-smartphone-evolution-at-4k-peaks-sony-xperia-xz-reviewed/"><u>In 2024, Smartphone Evolution at 4K Peaks – Sony Xperia XZ Reviewed</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-top-iphone-filming-software-catalog/"><u>In 2024, Top iPhone Filming Software Catalog</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/kids-choice-awards-premiere-meet-the-new-american-version-of-nickwatch/"><u>Kids' Choice Awards Premiere: Meet the New American Version of NickWatch!</u></a></li>
-<li><a href="https://article-tips.techidaily.com/masters-list-of-affordable-and-premium-win-art-tools/"><u>Master's List of Affordable & Premium Win Art Tools</u></a></li>
-<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-elevate-your-storytelling-a-guide-to-making-videos-with-photos-and-music/"><u>New 2024 Approved Elevate Your Storytelling A Guide to Making Videos with Photos and Music</u></a></li>
-<li><a href="https://article-tips.techidaily.com/paving-your-way-to-cost-savvy-cloud-choices-for-2024/"><u>Paving Your Way to Cost-Savvy Cloud Choices for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/premier-mac-4k-monitor-selections-top-10-edition-for-2024/"><u>Premier Mac 4K Monitor Selections Top 10 Edition for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-drone-enthusiasts-guide-to-vibration-reduction-and-image-quality-for-2024/"><u>The Drone Enthusiast's Guide to Vibration Reduction and Image Quality for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/the-elusive-recorder-ghostcam-unveiled/"><u>The Elusive Recorder Ghostcam Unveiled</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/the-secret-to-higher-rankings-discover-how-cookiebot-can-help/"><u>The Secret to Higher Rankings? Discover How Cookiebot Can Help</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/the-ultimate-guide-to-sync-obs-with-facebook-for-2024/"><u>The Ultimate Guide to Sync OBS with Facebook for 2024</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/which-pokemon-can-evolve-with-a-moon-stone-for-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>Which Pokémon can Evolve with a Moon Stone For Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/to-retweet-vs-to-re-tweet-are-they-synonymous-in-twitter-usage/"><u>'To Retweet' Vs. 'To Re-Tweet': Are They Synonymous in Twitter Usage?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dynamic-14-visual-expressions-with-text-animation/"><u>[New] Dynamic 14 Visual Expressions with Text Animation</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-beyond-social-media-norms-the-distinctive-features-of-triller-for-2024/"><u>[Updated] Beyond Social Media Norms The Distinctive Features of Triller for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-exploring-varieties-in-gesture-tech/"><u>[Updated] Exploring Varieties in Gesture Tech</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-gopro-hero4-session-vs-hero5-session-for-2024/"><u>[Updated] GoPro Hero4 Session Vs Hero5 Session for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-hero-session-evolution-four-to-five-for-2024/"><u>[Updated] Hero Session Evolution Four to Five for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-transformative-copywriting-the-triad-technique-that-elevates-facebook-campaigns-for-2024/"><u>[Updated] Transformative Copywriting The Triad Technique That Elevates Facebook Campaigns for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-quick-quality-edits-the-ultimate-guide-to-pixlr/"><u>2024 Approved Quick, Quality Edits The Ultimate Guide to Pixlr</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/a-guide-on-booking-an-expert-consultation-with-apples-geniuses/"><u>A Guide on Booking an Expert Consultation with Apple’s Geniuses</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/anuncrypting-anycubic-brave-move-exposes-vulnerability-to-warn-users/"><u>Anuncrypting Anycubic: Brave Move Exposes Vulnerability to Warn Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/everything-you-need-to-know-before-upgrading-to-windows-10-for-2024/"><u>Everything You Need To Know Before Upgrading To Windows 10 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-top-picks-for-kids-and-first-time-fliers-easy-drone-models/"><u>In 2024, Top Picks for Kids & First-Time Fliers Easy Drone Models</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/navigating-fb-video-conversion-to-professional-quality-mp3s-for-2024/"><u>Navigating FB Video Conversion to Professional-Quality MP3s for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/refining-audio-in-obs-high-quality-mode/"><u>Refining Audio in OBS High-Quality Mode</u></a></li>
+<li><a href="https://windows11.techidaily.com/windows-powered-disk-cloning-no-add-ons-needed/"><u>Windows-Powered Disk Cloning, No Add-Ons Needed</u></a></li>
 </ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+

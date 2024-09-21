@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Ultimate Selection  The Top 15+ VR Games on Google Cardboard\""
-date: 2024-07-10T21:43:44.081Z
-updated: 2024-07-11T21:43:44.081Z
+date: 2024-09-16T19:01:06.157Z
+updated: 2024-09-20T16:34:09.927Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ It has simple look based controls that will allow players to pick up and play th
 
 If you want to be scared, then go play Sisters. It is best to prank your friends who think that VR games are not that scary. However, there are reports that it keeps on crashing on low-end Android phones.
 
+<!-- affiliate ads begin -->
+<a href="https://sentrypc.7eer.net/c/5597632/398449/3022" target="_top" id="398449">
+  <img src="//a.impactradius-go.com/display-ad/3022-398449" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398449/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 5. Waa! VR
 
 The little astronaut is back, and now he explores a VR world. The objective of the game is to destroy incoming asteroids by shooting them with homing missiles. No controllers are required. It features 360 free look, and you just need to focus to select the target.
@@ -83,6 +90,13 @@ Waa! is a VR game that kids will enjoy. The gameplay is simple and just right fo
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ursime.pxf.io/c/5597632/2136545/16384" target="_top" id="2136545">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136545" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136545/16384" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -106,6 +120,18 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-quieting-down-the-sound-a-step-by-step-logic-pro-method/"><u>[New] 2024 Approved Quieting Down the Sound A Step-by-Step Logic Pro Method</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-tune-into-the-beats-with-these-free-online-scanners/"><u>[New] 2024 Approved Tune Into the Beats with These Free Online Scanners</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-crafting-compelling-online-presentations-using-zoom-for-youtube-broadcasts-for-2024/"><u>[New] Crafting Compelling Online Presentations Using Zoom for YouTube Broadcasts for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-oceans-bounty-best-cameras-for-anglers/"><u>[Updated] 2024 Approved Ocean's Bounty - Best Cameras for Anglers</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-boosting-channel-success-scaling-for-a-million-viewers/"><u>[Updated] In 2024, Boosting Channel Success Scaling for a Million Viewers</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-channel-growth-on-a-dime-attracting-sponsors-with-simplicity/"><u>[Updated] In 2024, Channel Growth on a Dime Attracting Sponsors with Simplicity</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-easy-guide-to-oppo-a18-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Oppo A18 FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-xiaomi-redmi-a2plus-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Xiaomi Redmi A2+ to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-media-effects-a-comprehensive-guide-to-device-filters/"><u>Mastering Media Effects A Comprehensive Guide to Device Filters</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/mov-video-editing-on-a-budget-top-10-free-editors/"><u>MOV Video Editing on a Budget Top 10 Free Editors</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/smooth-cuts-and-seamless-edits-top-6-mac-videos-editors/"><u>Smooth Cuts and Seamless Edits Top 6 Mac Videos Editors</u></a></li>
+</ul></div>
 

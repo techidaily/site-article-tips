@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Easy Steps to Master Volume Control Transitions"
-date: 2024-09-10T18:11:37.980Z
-updated: 2024-09-15T18:29:34.136Z
+date: 2024-09-17T17:37:44.308Z
+updated: 2024-09-20T18:31:19.430Z
 tags: 
   - screen-recording
   - ai video
@@ -83,37 +83,38 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ## Part 3\. Related FAQs
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137975/21526" target="_top" id="2137975">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137975" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137975/21526" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027162/19272" target="_top" id="2027162">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027162" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027162/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -124,13 +125,6 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
@@ -143,18 +137,18 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115951/19272" target="_top" id="2115951">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115951" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115951/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs
 
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037345/7443" target="_top" id="2037345">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037345" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037345/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How do you do a master fade in Audition?
 
@@ -196,16 +190,13 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-selfie-validation-is-it-essential-for-instagram-users/"><u>[New] Selfie Validation Is It Essential for Instagram Users?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-simple-steps-to-master-no-cost-time-tracking/"><u>[New] Simple Steps to Master No-Cost Time Tracking</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-transform-your-images-on-android-our-picks-for-the-5-best-editors/"><u>[New] Transform Your Images on Android Our Picks for the 5 Best Editors</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/new-unlimited-potential-with-best-in-class-pp-templates/"><u>[New] Unlimited Potential with Best-in-Class PP Templates</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-total-exploration-of-vsco-photography-functions/"><u>[Updated] 2024 Approved Total Exploration of VSCO Photography Functions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-transform-your-images-on-android-our-picks-for-the-5-best-editors/"><u>[Updated] In 2024, Transform Your Images on Android Our Picks for the 5 Best Editors</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-secure-swift-airdrop-connections-on-all-apple-devices-fix-guide/"><u>[Updated] Secure Swift Airdrop Connections on All Apple Devices - Fix Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-toonhub-pro-analysis-2024-report/"><u>[Updated] ToonHub Pro Analysis 2024 Report</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/our-youtube-live-with-these-7-powerful-live-streaming-apps-iosandroid-os-for-2024/"><u>Ace Your YouTube LIVE with These 7 Powerful Live Streaming Apps (iOS/Android OS) for 2024</u></a></li>
-<li><a href="https://network-issues.techidaily.com/fallout-4-peace-eradicate-pc-crashes/"><u>Fallout 4 Peace: Eradicate PC Crashes</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-contacts-from-realme-11-proplus-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Contacts from Realme 11 Pro+ To Phone | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlocking-the-top-5-virtual-title-designers/"><u>[New] 2024 Approved Unlocking the Top 5 Virtual Title Designers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-pro-tips-to-elevate-your-headline-game/"><u>[Updated] Pro Tips to Elevate Your Headline Game</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-snap-fast-moments-iphone-methods-for-blur-effects/"><u>[Updated] Snap Fast Moments IPhone Methods for Blur Effects</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/2024-approved-mastering-s2t-integration-with-powerpoint/"><u>2024 Approved Mastering S2T Integration with PowerPoint</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/effective-political-advertising-strategies-utilize-movavi-for-compelling-voter-outreach-graphics/"><u>Effective Political Advertising Strategies: Utilize Movavi for Compelling Voter Outreach Graphics</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-exquisite-makeup-moments-captured/"><u>In 2024, Exquisite Makeup Moments Captured</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-the-ultimate-list-of-effective-snapchat-techniques/"><u>In 2024, The Ultimate List of Effective Snapchat Techniques</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/launchpad-for-twitter-beginners/"><u>Launchpad for Twitter Beginners</u></a></li>
 </ul></div>
 

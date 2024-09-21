@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Ignite Your Creative Journey  Blending Photography & Videos Through Pixiz\""
-date: 2024-07-10T21:40:59.137Z
-updated: 2024-07-11T21:40:59.137Z
+date: 2024-09-16T21:37:18.688Z
+updated: 2024-09-20T17:54:41.339Z
 tags: 
   - screen-recording
   - ai video
@@ -102,6 +102,13 @@ Step6**Double click the text** to open the box for **making edits in text**, fon
 
 ![double click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111968/7443" target="_top" id="2111968">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111968" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111968/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step7Let's add some music. **Click** the **audio tab** at the top right. Now **choose** some **music** and then **drag and drop** to add.
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
@@ -148,6 +155,13 @@ Step5**Click** on the **Title** option in the top right and select the **title t
 
 ![click on the title](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6**Double click the text** to open the box for **making edits in text**, font, color, and other options.
 
 ![double click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-10.jpg)
@@ -156,13 +170,34 @@ Step7Let's add some music. **Click** the **audio tab** at the top right. Now **c
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step8You can **double-click** the music to open the **settings box** and make changes.
 
 ![change music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettiit.sjv.io/c/5597632/2148127/17093" target="_top" id="2148127">
+  <img src="//a.impactradius-go.com/display-ad/17093-2148127" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2148127/17093" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step9To make your slideshow more appealing, you can also add transitions or effects.
 
 ![add transitions or effects](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-13.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123727/7443" target="_top" id="2123727">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123727" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123727/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step10After finishing all the editing, you can export your creation to any format you want.
 
@@ -198,6 +233,22 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-dusk-to-dawn-expert-iphone-low-light-techniques/"><u>[New] 2024 Approved Dusk to Dawn Expert iPhone Low Light Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-soundscape-adjustments-fading-volume-with-precision-in-logic-pro/"><u>[New] 2024 Approved Soundscape Adjustments Fading Volume with Precision in Logic Pro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-digital-dazzle-tools-to-brighten-online-videos/"><u>[Updated] In 2024, Digital Dazzle Tools to Brighten Online Videos</u></a></li>
+<li><a href="https://blog-min.techidaily.com/convert-iso-files-to-mp4-format-a-step-by-step-guide-for-mac-and-windows-users/"><u>Convert ISO Files to MP4 Format: A Step-by-Step Guide for Mac & Windows Users</u></a></li>
+<li><a href="https://fox-access.techidaily.com/elevate-your-song-listening-with-these-top-6-android-apps/"><u>Elevate Your Song Listening With These Top 6 Android Apps</u></a></li>
+<li><a href="https://win-forum.techidaily.com/how-to-free-up-drive-space-in-windows-11-revouninstaller/"><u>How to Free Up Drive Space in Windows 11 - RevoUninstaller</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-6-ways-to-transfer-contacts-from-xiaomi-mix-fold-3-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 6 Ways To Transfer Contacts From Xiaomi Mix Fold 3 to iPhone | Dr.fone</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone 7 Plus | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-creating-quantum-displacement-effects/"><u>In 2024, Creating Quantum Displacement Effects</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-optimize-your-talk-on-chrome-best-web-based-speech-conversion-services/"><u>In 2024, Optimize Your Talk on Chrome Best Web-Based Speech Conversion Services</u></a></li>
+<li><a href="https://techidaily.com/is-your-meizu-21-pro-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Meizu 21 Pro working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/leveraging-viewership-the-mechanics-of-product-sponsored-youtube-videos-for-2024/"><u>Leveraging Viewership The Mechanics of Product-Sponsored YouTube Videos for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/master-your-mac-with-ease-an-ultimate-guide-to-utilizing-preview-app/"><u>Master Your Mac with Ease An Ultimate Guide to Utilizing Preview App</u></a></li>
+<li><a href="https://techidaily.com/the-ultimate-guide-how-to-upgrade-bios-compatible-with-windows-11/"><u>The Ultimate Guide: How to Upgrade BIOS Compatible with Windows 11</u></a></li>
+<li><a href="https://fox-links.techidaily.com/trasforma-i-tuoi-file-tiff-in-formato-bmp-online-senza-costi-utilizzando-movavi/"><u>Trasforma I Tuoi File TIFF in Formato BMP Online Senza Costi, Utilizzando Movavi</u></a></li>
+</ul></div>
 

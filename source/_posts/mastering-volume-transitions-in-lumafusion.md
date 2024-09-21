@@ -1,7 +1,7 @@
 ---
 title: "Mastering Volume Transitions in Lumafusion"
-date: 2024-09-08T18:37:45.287Z
-updated: 2024-09-15T16:35:06.418Z
+date: 2024-09-17T18:20:11.891Z
+updated: 2024-09-20T20:33:51.799Z
 tags: 
   - screen-recording
   - ai video
@@ -85,22 +85,15 @@ In that window, you can select the MP3 format in the format customization box to
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115911/19272" target="_top" id="2115911">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115911" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115911/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
@@ -127,6 +120,13 @@ The fade-in audio button inside your audio file may be seen when you just hover 
 
 ![apply fade effects](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step4 Share and export
 
 After finishing the method for editing audio in Filmora, click the Export button in the top menu corner as shown here:
@@ -144,10 +144,10 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134243/18498" target="_top" id="2134243">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134243" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134243/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
@@ -178,20 +178,17 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-bypassing-youtube-previews-the-invisible-button-hack-for-2024/"><u>[New] Bypassing YouTube Previews The Invisible Button Hack for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-crafting-the-future-revolutionary-tools-for-3d-modelers-for-2024/"><u>[New] Crafting the Future Revolutionary Tools for 3D Modelers for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-exploring-free-animation-methods-onlineoffline-for-2024/"><u>[New] Exploring Free Animation Methods Online/Offline for 2024</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-the-ultimate-guide-to-adaptive-igtv-video-dimensions/"><u>[New] In 2024, The Ultimate Guide to Adaptive IGTV Video Dimensions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-unlock-limitless-space-choose-from-top-20-free-cloud-providers/"><u>[New] In 2024, Unlock Limitless Space Choose From Top 20 Free Cloud Providers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-photoshops-handy-hacks-for-horizontal-and-vertical-warping/"><u>[New] Photoshop's Handy Hacks for Horizontal and Vertical Warping</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-leveraging-camera-roll-for-nostalgic-snaps-via-snapchat/"><u>[Updated] Leveraging Camera Roll for Nostalgic Snaps via Snapchat</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/updated-mastering-cross-platform-tweeting-twitterfacebook-for-2024/"><u>[Updated] Mastering Cross-Platform Tweeting (Twitter/Facebook) for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-transformative-tiktok-techniques-unveiled/"><u>[Updated] Transformative TikTok Techniques Unveiled</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/updated-visual-virtuosity-unleashed-professional-tips-to-elevate-your-photos/"><u>[Updated] Visual Virtuosity Unleashed Professional Tips to Elevate Your Photos</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-ultimate-guide-to-the-lg-bp350-visual-experience/"><u>2024 Approved Ultimate Guide to the LG BP350 Visual Experience</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/compile-of-top-15-gopro-stabilizers-and-mounts/"><u>Compile of Top 15 GoPro Stabilizers & Mounts</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/elite-8-blu-ray-player-rankings-for-4k-quality/"><u>Elite 8 Blu-Ray Player Rankings for 4K Quality</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/four-k-faceoff-sj6-legend-versus-xiaomis-yi-prototype-for-2024/"><u>Four-K Faceoff SJ6 Legend Versus Xiaomi's Yi Prototype for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-huawei-nova-y91-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Huawei Nova Y91 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-2024-approved-crafting-the-perfect-schedule-for-jobs-and-youtube/"><u>[New] 2024 Approved Crafting the Perfect Schedule for Jobs & YouTube</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-2024-approved-harnessing-the-power-of-targeted-video-appeal/"><u>[New] 2024 Approved Harnessing the Power of Targeted Video Appeal</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-speedy-windows-file-review-strategies/"><u>[New] Speedy Windows File Review Strategies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-preserve-your-legacy-transforming-older-images-into-modern-videos/"><u>[Updated] 2024 Approved Preserve Your Legacy Transforming Older Images Into Modern Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-eye-catching-youtube-most-followed-channels/"><u>[Updated] In 2024, Eye-Catching YouTube Most Followed Channels</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-smart-shopping-for-action-cameras-optimal-under-100-lists/"><u>[Updated] Smart Shopping for ACTION Cameras Optimal Under $100 Lists</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-snap-edit-share-your-initial-guide-to-lunapic/"><u>[Updated] Snap, Edit, Share Your Initial Guide to LunaPic</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unlock-the-power-of-pinterest-top-5-free-extractors-at-hand/"><u>[Updated] Unlock the Power of Pinterest Top 5 Free Extractors at Hand</u></a></li>
+<li><a href="https://discover-able.techidaily.com/2024mac-mac/"><u>「2024年度絕對不可失的Mac媲美品播放解 -【完全免費Mac影音資料夾選錯見！】」</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/how-to-edit-facebook-look-back-video/"><u>How to Edit Facebook Look Back Video</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-realme-11-5g-phone-without-pin-by-drfone-android/"><u>In 2024, How to Unlock Realme 11 5G Phone without PIN</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ultimate-digital-destinations-for-text-overlays-for-2024/"><u>Ultimate Digital Destinations for Text Overlays for 2024</u></a></li>
 </ul></div>
 

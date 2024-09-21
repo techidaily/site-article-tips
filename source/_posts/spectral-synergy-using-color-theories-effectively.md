@@ -1,7 +1,7 @@
 ---
 title: "\"Spectral Synergy  Using Color Theories Effectively\""
-date: 2024-09-09T17:53:58.132Z
-updated: 2024-09-15T18:42:20.496Z
+date: 2024-09-18T00:31:16.932Z
+updated: 2024-09-21T00:02:02.571Z
 tags: 
   - screen-recording
   - ai video
@@ -56,10 +56,16 @@ The blue lines represent what is known as split contrasting colors and these wil
 The corners of the black rectangle land on what is known as tetradic complement and allows you to add four colors with the understanding that they will complement each other perfectly. Lastly is the purple line which represents the analogous complementary colors, you can pick these neighboring colors with the peace of mind that they will harmonize with each other. There are many more but these four are the main ones that you will use more often than any other, by selecting colors using these four main types you can create a palette for your scenes and allow the viewer to effortlessly enjoy your content. These types work no matter where you start from on the wheel so long as you keep the distances the same.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115941/19272" target="_top" id="2115941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115941" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## But How Do I Use This
@@ -68,18 +74,24 @@ You may still be unsure as to how to implement color theory into your videos. Le
 
 ![apply color theory video](https://images.wondershare.com/filmora/article-images/2022/08/apply-color-theory-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134496/18498" target="_top" id="2134496">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134496" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134496/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In this scene the director decided that the backdrop should complement the top the actor is wearing, looking at our wheel we can see the complementary color would be dark purple so they started with that, to create a more dynamic scene they then used the analogous colors of that purple being pink and red and created the backdrop. This creates a harmony within the scene and makes it effortless to see all the key elements straight away.
 
 As you can see from this example the base color for the scene is a dark blue/purple and using the analogous color of pink they created a point of interest within the scene that doesn't look out of place. This is a very good way to pull the viewers eyes towards something you want them to take in above all else.
 
 ![movie cover with color theory](https://images.wondershare.com/filmora/article-images/2022/08/movie-cover-with-color-theory.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983475">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983475.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983475">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983475.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983475%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983475/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 As you can see from all the movie covers above, they all use complementary colors from the blues to the war yellows and oranges, this creates high contrast and balance and is something done within the movie industry in every scene. It's no coincidence that the joker is purple and green or that the iron man is red and gold, this is well prepared and researched in the planning stages of everything a visual artist creates.
 
@@ -117,16 +129,21 @@ By including this into your thought process when creating videos with [Filmora](
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-heritage-on-display-post-copyright-masterpieces-for-2024/"><u>[New] Heritage on Display Post-Copyright Masterpieces for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-apex-legends-solo-mode-top-choices-for-non-crossplay-gaming/"><u>[Updated] 2024 Approved Apex Legends Solo Mode Top Choices for Non-Crossplay Gaming</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-from-conventional-to-cutting-edge-the-shift-from-rgb-to-srgb/"><u>[Updated] 2024 Approved From Conventional to Cutting-Edge The Shift From Rgb to Srgb</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-seamless-technique-inserting-a-direct-url-into-tiktok-bio/"><u>[Updated] 2024 Approved Seamless Technique Inserting a Direct URL Into TikTok Bio</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-supreme-4k-display-selection-the-best-of-ten-for-2024/"><u>[Updated] Supreme 4K Display Selection The Best of Ten for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-best-monitors-for-xbox-series-x-for-2024/"><u>[Updated] The Best Monitors for Xbox Series X for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-android-to-apple-how-to-transfer-photos-from-oppo-a79-5g-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, Android to Apple How To Transfer Photos From Oppo A79 5G to iPad Easily | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-leveraging-azures-voice-recognition-for-advanced-solutions/"><u>In 2024, Leveraging Azure's Voice Recognition for Advanced Solutions</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, Will Pokémon Go Ban the Account if You Use PGSharp On Nokia C02 | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/troubleshooting-guide-resolving-issues-with-utorrents-download-and-peer-connection/"><u>Troubleshooting Guide: Resolving Issues with uTorrent's Download and Peer Connection</u></a></li>
-<li><a href="https://common-error.techidaily.com/understanding-your-ps4s-sound-problems-expert-guide-to-identifying-and-fixing/"><u>Understanding Your PS4's Sound Problems: Expert Guide to Identifying and Fixing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dive-into-haul-video-making-a-beginners-editing-roadmap-for-2024/"><u>[New] Dive Into Haul Video Making A Beginner's Editing Roadmap for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-bridging-the-gap-between-audience-and-action/"><u>[New] In 2024, Bridging the Gap Between Audience and Action</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-synchronizing-soundscapes-a-guide-to-multi-service-moves/"><u>[New] In 2024, Synchronizing Soundscapes A Guide to Multi-Service Moves</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-tomorrows-examination-innovative-approaches/"><u>[New] In 2024, Tomorrow’s Examination Innovative Approaches</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-maximize-your-experience-with-windows-11-tricks/"><u>[New] Maximize Your Experience with Windows 11 Tricks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-boosting-your-macs-potential-with-sierra-update-steps/"><u>[Updated] Boosting Your Mac's Potential with Sierra Update Steps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-decoding-digital-dazzle-an-initial-journey-into-video-standards/"><u>[Updated] In 2024, Decoding Digital Dazzle An Initial Journey Into Video Standards</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-top-notch-hacks-navigating-instagrams-forgotten-features-for-2024/"><u>[Updated] Top-Notch Hacks Navigating Instagram's Forgotten Features for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/filefixers-experts-evaluation-for-2024/"><u>FileFixers Experts Evaluation for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/full-guide-to-unlock-your-infinix-smart-7-by-drfone-android/"><u>Full Guide to Unlock Your Infinix Smart 7</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-hassle-free-ways-to-remove-frp-lock-on-samsung-galaxy-m54-5gwithwithout-a-pc-by-drfone-android/"><u>In 2024, Hassle-Free Ways to Remove FRP Lock on Samsung Galaxy M54 5Gwith/without a PC</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-what-you-want-to-know-about-two-factor-authentication-for-icloud-from-your-apple-iphone-14-plus-by-drfone-ios/"><u>In 2024, What You Want To Know About Two-Factor Authentication for iCloud From your Apple iPhone 14 Plus</u></a></li>
+<li><a href="https://fox-that.techidaily.com/mastering-dfu-mode-on-ios-devices-steps-and-usage-guide/"><u>Mastering DFU Mode on iOS Devices: Steps & Usage Guide</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/monitor-mending-swift-steps-for-clear-visual-feed/"><u>Monitor Mending: Swift Steps for Clear Visual Feed</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-tutorial-setting-up-two-screens-in-windows-ln-zehn-from-start-to-finish/"><u>Ultimate Tutorial: Setting Up Two Screens in Windows ˈlɔːn Zehn - From Start to Finish</u></a></li>
+<li><a href="https://sound-tweaking.techidaily.com/updated-2024-approved-the-ultimate-list-of-free-bgm-music-streaming-sites-updated/"><u>Updated 2024 Approved The Ultimate List of Free BGM Music Streaming Sites, Updated</u></a></li>
 </ul></div>
 

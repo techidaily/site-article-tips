@@ -1,7 +1,7 @@
 ---
 title: "\"Capturing the Cosmos  Mastering Editing Techniques for Starry Images\""
-date: 2024-07-10T21:48:46.850Z
-updated: 2024-07-11T21:48:46.850Z
+date: 2024-09-15T21:22:23.193Z
+updated: 2024-09-20T20:57:00.270Z
 tags: 
   - screen-recording
   - ai video
@@ -58,6 +58,20 @@ One of the main reasons your images are looking flat is low contrast. Without a 
 
 ![adjust the image contrast](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087409/7443" target="_top" id="2087409">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087409" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087409/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 5\. Try Overlays
 
 Layering different textures and images to your photo is a great way to create visual interest in your image. Overlays are easy and helpful tools that are present in nearly all photography editing apps. You can use these to set the mood and create your desired atmosphere in the image.
@@ -65,6 +79,19 @@ Layering different textures and images to your photo is a great way to create vi
 Overlays are also useful for creating double exposure effects in your image. If you want to highlight some specific part of your photo, you can do it by adding a simple overlay. You can even adjust the transparency and intensity of the overlay to reach the desired effect.
 
 ![apply overlays to image](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-5.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1977023">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977023.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977023">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977023.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977023%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977023/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 6\. Straighten the Horizon
 
@@ -79,6 +106,26 @@ You can choose a baseline in your image and then adjust it to straighten the ima
 During the photography editing process, a little split-tone can go a long way. This means you can add specific colors to the shadows and highlights of your image. You can play with these colors to make your photos fall on the warm or cold end of the spectrum. Split tone can get out of hand pretty fast, so remember to keep it subtle.
 
 ![use split tone feature](https://images.wondershare.com/filmora/article-images/2022/photography-editing-tips-7.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880972/19272" target="_top" id="1880972">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880972" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880972/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 8\. Know your White Balance
 
@@ -130,6 +177,19 @@ You can try the photography editing tips mentioned above to enhance your images 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-achieve-seamless-retrieval-of-twitters-humor-gifs-on-your-system/"><u>[New] 2024 Approved Achieve Seamless Retrieval of Twitter's Humor (GIFs) on Your System</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-top-15-facebook-strategies-for-maximizing-online-selling-power/"><u>[New] 2024 Approved Top 15 Facebook Strategies for Maximizing Online Selling Power</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-unraveling-the-magic-of-time-extension-in-reels/"><u>[New] 2024 Approved Unraveling the Magic of Time Extension in Reels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-from-single-shots-to-unified-visions-a-mosaic-story-for-2024/"><u>[New] From Single Shots to Unified Visions A Mosaic Story for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-how-to-change-your-phones-ringtone-picking-from-viral-tiktok-sounds/"><u>[New] How To Change Your Phone's Ringtone Picking From Viral TikTok Sounds</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-spectacular-scenes-from-snowspeedcross-22/"><u>[New] In 2024, Spectacular Scenes From Snowspeedcross '22</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-elevate-your-mobile-game-skills-a-deep-dive-into-kinemaster-review/"><u>[Updated] 2024 Approved Elevate Your Mobile Game Skills A Deep Dive Into KineMaster Review</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-the-economics-of-youtube-ad-revenues-per-1000-views/"><u>[Updated] The Economics of YouTube Ad Revenues per 1000 Views</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/movavi-m4b-aac/"><u>最新の無料方法で：オンラインMovavi M4B AAC ビデオコンバートガイド</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-imei-unlokers-for-your-samsung-galaxy-s23-fe-phone-by-drfone-android/"><u>In 2024, Top IMEI Unlokers for Your Samsung Galaxy S23 FE Phone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-transcoding-excellence-from-xml-ssa-to-srt-mastery/"><u>In 2024, Transcoding Excellence From XML, SSA to SRT Mastery</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-agni-2-5g-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Agni 2 5G</u></a></li>
+</ul></div>
 

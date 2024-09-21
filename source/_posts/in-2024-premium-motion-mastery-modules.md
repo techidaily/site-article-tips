@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Premium Motion Mastery Modules"
-date: 2024-09-10T18:39:56.551Z
-updated: 2024-09-15T18:32:38.416Z
+date: 2024-09-19T20:51:10.244Z
+updated: 2024-09-21T00:23:37.745Z
 tags: 
   - screen-recording
   - ai video
@@ -45,11 +45,25 @@ There is always a high demand for dynamic text animations in After Effects. This
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
+  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
 
@@ -58,10 +72,10 @@ In this pack, you will find unique text effects, and you can animate text with k
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Text Library
@@ -76,20 +90,6 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123482/16836" target="_top" id="2123482">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123482/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 8\. Text Animation Lower Third
 
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
@@ -97,10 +97,16 @@ You get eleven styles of elements in the pack, and you can customize the designs
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1492813">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -137,16 +143,18 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-streamline-your-podcast-with-ease/"><u>[New] 2024 Approved Streamline Your Podcast With Ease</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-download-sites-showcasing-exquisite-text-effects/"><u>[New] 2024 Approved Top Download Sites Showcasing Exquisite Text Effects</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-art-of-subtle-sonic-softening-using-lumafusion/"><u>[Updated] The Art of Subtle Sonic Softening Using Lumafusion</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/2024-approved-crack-the-code-of-imagerys-roots-with-our-reverse-analysis-tools-for-instagram/"><u>2024 Approved Crack the Code of Imagery's Roots with Our Reverse Analysis Tools for Instagram</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/facebooks-rivalry-with-social-media-comparing-tiktok-and-snap/"><u>Facebook's Rivalry with Social Media Comparing TikTok & Snap</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/freefire-gaming-guide-maximizing-video-impact-for-2024/"><u>FreeFire Gaming Guide Maximizing Video Impact for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-can-i-play-mov-files-on-redmi-12-by-aiseesoft-video-converter-play-mov-on-android/"><u>How can I play .mov files on Redmi 12 ?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-oppo-f25-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Oppo F25 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-unlock-your-gionee-f3-pro-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>In 2024, Unlock Your Gionee F3 Pro Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/make-a-splash-impressive-video-edits-with-windows-10s-tools/"><u>Make a Splash Impressive Video Edits with Windows 10'S Tools</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/valheim-seeds-selection-and-cultivation-mastery-guide/"><u>Valheim Seeds Selection & Cultivation Mastery Guide</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/n-2024-video-venture-validation-benchmarking-against-business-rivals/"><u>[New] In 2024, Video Venture Validation Benchmarking Against Business Rivals</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-srgb-standardization-the-next-step-beyond-traditional-rgb/"><u>[Updated] 2024 Approved Srgb Standardization The Next Step Beyond Traditional Rgb</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-connecting-twitters-vids-with-fb-audience/"><u>[Updated] In 2024, Connecting Twitter's Vids with FB Audience</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-harnessing-light-and-motion-for-gopro-time-lapse-magic/"><u>[Updated] In 2024, Harnessing Light and Motion for GoPro Time-Lapse Magic</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-the-logo-journey-key-steps-in-crafting-iconic-covers/"><u>[Updated] The Logo Journey Key Steps in Crafting Iconic Covers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-videovisionary-pro8-for-2024/"><u>[Updated] VideoVisionary Pro8 for 2024</u></a></li>
+<li><a href="https://article-helps.techidaily.com/2024-approved-digitizing-creativity-prime-nft-generating-platforms-revealed/"><u>2024 Approved Digitizing Creativity Prime NFT-Generating Platforms Revealed</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-threefold-mastery-in-copy-for-social-media-campaigns-increasing-impact-with-every-word/"><u>2024 Approved Threefold Mastery in Copy for Social Media Campaigns – Increasing Impact with Every Word</u></a></li>
+<li><a href="https://win-dash.techidaily.com/get-the-latest-drivers-for-your-hp-officejet-pro-8600-on-pcs-and-laptops/"><u>Get the Latest Drivers for Your HP Officejet Pro 8600 on PCs and Laptops</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-remove-passcode-from-iphone-13-complete-guide-drfone-by-drfone-ios/"><u>How To Remove Passcode From iPhone 13? Complete Guide | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/mastering-hue-transformations-expert-tactics-revealed-for-2024/"><u>Mastering Hue Transformations Expert Tactics Revealed for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/no-cost-windowsmac-video-players-top-16-lists/"><u>No-Cost Windows/Mac Video Players, Top 16 Lists</u></a></li>
+<li><a href="https://extra-information.techidaily.com/render-movement-blur-in-digital-imagery/"><u>Render Movement Blur in Digital Imagery</u></a></li>
 </ul></div>
 

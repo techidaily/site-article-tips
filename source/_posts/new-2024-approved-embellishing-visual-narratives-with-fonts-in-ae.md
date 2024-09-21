@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Embellishing Visual Narratives with Fonts in AE\""
-date: 2024-07-10T21:39:45.509Z
-updated: 2024-07-11T21:39:45.509Z
+date: 2024-09-19T20:10:43.854Z
+updated: 2024-09-20T22:48:44.262Z
 tags: 
   - screen-recording
   - ai video
@@ -77,12 +77,26 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136618/26400" target="_top" id="2136618">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136618" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136618/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
 * If you want to add any opener (Intro) or end credits (outro) to your video, then there are plenty of options available in the "Title" tab. You can apply them by clicking on the "apply" button.
 * You can drag the edges of the text effect on the timeline to edit the duration of text on your video. The text effect can also be composed in the video frame by dragging anywhere you wish.
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135404/19272" target="_top" id="2135404">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135404" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135404/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -97,6 +111,13 @@ These features also include adding texts and changing the fonts of those texts o
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -131,6 +152,23 @@ The article discussed the detailed process of **how to add font to Adobe After E
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-sure.techidaily.com/lixfusion-the-ultimate-gaming-channel-mix-for-2024/"><u>[New] FlixFusion The Ultimate Gaming Channel Mix for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-in-2024-amp-up-your-ig-videos-crafting-winning-marketing-tactics/"><u>[New] In 2024, Amp Up Your IG Videos Crafting Winning Marketing Tactics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-screen-saviors-ranked-top-8-for-ios-filmmaking-apps/"><u>[New] In 2024, Screen Saviors Ranked Top 8 for iOS Filmmaking Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-totv-multimedia-player-wmp-alternative-for-2024/"><u>[New] TOTV Multimedia Player WMP Alternative for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-masterful-makeovers-picarts-backdrop-banishment-guide-for-2024/"><u>[Updated] Masterful Makeovers PicArt’s Backdrop Banishment Guide for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-select-selections-ideal-spots-to-download-snapalert-melodies-for-2024/"><u>[Updated] Select Selections Ideal Spots to Download SnapAlert Melodies for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-top-ranked-action-cameras-for-extreme-sports/"><u>2024 Approved Top-Ranked Action Cameras for Extreme Sports</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-apple-iphone-se-2020-drfone-by-drfone-virtual-ios/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Apple iPhone SE (2020) | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-apple-iphone-12-pro-in-3-ways-drfone-by-drfone-virtual-ios/"><u>Edit and Send Fake Location on Telegram For your Apple iPhone 12 Pro in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://win11.techidaily.com/effective-methods-to-enhance-laptop-response-time-post-extended-setup/"><u>Effective Methods to Enhance Laptop Response Time Post-Extended Setup</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/google-wireless-nest-doorbell-a-comprehensive-review-for-battery-operated-models/"><u>Google Wireless Nest Doorbell - A Comprehensive Review for Battery-Operated Models</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-initial-learning-executing-fade-ins-professionally/"><u>In 2024, Initial Learning Executing Fade-Ins Professionally</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-strategic-approaches-to-dominating-spotifys-ad-space/"><u>In 2024, Strategic Approaches to Dominating Spotify's Ad Space</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-updated-method-to-bypass-oppo-find-n3-flip-frp-by-drfone-android/"><u>In 2024, The Updated Method to Bypass Oppo Find N3 Flip FRP</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-hypervisorbsod-top-5-fixes-for-windows-os/"><u>Overcoming HYPERVISOR_BSOD: Top 5 Fixes for Windows OS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ultimate-picture-quality-tvs-best-10-in-4k/"><u>Ultimate Picture Quality TVs – Best 10 in 4K</u></a></li>
+</ul></div>
 

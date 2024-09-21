@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  From Stills to Movies  A Pixiz Tutorial for Photo Animators\""
-date: 2024-09-12T17:11:19.627Z
-updated: 2024-09-15T17:35:53.873Z
+date: 2024-09-19T18:30:54.950Z
+updated: 2024-09-20T18:43:18.041Z
 tags: 
   - screen-recording
   - ai video
@@ -95,27 +95,27 @@ Step3**Import** photos by **clicking** (import media) and then drag and drop the
 
 ![import photos](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043855/7443" target="_top" id="2043855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 **Double-click the photo** to open options to make your photos fit the screen (in case there is a gap on the sides). A new box will appear. Under the primary option, click the **transform tab**. You can **increase** the **scale** option to make the photo fit.
 
 ![option to make the photo fit](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step5**Click** on the **Title** option in the top right and select the **title template**. **Drag and drop** the **title template** at the point of the video you want it to appear.
 
 ![click on the title](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step6**Double click the text** to open the box for **making edits in text**, font, color, and other options.
 
@@ -124,13 +124,6 @@ Step6**Double click the text** to open the box for **making edits in text**, fon
 Step7Let's add some music. **Click** the **audio tab** at the top right. Now **choose** some **music** and then **drag and drop** to add.
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135402/19272" target="_top" id="2135402">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135402" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135402/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step8You can **double-click** the music to open the **settings box** and make changes.
 
@@ -145,10 +138,10 @@ Step10After finishing all the editing, you can export your creation to any forma
 ![export creation to any format](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-14.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -189,15 +182,22 @@ Step7Let's add some music. **Click** the **audio tab** at the top right. Now **c
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925570/19272" target="_top" id="1925570">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925570" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925570/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step8You can **double-click** the music to open the **settings box** and make changes.
 
 ![change music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123750/7443" target="_top" id="2123750">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2151871/7443" target="_top" id="2151871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151871" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123750/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151871/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step9To make your slideshow more appealing, you can also add transitions or effects.
@@ -240,15 +240,19 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-elevate-your-digital-life-top-wins11-experiences-for-2024/"><u>[New] Elevate Your Digital Life Top Wins11 Experiences for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-how-to-live-stream-with-onestream-online-and-app-for-2024/"><u>[New] How To Live Stream With OneStream - Online & App for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-obtain-exclusive-free-media-from-elite-4-youtube-clips/"><u>[New] Obtain Exclusive Free Media From Elite 4 YouTube Clips</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-the-artisans-guide-to-snapchat-filters-mastery-for-2024/"><u>[New] The Artisan's Guide to Snapchat Filters Mastery for 2024</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-simplify-screen-capture-the-6-key-steps-to-successfully-streaming-netflix-on-macos/"><u>[Updated] 2024 Approved Simplify Screen Capture The 6 Key Steps to Successfully Streaming Netflix on macOS</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-online-broadcasting-basics-a-streamers-guide-to-capture/"><u>2024 Approved Online Broadcasting Basics A Streamer’s Guide to Capture</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/evga-driver-download-instructions-a-step-by-step-guide-for-windows-computers/"><u>EVGA Driver Download Instructions - A Step-by-Step Guide for Windows Computers</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-samsung-galaxy-s23-ultra-to-iphone-xs11-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Samsung Galaxy S23 Ultra to iPhone XS/11 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-chortlechamps-excellent-platforms-for-hilarious-tones/"><u>In 2024, ChortleChamps Excellent Platforms for Hilarious Tones</u></a></li>
-<li><a href="https://blog-min.techidaily.com/1726030492813-m2ts/"><u>M2TSフォーマットを変換できない状況: 成功への戦略</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-10-best-free-image-hosting-sites-for-2024/"><u>[New] 10 Best Free Image Hosting Sites for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-art-of-compelling-podcast-summaries-explained/"><u>[New] 2024 Approved The Art of Compelling Podcast Summaries Explained</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-echoes-of-the-past-iphone-x-portraiture-for-2024/"><u>[New] Echoes of the Past IPhone X Portraiture for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-intrepid-selection-best-slow-mo-cameras-for-2024/"><u>[New] Intrepid Selection Best Slow-Mo Cameras for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-experience-legendary-ps3-gaming-on-your-pc-today/"><u>[Updated] Experience Legendary PS3 Gaming on Your PC Today</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-tailoring-sound-fades-within-logic-pro-settings-for-2024/"><u>[Updated] Tailoring Sound Fades Within Logic Pro Settings for 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/2024-approved-auto-subscribe-url-creation-for-youtube-enthusiasts/"><u>2024 Approved Auto Subscribe URL Creation for YouTube Enthusiasts</u></a></li>
+<li><a href="https://techtrends.techidaily.com/beginners-guide-to-executing-commands-with-windows-telnet-client/"><u>Beginner's Guide to Executing Commands with Windows Telnet Client</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/exploring-tech-with-tom-the-definitive-guide-to-high-performance-equipment/"><u>Exploring Tech with Tom: The Definitive Guide to High-Performance Equipment</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/how-to-resolve-and-prevent-kernel-pages-readwrite-problems-leading-to-blue-screens/"><u>How to Resolve and Prevent Kernel Pages Read/Write Problems Leading to Blue Screens</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-itel-p55-5g-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Itel P55 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-best-in-class-top-10-streamers-with-a-comparative-edge/"><u>In 2024, Best in Class Top 10 Streamers with a Comparative Edge</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/navigating-video-editing-tools-on-the-latest-windows-11/"><u>Navigating Video Editing Tools on the Latest Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/take-control-with-kinemaster-a-compreayer-guide-to-android-gameplay/"><u>Take Control with KineMaster A Compreayer Guide to Android Gameplay</u></a></li>
 </ul></div>
 

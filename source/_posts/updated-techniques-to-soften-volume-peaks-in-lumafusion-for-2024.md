@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Techniques to Soften Volume Peaks in Lumafusion for 2024"
-date: 2024-07-10T21:50:31.357Z
-updated: 2024-07-11T21:50:31.357Z
+date: 2024-09-15T22:24:35.099Z
+updated: 2024-09-20T17:51:39.690Z
 tags: 
   - screen-recording
   - ai video
@@ -80,9 +80,23 @@ In that window, you can select the MP3 format in the format customization box to
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -120,6 +134,13 @@ In that window, you can select the MP3 format in the format customization box to
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134228/18498" target="_top" id="2134228">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134228" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134228/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
@@ -150,6 +171,15 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-boost-your-buzz-telegram-tactics-for-impactful-promotion/"><u>[New] 2024 Approved Boost Your Buzz Telegram Tactics for Impactful Promotion</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-reviving-the-hidden-watch-icon-on-facebook/"><u>[New] In 2024, Reviving the Hidden Watch Icon on Facebook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-cutting-edge-podcasting-garageband-edition/"><u>[Updated] Cutting Edge Podcasting GarageBand Edition</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-elite-uploader-mp4-files-directly-for-fb-for-2024/"><u>[Updated] Elite Uploader MP4 Files Directly for FB for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-digital-dossiers-decoded-craft-your-signature-bio-with-stars/"><u>[Updated] In 2024, Digital Dossiers Decoded Craft Your Signature Bio with Stars</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-mastering-advertising-for-profit-the-ultimate-vimeo-guidebook-for-2024/"><u>[Updated] Mastering Advertising for Profit The Ultimate Vimeo Guidebook for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/avoiding-crashes-strategies-for-a-stable-sovled-warno-experience-on-pcs/"><u>Avoiding Crashes: Strategies for a Stable SOVLED Warno Experience on PCs</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-does-airplane-mode-turn-off-gps-location-on-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Does Airplane Mode Turn off GPS Location On Lava Yuva 3 Pro? | Dr.fone</u></a></li>
+</ul></div>
 

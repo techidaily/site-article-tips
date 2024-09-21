@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Voice Memo Techniques  An In-Depth Walkthrough\""
-date: 2024-09-08T17:06:28.415Z
-updated: 2024-09-15T16:17:08.847Z
+date: 2024-09-15T00:09:13.910Z
+updated: 2024-09-20T21:26:11.507Z
 tags: 
   - screen-recording
   - ai video
@@ -57,45 +57,12 @@ How should you proceed if you find several voice clips that you want to remove? 
 
 ![choose the edit option](https://images.wondershare.com/filmora/article-images/2022/08/voice-memo-complete-3.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1484963">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135316/14409" target="_top" id="2135316">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135316" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135316/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Duplicate a Voice Memos
 
 1. Select the recording to make a duplicate.
 2. Click the more options button and then choose the duplicate option.
 
 ![more options button](https://images.wondershare.com/filmora/article-images/2022/08/voice-memo-complete-4.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Trim Voice Memos
 
@@ -114,6 +81,13 @@ How should you proceed if you find several voice clips that you want to remove? 
 
 ![replace button](https://images.wondershare.com/filmora/article-images/2022/08/voice-memo-complete-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Save Voice Memos to a folder
 
 1. Go back from All Recordings at first and create a New Folder.
@@ -121,6 +95,26 @@ How should you proceed if you find several voice clips that you want to remove? 
 3. Select the destination folder and move.
 
 ![select the destination folder and move](https://images.wondershare.com/filmora/article-images/2022/08/voice-memo-complete-7.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983545">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983545.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983545">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983545.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983545%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983545/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. How to record a Voice Memos on Mac?
 
@@ -139,13 +133,6 @@ It's simple to use Voice Memos app on Mac:
 ![share voice memos](https://images.wondershare.com/filmora/article-images/2022/08/voice-memo-complete-10.jpg)
 
 If you're using a Mac and don't want to use Voice Memos to record your computer's internal or external sound, we've provided 2 additional productive ways for you to do so.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Way 1\. Use QuickTime Player
 
@@ -171,10 +158,16 @@ You can also use the [Wondershare Filmora](https://tools.techidaily.com/wondersh
 ![tap ok](https://images.wondershare.com/filmora/article-images/2022/08/voice-memo-complete-13.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1424528">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5\. How to transcribe Voice Memos to text?
@@ -235,6 +228,13 @@ Rev is also available to transcribe audio into text online. Visit the Rev Websit
 
 Otranscribe is one of the best online tools to transcribe Voice Memos into text. It stands out because it's free to use, unlike other websites offering trial and purchase. It is entirely free to use and user-friendly.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997695/19272" target="_top" id="1997695">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997695" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997695/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## FAQ
 
 ### 1\. Can Voice Memos record phone calls?
@@ -275,18 +275,18 @@ Voice Memos is a helpful tool for iOS and Mac users. You can easily record audio
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-aural-elements-in-online-visuals-for-2024/"><u>[New] Aural Elements in Online Visuals for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-cutting-edge-techniques-in-3d-lut-making-for-2024/"><u>[New] Cutting-Edge Techniques in 3D LUT Making for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-tune-into-the-beats-with-these-free-online-scanners-for-2024/"><u>[New] Tune Into the Beats with These Free Online Scanners for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastery-in-converting-classic-vhs-into-high-quality-pictures/"><u>[Updated] 2024 Approved Mastery in Converting Classic VHS Into High-Quality Pictures</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-2024-approved-non-networked-game-haven-top-screen-free-android-titles/"><u>[Updated] 2024 Approved Non-Networked Game Haven Top Screen-Free Android Titles</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-4-simplified-ways-to-screen-record-lenovo/"><u>[Updated] 4 Simplified Ways to Screen Record Lenovo</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-step-by-step-guide-to-lut-mastery-for-2024/"><u>[Updated] Step-by-Step Guide to LUT Mastery for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-unlocking-the-power-of-time-lapse-with-samsung-smartphones/"><u>In 2024, Unlocking the Power of Time Lapse with Samsung Smartphones</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/mastering-tiktok-with-its-top-7-emojis-a-beginners-handbook/"><u>Mastering TikTok with Its Top 7 Emojis A Beginner's Handbook</u></a></li>
-<li><a href="https://article-tips.techidaily.com/secure-your-free-lut-resources-top-ten-list-for-2024/"><u>Secure Your Free LUT Resources - Top Ten List for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-add-wow-factor-to-your-videos-top-free-special-effects-apps/"><u>Updated 2024 Approved Add Wow Factor to Your Videos Top Free Special Effects Apps</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/what-to-expect-from-the-apple-watch-ultra-2-insights-on-price-points-launch-date-and-latest-tech-specs/"><u>What to Expect From the Apple Watch Ultra 2: Insights on Price Points, Launch Date & Latest Tech Specs</u></a></li>
-<li><a href="https://hardware-reviews.techidaily.com/why-invest-in-luxury-understanding-costs-of-the-new-model-g-two-section-charcoal-griller/"><u>Why Invest in Luxury? Understanding Costs of the New Model G Two-Section Charcoal Griller</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-white-walkers-whistle-where-to-find-your-favorite-got-ringtone/"><u>[New] 2024 Approved White Walkers Whistle Where to Find Your Favorite GoT Ringtone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-drone-showdown-dji-vs-gopro-hero/"><u>[New] Drone Showdown DJI vs GoPro Hero</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-action-packed-angling-best-fishing-cameras-ranked/"><u>[New] In 2024, Action-Packed Angling Best Fishing Cameras Ranked</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastering-audio-file-transformation-srt-to-xmlssattml/"><u>[Updated] 2024 Approved Mastering Audio File Transformation SRT to XML/SSA/TTML</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-optimal-online-locations-free-quality-alarm-songs/"><u>[Updated] In 2024, Optimal Online Locations Free, Quality Alarm Songs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-stabilize-your-story-a-guide-to-steadying-handheld-gopro-recordings/"><u>[Updated] In 2024, Stabilize Your Story A Guide to Steadying Handheld GoPro Recordings</u></a></li>
+<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-realme-11x-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Realme 11X 5G without Anyone Knowing | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/a-stepwise-journey-through-the-world-of-professional-srt-creation-for-2024/"><u>A Stepwise Journey Through the World of Professional SRT Creation for 2024</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-official-driver-download-for-hp-officejet-pro-6968-printer/"><u>Get the Official Driver Download for HP OfficeJet Pro 6968 Printer</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-detailed-guide-of-ispoofer-for-pogo-installation-on-honor-x9b-drfone-by-drfone-virtual-android/"><u>In 2024, Detailed guide of ispoofer for pogo installation On Honor X9b | Dr.fone</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/new-2024-approved-best-animation-software-for-all-skill-levels-top-picks/"><u>New 2024 Approved Best Animation Software for All Skill Levels Top Picks</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/pure-harmony-for-win-software-for-2024/"><u>Pure Harmony for WIN Software for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/top-open-source-vision-for-visual-creators/"><u>Top Open-Source Vision for Visual Creators</u></a></li>
 </ul></div>
 

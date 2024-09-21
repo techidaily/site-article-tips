@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Maximizing B-Roll  Effective Techniques\""
-date: 2024-09-14T16:15:46.039Z
-updated: 2024-09-15T16:04:31.254Z
+date: 2024-09-13T20:20:46.704Z
+updated: 2024-09-20T23:57:27.079Z
 tags: 
   - screen-recording
   - ai video
@@ -50,32 +50,32 @@ On the other hand, cutaways can show how different people react to what is being
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
 <!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+<span id="1516072">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Visual detail b roll footage
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2120862/26400?prodsku=Saturn" target="_top" id="2120862">
-  <img src="//a.impactradius-go.com/display-ad/26400-2120862" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2120862/26400?prodsku=Saturn" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. Storytelling b roll footage
 
@@ -84,19 +84,6 @@ B roll footage can be used to tell a story that supports the narrative of your v
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
-
-<!-- affiliate ads begin -->
-<span id="1993654">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993654.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993654">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993654.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993654%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993654/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
@@ -113,6 +100,13 @@ If flaws were discovered during primary photography, the directors could have re
 ### 7\. A roll vs b roll
 
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2145009/26400" target="_top" id="2145009">
+  <img src="//a.impactradius-go.com/display-ad/26400-2145009" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2145009/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -148,14 +142,17 @@ We sincerely hope that this post will be of use to you in making your films more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-a-step-by-step-approach-to-mastering-the-background-eraser-tool/"><u>[New] A Step-by-Step Approach to Mastering the Background Eraser Tool</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-instant-luxury-iphones-extended-shutter-mastery/"><u>[Updated] 2024 Approved Instant Luxury IPhone's Extended Shutter Mastery</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-professional-techniques-for-video-narrative-inclusion/"><u>[Updated] 2024 Approved Professional Techniques for Video Narrative Inclusion</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/a-close-look-at-star-wars-squadrons-experience-the-thrill-of-hyper-realistic-space-skirmishes/"><u>A Close Look At Star Wars Squadrons – Experience the Thrill of Hyper-Realistic Space Skirmishes!</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/elite-cyber-retailers-for-perfectly-tailored-presents/"><u>Elite Cyber Retailers for Perfectly Tailored Presents</u></a></li>
-<li><a href="https://driver-download.techidaily.com/1722973638864-find-and-install-the-most-recent-netgear-a6100-driver-software-for-your-windows-computer-easy-download-options/"><u>Find and Install the Most Recent Netgear A6100 Driver Software for Your Windows Computer: Easy Download Options</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-crafting-perfect-ringtones-from-popular-tiktok-audio-tracks/"><u>In 2024, Crafting Perfect Ringtones From Popular TikTok Audio Tracks</u></a></li>
-<li><a href="https://common-error.techidaily.com/resolving-device-connection-error-when-casting-from-a-windows-10-computer/"><u>Resolving Device Connection Error When Casting From a Windows 10 Computer</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/taking-the-first-step-in-pro-photo-with-an-amazonbasics-tripod/"><u>Taking the First Step in Pro Photo with an AmazonBasics Tripod</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exclusive-roundup-10-essential-cost-free-iphone-selfie-editors-for-2024/"><u>[New] Exclusive Roundup 10 Essential, Cost-Free iPhone Selfie Editors for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-explore-the-world-through-ultra-hd-with-leading-mirrorless-cams-for-2024/"><u>[New] Explore the World Through Ultra-HD with Leading Mirrorless Cams for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-professional-screenshot-taker-apowersoft-screen-recorder-for-2024/"><u>[New] Professional Screenshot Taker Apowersoft Screen Recorder for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-top-10-quick-and-free-jpeg-to-gif-conversion-services-for-2024/"><u>[New] Top 10 Quick & Free JPEG-to-GIF Conversion Services for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-behind-the-magic-cinematic-technique-1-5-insights/"><u>[Updated] Behind the Magic Cinematic Technique #1-5 Insights</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-elevating-video-experience-best-youtube-to-avi-companions-for-2024/"><u>[Updated] Elevating Video Experience Best YouTube-to-AVI Companions for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-unveiling-sns-hdrs-strengths-and-comparative-software/"><u>[Updated] In 2024, Unveiling SNS HDR's Strengths & Comparative Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-selfie-showstoppers-adding-whimsy-with-the-cartoon-lens-for-2024/"><u>[Updated] Selfie Showstoppers Adding Whimsy with the Cartoon Lens for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-2-ways-to-monitor-vivo-y100a-activity-drfone-by-drfone-virtual-android/"><u>In 2024, 2 Ways to Monitor Vivo Y100A Activity | Dr.fone</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-tips-for-overcoming-obs-screen-blackout/"><u>In 2024, Tips for Overcoming OBS Screen Blackout</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-honor-100-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/ultimate-screen-recorder-features-for-pcmac/"><u>Ultimate Screen Recorder Features for PC/Mac</u></a></li>
 </ul></div>
 

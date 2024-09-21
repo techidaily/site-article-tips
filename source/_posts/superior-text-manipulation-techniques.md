@@ -1,7 +1,7 @@
 ---
 title: "Superior Text Manipulation Techniques"
-date: 2024-09-08T18:22:46.051Z
-updated: 2024-09-15T17:54:51.708Z
+date: 2024-09-14T16:52:47.899Z
+updated: 2024-09-20T22:51:47.027Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ If you want to effectively use the After Effects expressions even if you are not
 
 ![iexpression 2 plugin](https://images.wondershare.com/filmora/article-images/2022/07/iexpression-2-plugin.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1880960/19272" target="_top" id="1880960">
+  <img src="//a.impactradius-go.com/display-ad/19272-1880960" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880960/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## TextBox
 
 Link: <https://aescripts.com/textbox/>
@@ -56,6 +63,20 @@ Link: <https://aescripts.com/textbox/>
 If you want to create the perfect shape behind your text, then TextBox is a good text plugin to consider. This is a native After Effects plugin, meaning that you will not need to install it and the shapes it creates can be very easily customized. It updates the shapes you create automatically and adds them to the text layer, making it the most ideal solution to create closed captions, lower thirds, and subtitles.
 
 ![text box plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-box-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130890/7443" target="_top" id="2130890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://arkmc.pxf.io/c/5597632/352555/5172" target="_top" id="352555">
+  <img src="//a.impactradius-go.com/display-ad/5172-352555" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352555/5172" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Font Manager
 
@@ -73,32 +94,11 @@ This is the most ideal plugin to choose when you want to add motion trail to the
 
 ![cartoon moblur plugin](https://images.wondershare.com/filmora/article-images/2022/07/cartoon-moblur-plugin.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Shadow Studio
 
 If you are looking for shadow styles that will go very well with your project, Shadow Studio is a good plugin to get. It offers you a wide variety of shadow styles including radial, inner, soft, and long shadows. Most people find it an easier and more affordable way to add soft shadows as compared to traditional methods like raytracing. It is also quite easy to use, meaning that shadow effects that would take hours to complete can be done in a matter of minutes.
 
 ![shadow studio plugin](https://images.wondershare.com/filmora/article-images/2022/07/shadow-studio-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123478/16836" target="_top" id="2123478">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123478" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123478/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137395/7443" target="_top" id="2137395">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137395" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137395/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Texts Animation Bundle
 
@@ -107,13 +107,6 @@ Link: <https://aedownload.com/download-texts-animation-bundle-free-videohive/>
 This is a bundle of more than 80 different templates to add text effects to any text in After Effects. All the templates in the bundle are easily customizable and the plugin is very easy to use, allowing you to create amazing text effects in just a few clicks. The templates are modeled from various titles, quotes, and stories, so there is a little bit of something for everyone. Plus, the bundle gets constant updates and you are likely to get new templates with each update.
 
 ![texts animation bundle plugin](https://images.wondershare.com/filmora/article-images/2022/07/texts-animation-bundle-plugin.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139116/17108" target="_top" id="2139116">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139116" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139116/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Artificial Intelligence Titles
 
@@ -124,10 +117,10 @@ The Artificial Intelligence Titles is an After Effects text plugin that is desig
 ![artificial intelligence titles plugin](https://images.wondershare.com/filmora/article-images/2022/07/artificial-intelligence-titles-plugin.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2027176/19272" target="_top" id="2027176">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027176" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027176/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Text Library
@@ -137,6 +130,13 @@ Link: <https://videohive.net/item/text-library-handy-text-animations/21932974>
 This is another great text animation bundle with different options for just about any kind of project. But unlike other plugin bundles that only have a few effects to choose from, Text Library has thousands of templates to choose from. Once you have selected the template that you would like to use, you also get the option to customize the template to suit your project. You can customize the text, size, duration of the animation, and color. It is easy to use and is constantly updated to introduce even more templates with each update.
 
 ![text library plugin](https://images.wondershare.com/filmora/article-images/2022/07/text-library-plugin.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139119/17108" target="_top" id="2139119">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139119" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139119/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -172,17 +172,21 @@ On its own After Effects comes with so many post-production effects and features
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-10-best-sites-to-download-free-slideshow-templates-filmora/"><u>[New] 10 Best Sites to Download Free Slideshow Templates - Filmora</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/new-2024-approved-tailored-techniques-for-logging-high-quality-roblox-sessions-on-a-mac/"><u>[New] 2024 Approved Tailored Techniques for Logging High-Quality Roblox Sessions on a Mac</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/new-the-how-to-for-finding-freely-available-pictorial-frames/"><u>[New] The How-To for Finding Freely Available Pictorial Frames</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-discovering-an-original-tiktok-identifier-code/"><u>[Updated] Discovering an Original TikTok Identifier Code</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-transforming-audio-skills-using-audacity-professionally/"><u>[Updated] In 2024, Transforming Audio Skills Using Audacity Professionally</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-prime-video-upload-solutions-for-twitter-for-2024/"><u>[Updated] Prime Video Upload Solutions for Twitter for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-webcams-that-win-top-picks-for-youtube-stream-success/"><u>[Updated] Webcams that Win Top Picks for YouTube Stream Success</u></a></li>
-<li><a href="https://howto.techidaily.com/best-methods-for-realme-gt-5-pro-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for Realme GT 5 Pro Wont Turn On | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/guide-to-determining-the-exact-macbook-model-reference-for-your-device/"><u>Guide to Determining the Exact MacBook Model Reference for Your Device</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-ace-6-tools-to-effortlessly-grab-videos-on-mac/"><u>In 2024, Ace 6 Tools to Effortlessly Grab Videos on Mac</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-realme-narzo-60-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Realme Narzo 60 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://ai-video.techidaily.com/new-in-2024-ultimate-guide-to-translating-youtube-videos-without-cc/"><u>New In 2024, Ultimate Guide to Translating YouTube Videos Without CC</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-essentials-comprehensive-editing-tutorial/"><u>[New] 2024 Approved The Essentials Comprehensive Editing Tutorial</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-a-guide-to-securing-top-tier-images-for-free-for-2024/"><u>[New] A Guide to Securing Top-Tier Images for Free for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-quick-tutorial-get-snapchat-running-on-macos/"><u>[Updated] 2024 Approved Quick Tutorial Get Snapchat Running on macOS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-intersection-of-design-and-efficiency-in-professional-environments/"><u>[Updated] 2024 Approved The Intersection of Design & Efficiency in Professional Environments</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-auditing-video-content-monetization-success-for-2024/"><u>[Updated] Auditing Video Content Monetization Success for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-meme-masterpieces-iphones-here/"><u>[Updated] In 2024, Meme Masterpieces, iPhones Here</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-the-entrepreneurs-guide-to-snapchat-e-commerce/"><u>[Updated] In 2024, The Entrepreneur's Guide to Snapchat E-Commerce</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-religious-ringtones-for-daily-devotion-and-driving-for-2024/"><u>[Updated] Religious Ringtones for Daily Devotion and Driving for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-tech-handbook-working-with-srt-files-on-a-mac-for-2024/"><u>[Updated] The Ultimate Tech Handbook Working with SRT Files on a Mac for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-formulating-intriguing-podcast-openers/"><u>2024 Approved Formulating Intriguing Podcast Openers</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/colormorph-pro-searching-for-lightroom-equals-for-2024/"><u>ColorMorph Pro Searching for Lightroom Equals for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/erfolgreich-kopieren-sie-urheberrechtlich-geschutzte-dvds-entdecken-sie-sie-mit-sieben-effektiven-methoden/"><u>Erfolgreich Kopieren Sie Urheberrechtlich Geschützte DVDs: Entdecken Sie Sie Mit Sieben Effektiven Methoden</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-the-journey-to-origin-how-to-utilize-reverse-image-functionality-on-instagram/"><u>In 2024, The Journey to Origin How to Utilize Reverse Image Functionality on Instagram</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/in-depth-evaluation-the-high-end-fast-paced-glion-dolly-electric-scooter-and-its-premium-pricing-structure/"><u>In-Depth Evaluation: The High-End, Fast-Paced Glion Dolly Electric Scooter and Its Premium Pricing Structure</u></a></li>
+<li><a href="https://article-tips.techidaily.com/lens-legends-top-six-selecting-high-quality-4k-dslrs/"><u>Lens Legends' Top Six Selecting High-Quality 4K DSLRs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/visual-mastery-leading-brands-in-8k-capture-for-2024/"><u>Visual Mastery Leading Brands in 8K Capture for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Empowering Visual Communication  Integrating S2T Into Your Powerpoint\""
-date: 2024-09-19T00:16:25.869Z
-updated: 2024-09-20T18:49:20.258Z
+date: 2024-09-24T01:30:48.107Z
+updated: 2024-09-27T03:24:58.035Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,13 @@ Using speech-to-text in PowerPoint is the same principle guiding other platforms
 
 Please note that “enabling speech-to-text” in PowerPoint differs from “using speech-to-text.” For example, you have to enable the speech-to-text first before you can use it. Also, how you enable speech-to-text in PowerPoint is based on the selected devices. Let's discuss enabling speech-to-text on Mac and Windows.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006928/19272" target="_top" id="2006928">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006928" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006928/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Enable speech-to-text on Mac**
 
 * **Select the control button:** Mac allows you to select the control button for activating speech-to-text the first time you want to use the feature. Unlike other devices, the control option pops up when you select the speech-to-text option. It then displays some control options so that you can select the button suitable for you.
@@ -62,9 +69,23 @@ Aside from the regular Cortana speech recognition on Windows, you can use the sp
 
 ![click on the search button](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How do I dictate PowerPoint for Mac?
 
 It is easy to use PowerPoint on a Mac after activating the **“dictation”** button.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Add speak to the quick access toolbar**
 
@@ -88,6 +109,19 @@ Now you can click on the microphone button and speak to add text.
 
 The smart engine needs to hear you clearly before interpreting the speech into text. Do not mumble or speak fast. Each word should be audible and clearly stated. You can use the keyboard to edit or remove excess words.
 
+<!-- affiliate ads begin -->
+<span id="1982457">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982457.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982457">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982457.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982457%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982457/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Reduce background noise**
 
 Ensure the background noise does not interrupt your speech.
@@ -97,10 +131,10 @@ Ensure the background noise does not interrupt your speech.
 Exploit the user dictionary. Visit Settings > **Languages**, and info > **Advanced** \> Personal word reference, and you can add last names and other “unofficial” words.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137226/26400" target="_top" id="2137226">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137226" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137226/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: How to enable real-time speech-to-text translation in PowerPoint
@@ -114,6 +148,19 @@ Real-time display and translation are suitable for the multi-language purpose. Y
 * Click on the **slide show**, and go to **subtitle settings**; select **spoken languages.** The spoken language is the “speech input language”: the language you will speak to be translated.
 
 ![click on the slide show](https://images.wondershare.com/filmora/article-images/2022/07/can-you-do-speech-to-text-in-powerpoint-8.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * After setting the spoken language, move on to set the **subtitle/caption language.** The subtitle or caption language is the translated language. PowerPoint allows you to translate speech without using an application. You can make a multi-language selection without much involvement - just settings.
 
@@ -137,13 +184,6 @@ What's more, now Filmora's STT feature supports direct transcription of bilingua
 
 [Make PPT Videos](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Use Filmora STT to make PowerPoint videos translation
 
 ##### Step 1
@@ -152,20 +192,27 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
 
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## FAQs
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043639/7443" target="_top" id="2043639">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043639" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043639/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### **Does speech-to-text require the internet?**
 
@@ -175,23 +222,9 @@ No, it doesn't. However, you may need the internet to set up some settings.
 
 No. The feature is free for all registered users on PowerPoint.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151893/7443" target="_top" id="2151893">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151893" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151893/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **Do you need an additional microphone?**
 
 You can use your device's in-built microphone. However, you may need external gear for efficiency.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884017/19272" target="_top" id="1884017">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884017" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884017/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### **Is speech-to-text better than typing?**
 
@@ -222,5 +255,23 @@ Speech-to-text is an additional feature for all users. Typing is, however, the d
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-arc-architect-suite/"><u>[New] 2024 Approved Arc Architect Suite</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-spotting-sham-followers-on-business-pages/"><u>[New] 2024 Approved Spotting Sham Followers on Business Pages</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-guide-to-the-best-auto-tracking-cameras/"><u>[New] In 2024, Guide to the Best Auto Tracking Cameras</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-tactical-video-takedown-a-guide-to-judging-ownership-and-opposition/"><u>[Updated] 2024 Approved Tactical Video Takedown A Guide to Judging Ownership and Opposition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-expert-dj-tools-for-windows-for-2024/"><u>[Updated] Expert DJ Tools for Windows for 2024</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-streamlining-movie-file-processing-in-windows-11/"><u>[Updated] In 2024, Streamlining Movie File Processing in Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-essence-of-interactive-virtuality-for-2024/"><u>[Updated] The Essence of Interactive Virtuality for 2024</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/best-in-the-shadows-vids-2023s-prime-8-app-list/"><u>Best In-The-Shadows Vids - 2023'S Prime 8 App List</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/creacion-gratis-de-iconos-animados-en-gif-desde-video-guia-del-conversor-online-movafi/"><u>Creación Gratis De Iconos Animados en .GIF Desde Vídeo: Guía Del Conversor Online MOVAFI</u></a></li>
+<li><a href="https://article-tips.techidaily.com/hue-harmony-the-definitive-guide-to-video-coloring-for-2024/"><u>Hue Harmony The Definitive Guide to Video Coloring for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-ideal-proportions-a-guide-to-video-aspect-ratios/"><u>In 2024, Ideal Proportions A Guide to Video Aspect Ratios</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-powerful-path-to-flawless-photo-edits-mastering-background-eraser-use/"><u>In 2024, The Powerful Path to Flawless Photo Edits Mastering Background Eraser Use</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-tomtom-gopro-challenger-a-comprehensive-2023-review/"><u>In 2024, TomTom GoPro Challenger - A Comprehensive 2023 Review</u></a></li>
+<li><a href="https://fox-links.techidaily.com/revolutionize-sessions-with-pro-zoom-conversion-hacks/"><u>Revolutionize Sessions with Pro-Zoom Conversion Hacks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-next-generation-of-vr-innovations-reviewed-for-2024/"><u>The Next Generation of VR Innovations Reviewed for 2024</u></a></li>
+<li><a href="https://os-tips.techidaily.com/unveiling-hidden-functions-10-amazing-tricks-within-apple-imessage-app/"><u>Unveiling Hidden Functions: 10 Amazing Tricks Within Apple iMessage App</u></a></li>
+</ul></div>
 

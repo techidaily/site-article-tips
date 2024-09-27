@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Advanced Dynamic Typographic Options"
-date: 2024-09-13T23:26:50.159Z
-updated: 2024-09-20T21:20:20.202Z
+date: 2024-09-20T16:38:49.962Z
+updated: 2024-09-27T00:18:13.506Z
 tags: 
   - screen-recording
   - ai video
@@ -33,6 +33,13 @@ Glitch text effect is a trendy effect that gets the viewers’ attention immedia
 
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144277/7443" target="_top" id="2144277">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144277" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144277/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Liquid Text Animation
 
 You get 110 animated elements that you can apply to the text in your video. The effects are perfectly suitable for videos where comedy is the main theme. The liquid text effect looks organic and natural, and the colors are eye-catching to grab everyone’s attention. There are 8 text scenes and one text preset present, along with 110 animated presets. The effects are HD in resolution, and they are modular and adjustable. It is time to download and use them to make your video dynamic.
@@ -45,6 +52,20 @@ There is always a high demand for dynamic text animations in After Effects. This
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
@@ -52,16 +73,16 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
+<span id="1155462">
+					<video width="1024" height="576" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
@@ -70,31 +91,11 @@ In this pack, you will find unique text effects, and you can animate text with k
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
 
@@ -103,10 +104,10 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959759/19272" target="_top" id="1959759">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959759" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959759/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
@@ -147,5 +148,26 @@ As the saying goes, the more the merrier and the more presets you have, the more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-androids-video-reversion-secrets-unveiled/"><u>[New] Android's Video Reversion Secrets Unveiled</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-academic-engagement-lecture-capture-via-mac-computers/"><u>[Updated] 2024 Approved Academic Engagement Lecture Capture via Mac Computers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-intova-x-visionary-action-camera-unveiled-today/"><u>[Updated] 2024 Approved Intova X Visionary Action Camera Unveiled Today</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-becoming-a-pro-at-visual-effects-creation/"><u>[Updated] In 2024, Becoming a Pro at Visual Effects Creation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-optimizing-story-video-playback-rate-on-instagram-app/"><u>[Updated] In 2024, Optimizing Story Video Playback Rate on Instagram App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-top-iphone-photo-hacks-to-enhance-your-landscapes/"><u>[Updated] In 2024, Top iPhone Photo Hacks to Enhance Your Landscapes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-innovative-ways-to-convey-your-story-through-videos/"><u>[Updated] Innovative Ways to Convey Your Story Through Videos</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-optimal-techniques-for-recording-your-youtube-events-for-2024/"><u>[Updated] Optimal Techniques for Recording Your YouTube Events for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/cloud-storage-pricing-comparison-and-best-price-2024/"><u>Cloud Storage Pricing Comparison and Best Price 2024</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/compile-of-the-most-beautiful-wedding-videos-youtube-and-vimeo-edition/"><u>Compile of the Most Beautiful Wedding Videos - Youtube & Vimeo Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/essential-steps-for-youtube-videos-to-mpeg-format-for-2024/"><u>Essential Steps for YouTube Videos to MPEG Format for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/expert-techniques-for-streamers-on-macos-for-2024/"><u>Expert Techniques for Streamers on macOS for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/google-powered-success-in-podcast-submissions/"><u>Google-Powered Success in Podcast Submissions</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-tiktok-to-see-more-content-on-your-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How to Change Location on TikTok to See More Content On your OnePlus Nord N30 SE | Dr.fone</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/how-to-record-webcam-video-on-hp-laptops-and-chromebooks-for-2024/"><u>How to Record Webcam Video on HP Laptops and Chromebooks for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-after-switching-from-xiaomi-redmi-k70-pro-to-latest-samsung-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data After Switching From Xiaomi Redmi K70 Pro to Latest Samsung | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-spoofing-life360-how-to-do-it-on-oneplus-12-drfone-by-drfone-virtual-android/"><u>In 2024, Spoofing Life360 How to Do it on OnePlus 12? | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/overcoming-macs-recognition-problems-with-an-outside-monitor-a-comprehensive-guide/"><u>Overcoming Mac's Recognition Problems with an Outside Monitor: A Comprehensive Guide</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/seamless-video-transformation-tools-with-digiarty-software-your-ultimate-dvd-to-digital-solution/"><u>Seamless Video Transformation Tools with Digiarty Software - Your Ultimate DVD-to-Digital Solution</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Pantheon of Popularity  Reddit's Top 10 Posts\""
-date: 2024-09-18T20:59:34.813Z
-updated: 2024-09-20T20:01:10.370Z
+date: 2024-09-20T20:55:59.636Z
+updated: 2024-09-26T16:09:13.346Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,19 @@ Here they are!
 
 ## 10 Most Upvoted Reddit Posts of All Time
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. [The Senate (/r/movies)](https://www.reddit.com/r/movies/comments/62sjuh/the%5Fsenate%5Fupvote%5Fthis%5Fso%5Fthat%5Fpeople%5Fsee%5Fit%5Fwhen/)
 
 ![chancellor palpatine the senate](https://images.wondershare.com/filmora/article-images/2023/01/the-senate.png)
@@ -55,6 +68,13 @@ When writing the article (Nov., 2022), this Reddit post features over 400k votes
 (r/wallstreetbets)
 
 ![times square billboard](https://images.wondershare.com/filmora/article-images/2023/01/times-square-billboard.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948932/19272" target="_top" id="1948932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Its purpose is quite ironic. The point was to make this image of Chancellor Palpatine from Star Wars the first result on Google whenever someone searched for "The Senate."
 
@@ -72,13 +92,6 @@ $GME stands for GameStop's stock name. BRR represents printing money. The idea b
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
@@ -86,13 +99,6 @@ If you know the famous song "Never Gonna Give You Up, " you know who this is. We
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Another funny post in the official /r/funny subreddit itself. At this time, this one has 308k votes, 97% of which are Upvotes.
 
@@ -136,6 +142,13 @@ That's all there is to it. No politics, no serious issues, and so on. Just a fro
 
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134239/18498" target="_top" id="2134239">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134239" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134239/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 This is another most upvoted Reddit post that encouraged over 180k users to join the battle for net neutrality. Again, 86% of these users are upvoters who agree with the statements in the post.
 
 It's a post with a title and a link to a site where anyone can join the battle. The goal - prevent Internet Service Providers from blocking apps and websites.
@@ -153,6 +166,13 @@ The post has a 98% upvote rate with 170k voters in total. The reason it's so pop
 ### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
 
 ![reddit post of soldier and his fathers message](https://images.wondershare.com/filmora/article-images/2023/01/brave-soldier-buried-with-his-devoted-troops-reddit.png)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Finally, this is an inspiring and heartwarming post about a brave troop.
 
@@ -180,16 +200,16 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
 
 10 Most Upvoted Reddit Posts of All Time
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105874/7443" target="_top" id="2105874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. [The Senate (/r/movies)](https://www.reddit.com/r/movies/comments/62sjuh/the%5Fsenate%5Fupvote%5Fthis%5Fso%5Fthat%5Fpeople%5Fsee%5Fit%5Fwhen/)
 
 ![chancellor palpatine the senate](https://images.wondershare.com/filmora/article-images/2023/01/the-senate.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868499/19272" target="_top" id="1868499">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868499" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868499/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 When writing the article (Nov., 2022), this Reddit post features over 400k votes. 97% of those users Upvoted. This percentage made it the most upvoted Reddit post until another overtook it.
 
@@ -209,6 +229,13 @@ It represents a fun and public meme of someone buying a billboard in New York. T
 
 $GME stands for GameStop's stock name. BRR represents printing money. The idea behind it - publicly displaying the astonishing soar of GameStop's stock at that time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037319/7443" target="_top" id="2037319">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037319" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037319/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. [Rick Astley Rides a Bike (r/pics)](https://www.reddit.com/r/pics/comments/haucpf/ive%5Ffound%5Fa%5Ffew%5Ffunny%5Fmemories%5Fduring%5Flockdown/)
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
@@ -220,13 +247,6 @@ If you know the famous song "Never Gonna Give You Up, " you know who this is. We
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Another funny post in the official /r/funny subreddit itself. At this time, this one has 308k votes, 97% of which are Upvotes.
 
@@ -250,6 +270,13 @@ You understand the pain if you've gone through something like this.
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938716/19272" target="_top" id="1938716">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938716" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938716/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 293k users voted on this post, revealing what it looks like when a single company owns dozens of local news stations.
 
 The phrase "this is extremely dangerous to our democracy" is repeated repeatedly in every news broadcast from these news stations.
@@ -269,6 +296,13 @@ That's all there is to it. No politics, no serious issues, and so on. Just a fro
 ### 8\. [Battle for Net Neutrality (/r/books)](https://www.reddit.com/r/books/comments/7en6do/join%5Fthe%5Fbattle%5Ffor%5Fnet%5Fneutrality%5Fwe%5Fneed%5Fto/)
 
 ![battle for net neutrality reddit post](https://images.wondershare.com/filmora/article-images/2023/01/battle-for-net-neutrality.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049369/7443" target="_top" id="2049369">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049369" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049369/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 This is another most upvoted Reddit post that encouraged over 180k users to join the battle for net neutrality. Again, 86% of these users are upvoters who agree with the statements in the post.
 
@@ -301,13 +335,6 @@ The Reddit post has over 4k comments, many of which feature thousands of upvotes
 ## Video – Top 10 Most Upvoted Posts on Reddit
 
 Apart from what been introduced to you above, we also prepared a video about the most upvoted posts on Reddit. If you have any interests, you can watch it and get a deeper understanding of why these posts are so popular.
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
-  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -341,5 +368,23 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-churning-up-channels-top-gear-list/"><u>[New] 2024 Approved Churning Up Channels Top Gear List</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-endless-entertainment-the-science-behind-youtube-loops-for-2024/"><u>[New] Endless Entertainment The Science Behind YouTube Loops for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-premier-ios-platforms-for-ps2-gaming/"><u>[New] Premier iOS Platforms for PS2 Gaming</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-2024-approved-unleashing-the-power-of-obs-macos-install-and-usage-tips/"><u>[Updated] 2024 Approved Unleashing the Power of OBS MacOS Install & Usage Tips</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-top-tier-tone-transmitter-for-voice-artists/"><u>[Updated] Top-Tier Tone Transmitter for Voice Artists</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-a-novices-guide-to-selecting-key-gopro-enhancements/"><u>2024 Approved A Novice's Guide to Selecting Key GoPro Enhancements</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-crafting-memorable-titles-a-comprehensible-ae-approach/"><u>2024 Approved Crafting Memorable Titles A Comprehensible AE Approach</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-dissecting-xvideohubs-capabilities-in-a-full-breakdown-review/"><u>2024 Approved Dissecting XVideoHub's Capabilities in a Full Breakdown Review</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-essential-guide-to-crafting-srt-files-professionally/"><u>2024 Approved Essential Guide to Crafting SRT Files Professionally</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-immersive-escapes-delving-into-jaunt-vr/"><u>2024 Approved Immersive Escapes Delving Into Jaunt VR</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-riches-in-pixels-identifying-the-best-12-sites-with-free-stock-photos/"><u>2024 Approved Riches in Pixels Identifying the Best 12 Sites with Free Stock Photos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-starting-strategies-for-an-engaging-fb-giveaway/"><u>2024 Approved Starting Strategies for an Engaging FB Giveaway</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/digital-deftness-transforming-photo-colors-professionally-for-2024/"><u>Digital Deftness Transforming Photo Colors Professionally for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-unlock-the-magic-of-custom-snaps-and-effortless-lenses/"><u>In 2024, Unlock the Magic of Custom Snaps & Effortless Lenses</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-xiaomi-redmi-a2plus-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from Xiaomi Redmi A2+ to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-adding-audiovisual-elements-in-cinema-pro-step-by-step-guide/"><u>Updated In 2024, Adding Audiovisual Elements in Cinema Pro Step-by-Step Guide</u></a></li>
+</ul></div>
 

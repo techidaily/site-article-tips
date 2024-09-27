@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Cutting-Edge Text Motion Designs for 2024\""
-date: 2024-09-19T21:49:07.425Z
-updated: 2024-09-20T21:11:19.463Z
+date: 2024-09-25T23:06:51.995Z
+updated: 2024-09-26T21:40:16.043Z
 tags: 
   - screen-recording
   - ai video
@@ -39,24 +39,31 @@ You get 110 animated elements that you can apply to the text in your video. The 
 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 3\. Dynamic Text Animations
 
 There is always a high demand for dynamic text animations in After Effects. This pack focuses on three types of animations namely bounce, kinetic and overshoot. You get 50 presets, 20 title scenes as well as 10 different typography scenes. You can animate texts, titles, as well as characters. You can even adjust the properties to match your video content as per your requirements. In fact, there are advanced controls available for further customization.
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137205/26400" target="_top" id="2137205">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137205" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137205/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
 
@@ -65,10 +72,10 @@ In this pack, you will find unique text effects, and you can animate text with k
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148641/16836" target="_top" id="2148641">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148641" border="0" alt="https://techidaily.com" width="254" height="90"/>
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148641/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Text Library
@@ -77,18 +84,18 @@ If there is a must-have preset you should manage to have in After Effects is Tex
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 7\. Kinetic Text Animation
 
 Kinetic text effect is a part of dynamic text effects and there is a high demand for kinetic text animation. In this pack, you get 56 text animations and all the effects have full HD resolution. The effect will literally transform your video content and help you to get a proper branding on the video. There are different types of animations available and you videos will not look boring by any chance.
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## 8\. Text Animation Lower Third
 
@@ -97,10 +104,10 @@ You get eleven styles of elements in the pack, and you can customize the designs
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://arkmc.pxf.io/c/5597632/352557/5172" target="_top" id="352557">
+  <img src="//a.impactradius-go.com/display-ad/5172-352557" border="0" alt="https://techidaily.com" width="720" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://arkmc.pxf.io/i/5597632/352557/5172" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -135,5 +142,21 @@ As the saying goes, the more the merrier and the more presets you have, the more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/updated-vintage-tech-upgrade-for-2024/"><u>[Updated] Vintage Tech Upgrade for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-endless-humor-best-free-meme-designs/"><u>2024 Approved Endless Humor Best Free Meme Designs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-guide-to-top-free-vectors-graphics-sites-worldwide/"><u>2024 Approved Guide to Top Free Vectors, Graphics Sites Worldwide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-harness-your-creativity-with-high-quality-free-images-from-these-12-sites/"><u>2024 Approved Harness Your Creativity with High-Quality, Free Images From These 12 Sites</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/approved-leverage-larger-thumbnails-for-video-success/"><u>2024 Approved Leverage Larger Thumbnails for Video Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-master-class-on-vsco-camera-and-lens-for-creative-use/"><u>2024 Approved Master Class on VSCO Camera & Lens for Creative Use</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-pioneering-podcast-titling-with-leading-ai-driven-apps/"><u>2024 Approved Pioneering Podcast Titling with Leading AI-Driven Apps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/5-ways-to-transfer-music-from-itel-p55plus-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>5 Ways to Transfer Music from Itel P55+ to Other Android Devices Easily | Dr.fone</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/embrace-europes-tongues-language-diversity-declared/"><u>Embrace Europe's Tongues: Language Diversity Declared</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-call-logs-from-lava-agni-2-5g-by-fonelab-android-recover-call-logs/"><u>How To Restore Missing Call Logs from Lava Agni 2 5G</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-constructing-an-engaging-tiktok-aftermath/"><u>In 2024, Constructing an Engaging TikTok Aftermath</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-show-wi-fi-password-on-honor-x50-gt-by-drfone-android/"><u>In 2024, How to Show Wi-Fi Password on Honor X50 GT</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-4-ways-to-trace-realme-note-50-location-drfone-by-drfone-virtual-android/"><u>Top 4 Ways to Trace Realme Note 50 Location | Dr.fone</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/which-bot-wins-gpt-plus-or-perplexity-face-off/"><u>Which Bot Wins? GPT Plus or Perplexity Face-Off</u></a></li>
+</ul></div>
 

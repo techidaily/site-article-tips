@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Restore Windows Photo Viewer Efficiency on Windows 10 PCs"
-date: 2024-09-16T21:39:58.265Z
-updated: 2024-09-20T21:30:51.486Z
+date: 2024-09-24T16:15:20.435Z
+updated: 2024-09-26T17:41:24.779Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,13 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144285/7443" target="_top" id="2144285">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144285" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144285/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -69,6 +76,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 1**: Go to ‘Settings’ and open ‘Apps’. Click on ‘Default Apps’ and check ‘Photo Viewer’. The default photo viewer will be visible here.
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
@@ -93,10 +107,10 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
+  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -108,10 +122,10 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -137,5 +151,22 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-recording.techidaily.com/new-capturing-screen-mac-video-recording-guide/"><u>[New] Capturing Screen MAC Video Recording Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-pinnacle-mac-gif-sorter-for-2024/"><u>[New] Pinnacle Mac GIF Sorter for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-creating-gripping-videography-content-plans/"><u>2024 Approved Creating Gripping Videography Content Plans</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-decoding-the-detailed-workings-of-samsung-photo-editor-app/"><u>2024 Approved Decoding the Detailed Workings of Samsung Photo Editor App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-quick-insights-5-easy-techniques-for-effective-audio-capture-on-windows-11/"><u>2024 Approved Quick Insights 5 Easy Techniques for Effective Audio Capture on Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-speed-shots-and-stills-quicktime-techniques-for-samsung-users/"><u>2024 Approved Speed Shots & Stills Quicktime Techniques for Samsung Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-strategies-for-sustaining-viewer-interest-in-online-events/"><u>2024 Approved Strategies for Sustaining Viewer Interest in Online Events</u></a></li>
+<li><a href="https://article-tips.techidaily.com/a-complete-concise-introduction-to-mastering-final-cut-pro-techniques/"><u>A Complete, Concise Introduction to Mastering Final Cut Pro Techniques</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/cloudsafe-experts-opinion-for-2024/"><u>CloudSafe Experts Opinion for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/comment-tourner-votre-video-mp4-de-90-180-ou-270-degres-sans-perturbation-quality-guide-seo/"><u>Comment Tourner Votre Vidéo MP4 De 90, 180 Ou 270 Degrés Sans Perturbation Quality - Guide SEO</u></a></li>
+<li><a href="https://location-social.techidaily.com/edit-and-send-fake-location-on-telegram-for-your-poco-m6-pro-4g-in-3-ways-drfone-by-drfone-virtual-android/"><u>Edit and Send Fake Location on Telegram For your Poco M6 Pro 4G in 3 Ways | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-t-mobile-apple-iphone-11-pro-online-without-sim-card-by-drfone-ios/"><u>How to Unlock T-Mobile Apple iPhone 11 Pro online without SIM Card?</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/idt-hd-audio-codec-drivers-troubleshooting-and-resolution-in-windows-10-environments/"><u>IDT HD Audio CODEC Drivers Troubleshooting and Resolution in Windows 10 Environments</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-the-intricacies-of-battery-health-reporting-in-windows-10-a-comprehensive-overview/"><u>Navigating the Intricacies of Battery Health Reporting in Windows 10 - A Comprehensive Overview</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/play-store-not-working-on-oneplus-ace-2v-8-solutions-inside-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Play Store Not Working On OnePlus Ace 2V? 8 Solutions Inside | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, The Complete Mac Book on SRT File Handling"
-date: 2024-09-18T16:56:51.597Z
-updated: 2024-09-20T22:03:37.695Z
+date: 2024-09-19T20:40:19.229Z
+updated: 2024-09-27T02:48:11.322Z
 tags: 
   - screen-recording
   - ai video
@@ -119,16 +119,22 @@ Keep both the video you are adding the SRT into and the downloaded SRT file in o
 
 ![keep both video and srt file in one folder](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-3.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1915870/19272" target="_top" id="1915870">
-  <img src="//a.impactradius-go.com/display-ad/19272-1915870" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1915870/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step3 Open your video file on the VLC player by double-clicking on the movie and choosing the “Open with VLC media player” option. Or, drag and drop it into the media player. Another way is to tap on the File tab in the software and press the “Open File” option.
 
 ![tap on the file tab](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-4.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983552">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983552.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983552">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983552.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983552%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983552/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 The video will begin playing. Go to the menu bar and click on the Subtitles tab > choose the “Add Subtitle File…” button.
 
@@ -196,6 +202,13 @@ Step4 After rechecking that you chose the right format, add your email address; 
 
 ![press the convert button](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148642/16836" target="_top" id="2148642">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148642" border="0" alt="https://techidaily.com" width="300" height="50"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148642/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 On your Mac device, launch the QuickTime Pro software (upgrade the software to Pro beforehand if it is not already available).
 
 Step6 Access the video file and press View > Subtitles. Press the submenu and choose Open.
@@ -241,10 +254,10 @@ Step5 Choose the edited SRT file on the editor timeline. Right-click and choose 
 ![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -310,13 +323,6 @@ Step5 Click the Format tab > Make Plain Text. Alternatively, press the Shift + C
 
 ![click the format tab](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step6 Open File > Save. Add the file name under "Save As" and insert '.srt' at the name's end in place of '.txt'.
 
 ### Method 2: Open SRT files with VLC Media on Mac
@@ -359,6 +365,13 @@ Step4 The video will begin playing. Go to the menu bar and click on the Subtitle
 
 ![choose the add subtitle file button](https://images.wondershare.com/videoconverter/en/subtitles/add-subtitles-in-vlc-mac-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 Choose the SRT file from your device and then load it.
 
 ### Method 3: Use a Browser-based Online Tool like HappyScribe on Mac
@@ -395,6 +408,13 @@ Step2 Tap the "Autogenerate subtitles" option, or you can browse for suitable SR
 
 ![browse for suitable subtitles](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-7.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Make changes to the text color, caption, position, and font, as needed.
 
 Step4 Press the “Add Subtitle” button. It will insert into the MP4 within some minutes. The file will then automatically download into your Mac device.
@@ -417,6 +437,13 @@ Step3 Choose the output format for the file. Choose QT available in the fourth s
 
 ![choose the output format](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130875/7443" target="_top" id="2130875">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130875" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130875/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 After rechecking that you chose the right format, add your email address; you will receive the translated QT formatted file there. Press the Convert button to activate the conversion process.
 
 ![press the convert button](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-10.jpg)
@@ -430,10 +457,10 @@ Step7 Click on the Windows tab > Properties and make adjustments to the file.
 ![make adjustments to the file](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-11.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134240/18498" target="_top" id="2134240">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134240" border="0" alt="https://techidaily.com" width="540" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134240/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: The Best Way to Edit .SRT Files for Videos on Mac
@@ -468,16 +495,16 @@ Step4 Make customizations, like changing the text, editing the timecode, adjusti
 
 ![press ok after you are done](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-14.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step5 Choose the edited SRT file on the editor timeline. Right-click and choose the “Export Subtitle File” option.
 
 ![choose the export subtitle file option](https://images.wondershare.com/filmora/article-images/2022/11/how-to-open-or-edit-srt-on-mac-15.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043856/7443" target="_top" id="2043856">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043856" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043856/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -513,5 +540,26 @@ URL for VLC on Mac steps/pics: <https://videoconverter.wondershare.com/subtitle/
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-stream.techidaily.com/new-from-concept-to-completion-crafting-youtube-shorts-templates-masterfully/"><u>[New] From Concept to Completion Crafting YouTube Shorts Templates Masterfully</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-the-art-of-focusing-on-roblox-elements-closeup/"><u>[New] In 2024, The Art of Focusing on Roblox Elements Closeup</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premium-picks-the-ultimate-gopro-upgrades/"><u>[New] Premium Picks The Ultimate Gopro Upgrades</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-crafting-compelling-podcast-names-a-detailed-guide-with-idea-examples/"><u>[Updated] Crafting Compelling Podcast Names A Detailed Guide with Idea Examples</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-mastering-the-download-of-youtubes-default-thumbnails-effortlessly/"><u>[Updated] Mastering the Download of YouTube's Default Thumbnails Effortlessly</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-masters-of-digital-avengers-realms/"><u>[Updated] Masters of Digital Avengers Realms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/20-high-end-editors-for-dji-drone-footage/"><u>20 High-End Editors for DJi Drone Footage</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-accessing-disguised-user-responses-on-yt/"><u>2024 Approved Accessing Disguised User Responses on YT</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-auditory-aesthetics-incorporating-youtube-music-into-videos/"><u>2024 Approved Auditory Aesthetics Incorporating YouTube Music Into Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-bring-life-to-your-posts-animating-text-on-insta-stories/"><u>2024 Approved Bring Life to Your Posts Animating Text on Insta Stories</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-capturing-the-essence-cinematic-techniques-at-their-best/"><u>2024 Approved Capturing the Essence Cinematic Techniques at Their Best</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-convincing-viewers-discovering-effective-video-styles/"><u>2024 Approved Convincing Viewers Discovering Effective Video Styles</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-affinity-photos-features-to-excise-borders-effectively/"><u>2024 Approved Navigating Affinity Photo's Features to Excise Borders Effectively</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-pro-photos-master-the-art-of-adding-motion-blur-effects/"><u>2024 Approved Pro Photos Master the Art of Adding Motion Blur Effects</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-transformative-techniques-mastering-lut-application-in-post-production/"><u>2024 Approved Transformative Techniques Mastering LUT Application in Post-Production</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-vivo-x-fold-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Vivo X Fold 2 | Dr.fone</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/el-flair-free-download-templates-for-2024/"><u>Channel Flair Free Download Templates for 2024</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-nokia-xr21-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Nokia XR21 | Dr.fone</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/mastering-iphones-playlist-paradise-podcast-edition-for-2024/"><u>Mastering iPhone's Playlist Paradise Podcast Edition for 2024</u></a></li>
+</ul></div>
 

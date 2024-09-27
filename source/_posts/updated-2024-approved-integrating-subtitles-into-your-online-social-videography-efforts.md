@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Integrating Subtitles Into Your Online Social Videography Efforts\""
-date: 2024-09-14T23:41:04.420Z
-updated: 2024-09-20T21:25:57.364Z
+date: 2024-09-19T19:42:32.097Z
+updated: 2024-09-26T16:51:45.729Z
 tags: 
   - screen-recording
   - ai video
@@ -103,13 +103,6 @@ Step4Once you've successfully uploaded the SRT file, it'll show up under "Enable
 
 Step5Finally, hit the 'Save' button to complete the operation.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
-  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: Upload SRT Files to Facebook Videos
 
 Facebook is one of the biggest social media apps, and videos posted on the app have the potential of reaching millions of folks globally. So, if you've been posting videos on Facebook without subtitles, then that has to change because adding SRT to Facebook videos will not only allow your video to be easily understandable without turning on audio but also broaden your social reach.
@@ -120,22 +113,16 @@ Step1Open your Facebook account and locate the Video that you want to add SRT su
 
 ![click on edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2Click on "Ädd Captions" and use the "Upload" button to add your SRT file. Your SRT file must be in this format Filename.en\_US.srt.
 
 ![dd captions](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-2.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3Once the SRT file upload is completed, use the Save button to complete the SRT upload operation.
 
@@ -161,33 +148,27 @@ Step2Move the uploaded SRT file to the timeline and right-click on it, then sele
 
 ![advanced edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Edit different aspects of the SRT subtitle ranging from its time code, text, etc., and changing subtitle styles, like text color, shadow, fonts, etc.
 
 ![changing subtitle styles](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-3.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983472">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123730/7443" target="_top" id="2123730">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123730" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123730/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4Once editing is completed, navigate to the timeline of the SRT file and right-click on it, then choose "Export Subtitle file" to complete the action.
 
 ![navigate to the timeline](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129739/7443" target="_top" id="2129739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -200,6 +181,13 @@ However, when you're looking to edit SRT subtitle file, the best thing to do is 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 From the overview table above, it's obvious you can easily create one SRT file and easily use it on different social media channels. This saves you the stress of creating different subtitle files for each platform. So, without further ado, let's dive in to find out how to upload and add .srt files to different social media platforms.
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148648/16836" target="_top" id="2148648">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148648" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148648/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 1: Upload SRT Files to YouTube Videos
 
@@ -248,6 +236,20 @@ Step5Now play the video to preview the subtitle and if you're satisfied, publish
 
 ![tweet instantly](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1030129/11832" target="_top" id="1030129">
+  <img src="//a.impactradius-go.com/display-ad/11832-1030129" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1030129/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: Upload SRT Files to Your Vimeo Video
 
 Vimeo is another platform that's similar to YouTube. It allows users to upload and watch video content online. So, if you're using Vimeo, you can easily add SRT files to your video by following the steps outlined below;
@@ -263,6 +265,13 @@ Step3Click 'Advanced' from the Settings page. Then navigate to "Add Caption & Su
 Step4Once you've successfully uploaded the SRT file, it'll show up under "Enable Captions & Subtitles". Then verify that 'Status' is turned ON and select your file language and file type is SRT.
 
 Step5Finally, hit the 'Save' button to complete the operation.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: Upload SRT Files to Facebook Videos
 
@@ -306,16 +315,16 @@ Step3Edit different aspects of the SRT subtitle ranging from its time code, text
 
 ![changing subtitle styles](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-3.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4Once editing is completed, navigate to the timeline of the SRT file and right-click on it, then choose "Export Subtitle file" to complete the action.
 
 ![navigate to the timeline](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2100541/7443" target="_top" id="2100541">
-  <img src="//a.impactradius-go.com/display-ad/7443-2100541" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -349,5 +358,24 @@ However, when you're looking to edit SRT subtitle file, the best thing to do is 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-secure-your-free-green-screen-assets-with-these-top-8-sites/"><u>[New] 2024 Approved Secure Your FREE Green Screen Assets with These Top 8 Sites</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-sprinting-into-the-digital-age-picks-on-vr-treadmills/"><u>[New] 2024 Approved Sprinting Into the Digital Age Picks on VR Treadmills</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-navigating-zoom-effectively-on-chrome-devices/"><u>[New] In 2024, Navigating Zoom Effectively on Chrome Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-visionary-visuals-unveiling-the-best-5-color-graded-screens/"><u>[New] In 2024, Visionary Visuals Unveiling the Best 5 Color-Graded Screens</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-3dr-a-solo-traverse-into-future-tech-world/"><u>[Updated] '3DR' A Solo Traverse Into Future Tech World</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-insiders-guide-to-efficient-phone-recording/"><u>[Updated] In 2024, Insider's Guide to Efficient Phone Recording</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-in-2024-record-gameplay-in-samsung-galaxy-phones/"><u>[Updated] In 2024, Record Gameplay in Samsung Galaxy Phones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-tailored-brand-symbols-turn-basic-templates-into-logos/"><u>[Updated] Tailored Brand Symbols Turn Basic Templates Into Logos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/audio-accomplishment-iphone-as-a-podcast-hub/"><u>Audio Accomplishment IPhone as a Podcast Hub</u></a></li>
+<li><a href="https://program-issues.techidaily.com/fixing-star-wars-battlefront-2s-issue-with-error-code-327-a-step-by-step-guide/"><u>Fixing Star Wars Battlefront 2'S Issue with Error Code #327 – A Step-by-Step Guide</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-easily-unlock-your-motorola-moto-g-stylus-5g-2023-device-sim-by-drfone-android/"><u>In 2024, Easily Unlock Your Motorola Moto G Stylus 5G (2023) Device SIM</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-vivo-v27-pro-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Vivo V27 Pro Bootloader Easily</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-nokia-c12-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Nokia C12 | Dr.fone</u></a></li>
+<li><a href="https://win-studio.techidaily.com/microsoft-to-introduce-fees-for-windows-11-updates-from-next-year-estimated-prices-revealed-zdnet/"><u>Microsoft to Introduce Fees for Windows 11 Updates From Next Year - Estimated Prices Revealed | ZDNET</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/automated-youtube-content-rollouts/"><u>Stop Automated YouTube Content Rollouts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/streamline-your-media-experience-add-subtitles-in-windows-media-player-for-2024/"><u>Streamline Your Media Experience Add Subtitles in Windows Media Player for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/unlock-windows-11-printer-issues-and-solutions-quickly/"><u>Unlock Windows 11 Printer Issues & Solutions Quickly</u></a></li>
+</ul></div>
 

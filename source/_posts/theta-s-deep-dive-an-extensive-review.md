@@ -1,7 +1,7 @@
 ---
 title: "\"Theta S Deep Dive  An Extensive Review\""
-date: 2024-09-18T18:16:54.138Z
-updated: 2024-09-20T23:39:23.990Z
+date: 2024-09-21T23:09:16.876Z
+updated: 2024-09-26T17:55:18.106Z
 tags: 
   - screen-recording
   - ai video
@@ -75,6 +75,13 @@ The picture quality is simply outstanding and is rated to be much better than al
 
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2 Pros and Cons at a glance
 
 | Pros                                                                                   | Cons                                                                  |
@@ -87,6 +94,13 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Great still image quality                                                              |                                                                       |
 | Cloud service for image sharing                                                        |                                                                       |
 | Remote control (via App)                                                               |                                                                       |
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
 
@@ -105,10 +119,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130869/7443" target="_top" id="2130869">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130869" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
+  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130869/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
@@ -120,10 +134,10 @@ Theta S is one of the most useful products for photography lovers whether they a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -149,5 +163,26 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-break-the-ice-how-to-make-a-hit-youtube-reaction-in-just-15-minutes-or-less/"><u>[New] In 2024, Break the Ice - How to Make a Hit YouTube Reaction in Just 15 Minutes or Less</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-reviving-shadows-and-highlights-in-iphone-hdr-footage-with-premiere-pro/"><u>[New] Reviving Shadows and Highlights in iPhone HDR Footage with Premiere Pro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-ai-powered-best-titles-makers-online/"><u>2024 Approved AI-Powered Best Titles Makers Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-best-websites-to-download-a-youtube-ringtone/"><u>2024 Approved Best Websites To Download A YouTube Ringtone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-dji-aerial-innovation-packs-starter-pro-upgrade-high-definition-ultra/"><u>2024 Approved DJI Aerial Innovation Packs Starter, Pro Upgrade, High-Definition Ultra</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-evaluating-m1s-capabilities-for-heavy-duty-media-editing/"><u>2024 Approved Evaluating M1's Capabilities for Heavy-Duty Media Editing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-filmoras-pathway-to-convert-video-avi-files-into-image-gif/"><u>2024 Approved Filmora’s Pathway to Convert Video (AVI) Files Into Image (GIF)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-hearing-beginnings-mastering-volume-control-in-adobe-audition/"><u>2024 Approved Hearing Beginnings Mastering Volume Control in Adobe Audition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-proven-approaches-to-amass-elite-copyright-free-imagery/"><u>2024 Approved Proven Approaches to Amass Elite, Copyright-Free Imagery</u></a></li>
+<li><a href="https://article-tips.techidaily.com/are-product-critiques-online-generated-income/"><u>Are Product Critiques Online Generated Income?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/audio-to-art-crafting-music-videos-on-apple-devices/"><u>Audio to Art Crafting Music Videos on Apple Devices</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/cambiar-resolucao-de-video-online-top-8-softwares-mais-populares-e-gratuitos/"><u>Cambiar Resolução De Vídeo Online: Top 8 Softwares Mais Populares E Gratuitos</u></a></li>
+<li><a href="https://article-files.techidaily.com/exploring-every-aspect-of-vitas-complete-editing-app-for-2024/"><u>Exploring Every Aspect of Vita's Complete Editing App for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/exploring-the-group-dynamics-in-social-media-giants/"><u>Exploring the Group Dynamics in Social Media Giants</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-a-complete-guide-to-oem-unlocking-on-vivo-s18-pro-by-drfone-android/"><u>In 2024, A Complete Guide To OEM Unlocking on Vivo S18 Pro</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-tecno-phantom-v-fold-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos from Tecno Phantom V Fold to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/is-your-honor-90-working-too-slow-heres-how-you-can-hard-reset-it-drfone-by-drfone-reset-android-reset-android/"><u>Is your Honor 90 working too slow? Heres how you can hard reset it | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/master-the-art-of-resolving-fortnite-login-difficulties-instantly-and-effortlessly/"><u>Master the Art of Resolving Fortnite Login Difficulties Instantly & Effortlessly</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/network-locked-sim-card-inserted-on-your-samsung-galaxy-s23-ultra-phone-unlock-it-now-by-drfone-android/"><u>Network Locked SIM Card Inserted On Your Samsung Galaxy S23 Ultra Phone? Unlock It Now</u></a></li>
+</ul></div>
 

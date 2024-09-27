@@ -1,7 +1,7 @@
 ---
 title: "[New] Master Strategies to Stop Windows 10 Photos Crashes for 2024"
-date: 2024-09-19T19:04:10.898Z
-updated: 2024-09-20T22:20:47.758Z
+date: 2024-09-20T03:50:59.897Z
+updated: 2024-09-26T23:32:24.709Z
 tags: 
   - screen-recording
   - ai video
@@ -47,6 +47,13 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -61,6 +68,13 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -72,7 +86,21 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014854/22899" target="_top" id="2014854">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014854" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014854/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Solution 3: Reset it
 
@@ -95,13 +123,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036481/19272" target="_top" id="2036481">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036481" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036481/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -118,13 +139,6 @@ Here is how to reinstall the Windows 10 Photos App –
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -151,5 +165,19 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-1-5-best-url-trimmer-tools-for-youtube-videos/"><u>[Updated] In 2024, 1-5 Best URL Trimmer Tools for YouTube Videos</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-unraveling-the-film-reel-how-to-rewind-on-instagram-for-2024/"><u>[Updated] Unraveling the Film Reel How to Rewind on Instagram for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-comprehensive-guide-on-implementing-googles-text-conversion-service/"><u>2024 Approved Comprehensive Guide on Implementing Google's Text Conversion Service</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-delving-into-color-modification-through-lut-techniques/"><u>2024 Approved Delving Into Color Modification Through LUT Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unlocking-full-degree-potential-editing-strategies-with-adobe-premiere/"><u>2024 Approved Unlocking Full Degree Potential Editing Strategies with Adobe Premiere</u></a></li>
+<li><a href="https://article-tips.techidaily.com/become-a-windows-pro-learn-to-trim-videos-like-an-editor-for-2024/"><u>Become a Windows Pro Learn to Trim Videos Like an Editor for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/elite-5-digital-media-screenshots/"><u>Elite 5 Digital Media Screenshots</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-must-have-gear-for-road-trip-documentaries/"><u>In 2024, Must-Have Gear for Road Trip Documentaries</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/secureyourcam-top-10-reviews-for-protected-shopping-for-2024/"><u>SecureYourCam Top 10 Reviews for Protected Shopping for 2024</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/updated-in-2024-get-creative-with-free-sound-effects-a-beginners-guide-to-final-cut-pro/"><u>Updated In 2024, Get Creative with Free Sound Effects A Beginners Guide to Final Cut Pro</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/verslent-online-wav-naar-aac-format-professioneel-movividereijking/"><u>Verslent Online WAV Naar AAC Format - Professioneel MoviVidereijking</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/what-sets-generative-ai-apart-insights-shared/"><u>What Sets Generative AI Apart? Insights Shared</u></a></li>
+</ul></div>
 

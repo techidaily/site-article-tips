@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Instant Impact  The Ultimate 10 Principles of iPhone Photography Design\""
-date: 2024-09-18T18:36:50.530Z
-updated: 2024-09-21T00:31:59.093Z
+date: 2024-09-21T22:14:02.860Z
+updated: 2024-09-26T22:14:25.183Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,20 @@ thumbnail: https://thmb.techidaily.com/45eb95de820412631e47a9a054cb53f933466e540
 
 ![leading lines](https://images.wondershare.com/filmora/article-images/leading-lines.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/2106658/12108" target="_top" id="2106658">
+  <img src="//a.impactradius-go.com/display-ad/12108-2106658" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/2106658/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Symmetry
 
  For the perfect photo composition with an iPhone, one should understand what all make for the right composition. Photographers divide the frame they want to click into rough patterns and position the subject at the right place to get wonderful shots. Both man-made and natural symmetry and patterns represent eye-catching compositions. You can either take a shot following the symmetric patterns or break them to make the subject stand out by adding focal points and tension.
@@ -58,17 +72,10 @@ thumbnail: https://thmb.techidaily.com/45eb95de820412631e47a9a054cb53f933466e540
 ![framing](https://images.wondershare.com/filmora/article-images/framing.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528703/16446" target="_top" id="1528703">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137223/26400" target="_top" id="2137223">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137223" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528703/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997648/19272" target="_top" id="1997648">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997648" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997648/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137223/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Diagonals
@@ -77,6 +84,13 @@ thumbnail: https://thmb.techidaily.com/45eb95de820412631e47a9a054cb53f933466e540
 
 ![diagonal](https://images.wondershare.com/filmora/article-images/diagonal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139123/17108" target="_top" id="2139123">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139123" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139123/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Shape
 
  Speaking of shape in photography composition sounds odd? ‘Rule of Thirds’ and ‘Leading Lines’ are not the only rules that make a photo composition. Line, shape, texture, form, space, color, and pattern also play a key role to make your iPhone photography a real treasure. Shape defines the two dimensional view of the subject and the entire scene as well. A well defined subject with a silhouette and backlighting or a black and white picture looks more appealing than a color picture where the shape of the subject or other objects is not prominent. Forms and shapes play an integral role in photography.
@@ -84,10 +98,10 @@ thumbnail: https://thmb.techidaily.com/45eb95de820412631e47a9a054cb53f933466e540
 ![shape](https://images.wondershare.com/filmora/article-images/shape.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934292/19272" target="_top" id="1934292">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934292" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934292/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Leave Empty Space
@@ -97,16 +111,10 @@ thumbnail: https://thmb.techidaily.com/45eb95de820412631e47a9a054cb53f933466e540
 ![space](https://images.wondershare.com/filmora/article-images/Space.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1424527">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424527.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424527">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424527.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424527%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424527/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151872/7443" target="_top" id="2151872">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151872" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151872/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Direction of Subject
@@ -128,16 +136,10 @@ thumbnail: https://thmb.techidaily.com/45eb95de820412631e47a9a054cb53f933466e540
 ![breal the rules](https://images.wondershare.com/filmora/article-images/break.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1983549">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983549.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983549">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983549.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983549%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983549/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclsion
@@ -171,5 +173,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-gopro-hero-4-vs-sony-dslr-for-extreme-sports-which-rules-the-arena/"><u>[New] 2024 Approved GoPro Hero 4 Vs Sony DSLR for Extreme Sports Which Rules the Arena?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-pro-windows-10-handbook-for-efficiency/"><u>[New] In 2024, Pro WINDOWS 10 Handbook for Efficiency</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-mastering-time-lapse-with-your-samsung-phone/"><u>[New] Mastering Time Lapse with Your Samsung Phone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-bend-and-shape-your-text-with-3d-effects-in-illustrator/"><u>[Updated] Bend and Shape Your Text with 3D Effects in Illustrator</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/updated-essential-insights-on-youtube-tvs-unique-features/"><u>[Updated] Essential Insights on YouTube TV's Unique Features</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/a-deeper-dive-into-vsdc-plus-its-top-alternatives/"><u>A Deeper Dive Into VSDC, Plus Its Top Alternatives</u></a></li>
+<li><a href="https://network-issues.techidaily.com/adjusting-computer-display-to-proper-view/"><u>Adjusting Computer Display to Proper View</u></a></li>
+<li><a href="https://article-tips.techidaily.com/designing-multi-layered-photographic-illusions/"><u>Designing Multi-Layered Photographic Illusions</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-frp-from-poco-c55-by-drfone-android/"><u>In 2024, How to Bypass FRP from Poco C55?</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/tech-talk-video-showcase-assessment/"><u>Tech Talk Video Showcase Assessment</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/the-ultimate-guide-to-capturing-professional-quality-in-zoom-podcasts-for-2024/"><u>The Ultimate Guide to Capturing Professional Quality in Zoom Podcasts for 2024</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] After Effects Textwork Essentials  The 10 Best Presets for 2024\""
-date: 2024-09-18T18:46:04.261Z
-updated: 2024-09-21T00:40:19.982Z
+date: 2024-09-24T22:25:24.393Z
+updated: 2024-09-26T19:33:25.031Z
 tags: 
   - screen-recording
   - ai video
@@ -64,10 +64,10 @@ There are two FFX files in the pack that lets you get a retro text effect along 
 ![typominal typewriter effect preset](https://images.wondershare.com/filmora/article-images/2022/09/typominal-typewriter-effect-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Tapered Stroke Preset
@@ -100,18 +100,25 @@ If you are looking for some upbeat text presets, kinetic text animation pack is 
 
 ![kinetic text animation preset](https://images.wondershare.com/filmora/article-images/2022/09/kinetic-text-animation-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123511/26400" target="_top" id="2123511">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123511" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123511/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 9\. 30 Universal Text Animation
 
 If you want to keep the text animations simple but you want it to be different than the usual text animations, this is the pack for you. You get 30 standard text animation presets with a geometrical element in each one of them. You can customize the timing, duration, size, and various such parameters to fit them in your video project perfectly.
 
 ![universial text aniamtion preset](https://images.wondershare.com/filmora/article-images/2022/09/universial-text-aniamtion-preset.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. Text Animation Lower Third
 
@@ -135,6 +142,13 @@ Step3Click on the text layer to expand it and you will see different parameters 
 
 ![adjust text layer after effects](https://images.wondershare.com/filmora/article-images/2022/09/adjust-text-layer-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2005196/22899" target="_top" id="2005196">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005196" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005196/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3\. Alternative Way to Create Text Effects for Video
 
 It is a fact that many find After Effects difficult to get used to as the user interface is not that friendly. If you are looking for the best alternative to After Effects, we recommend [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The user interface is super intuitive and anyone without prior experience can create text effects for any video instantly. There are different categories of text effects and animations available to satisfy the requirements of video creators. Here are the steps to add After Effects and Premiere Pro text presets using Filmora.
@@ -151,6 +165,13 @@ Step2Drop the video clip onto timeline if you want to use it as a background to 
 
 ![drop the video clip onto timeline](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Go to Titles and you will see different categories of text effects on the left panel. Search for any text effect and select any desired template. Drop it onto the timeline above the background layer.
 
 ![select any desired template](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -158,19 +179,6 @@ Step3Go to Titles and you will see different categories of text effects on the l
 Step4Double-click on the text layer and edit the text. Place the text layer on the timeline where you want the text to appear. You can also change the text styles and parameters as per your requirements.
 
 ![edit the text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
-
-<!-- affiliate ads begin -->
-<span id="1936838">
-					<video width="374" height="48" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1936838.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18409-1936838">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1936838.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:234px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcoinrule.sjv.io%2Fc%2F5597632%2F1936838%2F18409'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1936838/18409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -197,6 +205,13 @@ The glitch text effects are extremely common in today's videos as they instantly
 You should have simple but effective motion text effects in your video so that certain texts and titles can get the message across clearly to the viewers. In this pack, you get amazing motion text effects with and without keyframes. Besides, you get several useful parameters like in-out mirror, reverse in and out, and overshoot that you can tweak to get the desired text animations.
 
 ![motion type text animation preset](https://images.wondershare.com/filmora/article-images/2022/09/motion-type-text-animation-preset.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Typominal Typewriter Effect Preset
 
@@ -235,10 +250,16 @@ If you are looking for some upbeat text presets, kinetic text animation pack is 
 ![kinetic text animation preset](https://images.wondershare.com/filmora/article-images/2022/09/kinetic-text-animation-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304647">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304647.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304647">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304647%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304647/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 9\. 30 Universal Text Animation
@@ -246,13 +267,6 @@ If you are looking for some upbeat text presets, kinetic text animation pack is 
 If you want to keep the text animations simple but you want it to be different than the usual text animations, this is the pack for you. You get 30 standard text animation presets with a geometrical element in each one of them. You can customize the timing, duration, size, and various such parameters to fit them in your video project perfectly.
 
 ![universial text aniamtion preset](https://images.wondershare.com/filmora/article-images/2022/09/universial-text-aniamtion-preset.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 10\. Text Animation Lower Third
 
@@ -287,6 +301,19 @@ It is a fact that many find After Effects difficult to get used to as the user i
 Step1Install Wondershare Filmora and launch the application. Click on New Project option and drop your video clip for the background inside Project Media folder.
 
 ![install wondershare filmora](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
+
+<!-- affiliate ads begin -->
+<span id="1982462">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2Drop the video clip onto timeline if you want to use it as a background to your text. If you want to use any stock background, go to Stock Media> Pexels/Pixabay> Video and drop any background onto the timeline.
 
@@ -330,5 +357,26 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-hints.techidaily.com/updated-amplify-your-messages-a-guide-to-effective-telegram-advertising/"><u>[Updated] Amplify Your Messages A Guide to Effective Telegram Advertising</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-enhance-engagement-with-these-4-looping-video-techniques/"><u>[Updated] In 2024, Enhance Engagement with These 4 Looping Video Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-crafting-immersive-experiences-with-green-screen-technology/"><u>2024 Approved Crafting Immersive Experiences with Green Screen Technology</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-day-after-analysis-non-traditional-ideas/"><u>2024 Approved Day After Analysis Non-Traditional Ideas</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-exclusive-selection-best-desktop-pcs/"><u>2024 Approved Exclusive Selection Best Desktop Pcs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-ultimate-collection-top-free-ae-template-packs/"><u>2024 Approved Ultimate Collection Top Free AE Template Packs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-ultimate-iphone-close-up-photographic-guide/"><u>2024 Approved Ultimate iPhone Close-Up Photographic Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/add-personality-to-your-device-a-comprehensively-tailored-sound-and-ringtone-guide-for-android/"><u>Add Personality to Your Device A Comprehensively Tailored Sound & Ringtone Guide for Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/altered-captions-a-video-guide/"><u>Altered Captions A Video Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/basic-guide-to-modify-clown-voiceprint-in-windoze-pc-for-2024/"><u>Basic Guide to Modify Clown Voiceprint in Windoze PC for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-action-hunting-cameras-of-2023/"><u>Best Action Hunting Cameras of 2023</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/enhancing-communication-strategies-for-effective-call-logging/"><u>Enhancing Communication Strategies for Effective Call Logging</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/game-on-a-comprehensive-guide-to-xbox-one-captures-for-2024/"><u>Game On A Comprehensive Guide to Xbox One Captures for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-master-multi-tasking-on-edge-with-picture-in-picture/"><u>In 2024, Master Multi-Tasking on Edge with Picture-in-Picture</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-top-free-dual-screen-video-editing-software-web-and-desktop/"><u>New In 2024, Top Free Dual-Screen Video Editing Software Web & Desktop</u></a></li>
+<li><a href="https://android-frp.techidaily.com/the-complete-guide-to-oppo-reno-10-5g-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>The Complete Guide to Oppo Reno 10 5G FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/the-game-changer-amd-ryzen-5-9600x-and-ryzen-7-9700xs-superior-gaming-capabilities-in-zen-5-era/"><u>The Game Changer: AMD Ryzen 5 9600X & Ryzen 7 9700X's Superior Gaming Capabilities in Zen 5 Era</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/top-5-methods-for-capturing-roblox-games-on-macos-for-2024/"><u>Top 5 Methods for Capturing Roblox Games on macOS for 2024</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/ultimate-android-3d-playback-software/"><u>Ultimate Android 3D Playback Software</u></a></li>
+</ul></div>
 

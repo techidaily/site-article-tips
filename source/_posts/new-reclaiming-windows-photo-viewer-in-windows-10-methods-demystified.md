@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Reclaiming Windows Photo Viewer in Windows 10 - Methods Demystified\""
-date: 2024-09-16T21:38:45.312Z
-updated: 2024-09-20T21:38:37.051Z
+date: 2024-09-22T17:24:27.689Z
+updated: 2024-09-27T00:38:22.988Z
 tags: 
   - screen-recording
   - ai video
@@ -62,6 +62,13 @@ Here is why they want to restore Windows Photo Viewer –
 
 Though, Windows 10 Photos offers a dark theme, the effectiveness, responsiveness and features available with Windows Photo Viewer are hard to compromise.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Method 1 to restore Windows Photo Viewer
 
 The first method speaks about, when you have upgraded from a Windows 7/8/8.1 computer to Windows 10\. You can easily swing back to your most loved Windows Photo Viewer within no time. Here is the detailed guide –
@@ -69,6 +76,13 @@ The first method speaks about, when you have upgraded from a Windows 7/8/8.1 com
 **Step 1**: Go to ‘Settings’ and open ‘Apps’. Click on ‘Default Apps’ and check ‘Photo Viewer’. The default photo viewer will be visible here.
 
 ![restore windows photo viewer](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 2**: Click on the present photo viewer app over there and look for ‘Windows Photo Viewer’. We assume that you have upgraded from an older version on Windows and Windows Photo Viewer is there in the options.
 
@@ -93,16 +107,10 @@ Here is the detailed guide –
 ![restore windows photo viewer code](https://images.wondershare.com/filmora/article-images/restore-windows-photo-viewer-code.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Conclusion
@@ -111,14 +119,14 @@ From the above article, we found out that restoring Windows Photo Viewer on your
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880944/19272" target="_top" id="1880944">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880944" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880944/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -143,5 +151,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-in-depth-motion-evaluation-2023/"><u>[New] 2024 Approved In-Depth Motion Evaluation 2023</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-techniques-for-elongated-iphone-photography/"><u>[New] 2024 Approved Techniques for Elongated iPhone Photography</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-elevate-your-photography-with-polarrs-complete-features-for-2024/"><u>[New] Elevate Your Photography with Polarr's Complete Features for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-elevate-your-iphone-shots-10-best-camera-apps-x-7/"><u>[Updated] 2024 Approved Elevate Your iPhone Shots 10 Best Camera Apps (X, 7)</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-2024-approved-leveraging-virtual-board-features-for-enhanced-collaboration-in-zoom/"><u>[Updated] 2024 Approved Leveraging Virtual Board Features for Enhanced Collaboration in Zoom</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-the-ultimate-blueprint-adopting-mobizen-screen-recording-skills/"><u>[Updated] 2024 Approved The Ultimate Blueprint Adopting Mobizen Screen Recording Skills</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-best-8-sbt-to-srtr-conversion-tools-pcmac-compatibility/"><u>[Updated] Best 8 SBT to SRTR Conversion Tools - PC/Mac Compatibility</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-10-best-microphones-for-action-cameras/"><u>[Updated] In 2024, 10 Best Microphones for Action Cameras</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-navigating-the-needle-speed-of-videos-in-snapchat-for-2024/"><u>[Updated] Navigating the Needle-Speed of Videos in Snapchat for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-infinix-hot-40i-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Infinix Hot 40i Fingerprint Lock</u></a></li>
+<li><a href="https://fox-that.techidaily.com/how-to-resolve-connection-issues-iphone-not-linking-with-pc/"><u>How to Resolve Connection Issues: IPhone Not Linking with PC</u></a></li>
+<li><a href="https://driver-download.techidaily.com/rtx-2-super-driver-installation-files-for-windows-users-win-1011/"><u>RTX 2# SUPER Driver Installation Files for Windows Users (Win 10/11)</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/seamlessly-switch-between-languages-with-the-power-of-chatgpt/"><u>Seamlessly Switch Between Languages with the Power of ChatGPT</u></a></li>
+</ul></div>
 

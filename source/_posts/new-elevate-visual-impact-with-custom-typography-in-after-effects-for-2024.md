@@ -1,7 +1,7 @@
 ---
 title: "[New] Elevate Visual Impact with Custom Typography in After Effects for 2024"
-date: 2024-09-18T20:13:33.068Z
-updated: 2024-09-20T18:47:10.275Z
+date: 2024-09-23T20:00:21.384Z
+updated: 2024-09-26T23:36:03.468Z
 tags: 
   - screen-recording
   - ai video
@@ -48,11 +48,25 @@ Thus, selecting a proper font for the video becomes necessary in the post-produc
 * Now keep the Creative Cloud application up and running in your system and then open your After Effects application. There navigate to "Graphics" and then select "Add Fonts from Adobe Fonts".
 * You can also use the font dropdown menu as a shortcut to use the fonts instantly. In Adobe After Effects interface, you can then select the "Character" panel to add or change the fonts to your videos.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Types of Fonts in After Effects
 
 Adobe After Effects provides a ton of families of fonts that can be added and used in video projects. These fonts are available on the Create Cloud application and also on the official website of adobe. Also, these fonts are categorized according to their height, weight, contrast as well as other attributes. And each of these fonts is shown with a preview saying "Typography" which can be selected instantly.
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. How to use text effects in After Effects?
 
@@ -62,16 +76,16 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016148/19272" target="_top" id="2016148">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016148" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016148/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
 
@@ -85,16 +99,16 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -112,13 +126,6 @@ The article discussed the detailed process of **how to add font to Adobe After E
 These features also include adding texts and changing the fonts of those texts on your video. And for users who want to edit texts or fonts in their videos using [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), here is how you can do it:
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037351/7443" target="_top" id="2037351">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037351" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037351/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
@@ -157,5 +164,23 @@ The article discussed the detailed process of **how to add font to Adobe After E
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-transform-your-digital-works-into-blockchain-treasures-with-these-tools/"><u>[New] 2024 Approved Transform Your Digital Works Into Blockchain Treasures with These Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-pioneering-sky-hdr-images-at-your-fingertips/"><u>[New] In 2024, Pioneering Sky HDR Images at Your Fingertips</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-step-into-new-realms-with-vr-technology-for-2024/"><u>[New] Step Into New Realms with VR Technology for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-taking-screenshots-on-mac-5-methods/"><u>[Updated] 2024 Approved Taking Screenshots on Mac [5 Methods]</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-future-of-photography-at-your-fingertips-with-samsung/"><u>[Updated] 2024 Approved The Future of Photography at Your Fingertips with Samsung</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-seamless-integration-12-stream-app-experience/"><u>[Updated] In 2024, Seamless Integration 12 Stream App Experience</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-novel-windows-11-strategies-for-peak-performance/"><u>[Updated] Novel Windows 11 Strategies for Peak Performance</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-photographers-favorites-iosandroid-writing-apps-for-2024/"><u>[Updated] Photographers' Favorites IOS/Android Writing Apps for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-spark-creativity-30-unique-video-projects-for-2024/"><u>[Updated] Spark Creativity 30 Unique Video Projects for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/1725288833236-mp4/"><u>「MP4ファイルの音量調整＆均一化:無料ガイド」</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/gpts-leap-forward-a-comparative-overview/"><u>GPT's Leap Forward: A Comparative Overview</u></a></li>
+<li><a href="https://techidaily.com/hard-resetting-an-samsung-galaxy-s24plus-device-made-easy-drfone-by-drfone-reset-android-reset-android/"><u>Hard Resetting an Samsung Galaxy S24+ Device Made Easy | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-laughing-liberally-with-our-meme-toolbox/"><u>In 2024, Laughing Liberally with Our Meme Toolbox</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/optimal-video-posting-frequency-for-increased-youtube-popularity-for-2024/"><u>Optimal Video Posting Frequency for Increased YouTube Popularity for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/revive-your-visuals-stellar-phoenix-for-mac-repairs/"><u>Revive Your Visuals: 'Stellar Phoenix' For Mac Repairs</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/valheim-stability-issues-solved-no-more-crashes-on-pc-for-gamers/"><u>Valheim Stability Issues Solved: No More Crashes on PC for Gamers</u></a></li>
+</ul></div>
 

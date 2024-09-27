@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Unique 14 Motion Graphics Showcasing Text"
-date: 2024-09-18T16:28:51.606Z
-updated: 2024-09-20T17:16:41.385Z
+date: 2024-09-23T22:50:21.234Z
+updated: 2024-09-26T23:36:10.750Z
 tags: 
   - screen-recording
   - ai video
@@ -63,16 +63,16 @@ Fade in and fade out text animation is extremely common in videos where the text
 
 You must have noticed the sliding text animation in videos where facts and figures are shown on the video. The sliding text animation generally slides into the video frame from a border or a stripe. Thereafter, it vanishes into the border or the stripe from where it originated. Sometimes, the text slides in from the right and sits in a fixed highlighted box, and slides out eventually.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Text breaks away animation
 
 There are different variations of text breaks away animation but it is one of the most visually appealing text animations. That text appears on the video and it shatters and disappears. Sometimes, the text turns into dust after shattering like a glass. This text effect cum animation is highly impactful in getting the attention of the viewers immediately.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144297/7443" target="_top" id="2144297">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144297" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144297/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Typing text animation
 
@@ -86,24 +86,31 @@ Last but not least, the vertical scrolling text effect is extremely common for o
 
 You should always keep the basic and the common types of text animations in mind and come up with interesting and creative text animations. We are listing down some popular text animation examples that you can use on your video.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135408/19272" target="_top" id="2135408">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135408" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135408/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Morphing Text Animation
 
 When there are multiple words to display one by one, instead of fade in and fade out effect, you can opt for morphing text animation. In this animation, the words seem to get morphed into one another. So, the first word will morph into the second word for the second word to appear on the screen and the sequence continues. The animation can be done fast to showcase multiple words in a short time period.
 
 ![morphing text animation](https://images.wondershare.com/filmora/article-images/2022/09/morphing-text-animation.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Combined Slide Out Animation
 
 Generally, in a slide out text animation, the text comes out of a border and the animation type remains the same throughout. However, in the modified slide out animation, the text comes out of the border but it can come out of the top, the side, as well as both sides of the border. The border can also animate to move from the side to the top as well as be placed obliquely.
 
 ![combined slide out animation](https://images.wondershare.com/filmora/article-images/2022/09/combined-slide-out-animation.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. The Stomp Animation
 
@@ -135,18 +142,18 @@ There are different variations of neon light animation that cool super cool. You
 
 ![neon light animation](https://images.wondershare.com/filmora/article-images/2022/09/neon-light-animation.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118323/7443" target="_top" id="2118323">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118323" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118323/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 8\. In and Out of Focus Text Effect
 
 Instead of bringing the entire sentence into focus, you can use a square box to run over the sentence and bring the focus on the words depending on the position of the square box. The animation is highly effective in getting the viewers to read the sentence and get the message.
 
 ![in and out focus text effect](https://images.wondershare.com/filmora/article-images/2022/09/in-and-out-focus-text-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049370/7443" target="_top" id="2049370">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049370" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049370/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3\. How to Make a Text Animation Video
 
@@ -186,6 +193,13 @@ We have discussed all the common type of text animations that are used to create
 * [In and Out of Focus Text Effect](#part2-8)
 * [How to Make a Text Animation Video](#part3)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136615/26400" target="_top" id="2136615">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136615" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136615/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 1\. Common Types of Text Animation
 
 Here is the list of the common types of text animations that you usually see on social media videos as well as video streaming platforms. Using these common text animation types, various interesting and innovative text animations are created.
@@ -197,6 +211,13 @@ Parallax scrolling is a popular visual effect whereby the background stays the s
 ### 2\. Fade in and fade out
 
 Fade in and fade out text animation is extremely common in videos where the text slowly appears on the screen and its color brightness increase slowly. After reaching its full brightness, the text slowly loses its brightness and finally vanishes completely. Generally, the words appear and disappear simultaneously but in the modern effect, the characters appear and disappear individually at different times for more visual impact.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137207/26400" target="_top" id="2137207">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137207" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137207/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. Sliding text animation
 
@@ -215,10 +236,16 @@ Referred to as typewriter text animation as well, the characters in a word or se
 Last but not least, the vertical scrolling text effect is extremely common for opening and closing credits in movies. This is even used in modern short videos to show credits as well as information as per requirements. Along with vertical scrolling, horizontal scrolling text is quite common these days to show a few lines of text instead of showing them together in a paragraph.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. 8 Interesting Text Animation Examples
@@ -237,18 +264,18 @@ Generally, in a slide out text animation, the text comes out of a border and the
 
 ![combined slide out animation](https://images.wondershare.com/filmora/article-images/2022/09/combined-slide-out-animation.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. The Stomp Animation
 
 The stomp effect is quite eye-catching due to its dynamic nature. In this animation, the words come out from another word till the entire sentence is displayed. For example, you have a sentence of four words to display. So, you should show the first word and the second word will come out of the first word and the sequence will continue. If you have two words, you can show them coming out of one another from the middle.
 
 ![the stomp animation](https://images.wondershare.com/filmora/article-images/2022/09/the-stomp-animation.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151870/7443" target="_top" id="2151870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. The Curtain Animation
 
@@ -330,5 +357,23 @@ We have discussed all the common type of text animations that are used to create
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-tailored-free-offer-unlock-our-exclusive-youtube-banner-pack/"><u>[New] Tailored Free Offer - Unlock Our Exclusive YouTube Banner Pack</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-canva-cinematography-perfecting-music-cropping-and-editing-for-2024/"><u>[Updated] Canva Cinematography Perfecting Music Cropping and Editing for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-dynamic-color-grading-using-ae-luts/"><u>2024 Approved Dynamic Color Grading Using AE LUTs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-eminent-exchanges-a-curated-list-of-top-reddit-posts/"><u>2024 Approved Eminent Exchanges A Curated List of Top Reddit Posts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-explore-the-world-of-photo-videos-your-pixiz-companion/"><u>2024 Approved Explore the World of Photo-Videos Your Pixiz Companion</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-comprehensible-rundown-on-djis-latest-creation-inspire-2/"><u>2024 Approved The Comprehensible Rundown on DJI's Latest Creation - Inspire 2</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-top-videography-equipment/"><u>2024 Approved Top Videography Equipment</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-unveiling-the-purpose-of-watermarks-in-fb-media/"><u>2024 Approved Unveiling the Purpose of Watermarks in Fb Media</u></a></li>
+<li><a href="https://article-tips.techidaily.com/a-guide-to-unwavering-visual-captures/"><u>A Guide to Unwavering Visual Captures</u></a></li>
+<li><a href="https://article-tips.techidaily.com/amplify-your-audio-presence-learn-to-modify-voices-for-free-for-2024/"><u>Amplify Your Audio Presence Learn to Modify Voices for FREE for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-5-ios-backdrop-swappers-x87-edition-for-2024/"><u>Best 5 iOS Backdrop Swappers X/8/7 Edition for 2024</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-tutorials-on-how-to-transfer-photos-from-apple-iphone-15-pro-max-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Tutorials on How to Transfer Photos From Apple iPhone 15 Pro Max to New iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-to-come-up-with-the-best-pokemon-team-on-infinix-note-30-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Come up With the Best Pokemon Team On Infinix Note 30 Pro? | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-delete-icloud-account-remove-your-apple-id-permanently-from-apple-iphone-14-pro-max-by-drfone-ios/"><u>In 2024, How To Delete iCloud Account Remove Your Apple ID Permanently From Apple iPhone 14 Pro Max</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-solutions-to-spy-on-oppo-reno-10-pro-5g-with-and-without-jailbreak-drfone-by-drfone-virtual-android/"><u>In 2024, Solutions to Spy on Oppo Reno 10 Pro 5G with and without jailbreak | Dr.fone</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-honor-play-7t-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Honor Play 7T | Dr.fone</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Pixiz Essentials  From Stills to Moving Images\""
-date: 2024-09-18T19:44:26.798Z
-updated: 2024-09-20T17:44:05.355Z
+date: 2024-09-19T20:12:53.836Z
+updated: 2024-09-26T23:28:59.273Z
 tags: 
   - screen-recording
   - ai video
@@ -61,9 +61,23 @@ Step2Now select any slideshow template by clicking on it.
 
 ![click on slideshow template](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135349/19272" target="_top" id="2135349">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135349" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135349/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3Click on the select photo option and choose a photo.
 
 ![choose a photo](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027181/19272" target="_top" id="2027181">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027181" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027181/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4You can add more photos, in the same way, one by one (till the maximum number). Check below if the template you've chosen has the option to control the effect and speed (optional). Then, click on the **Go** button.
 
@@ -83,13 +97,6 @@ The powerful video editing program Filmora is offered by Wondershare. It offers 
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130891/7443" target="_top" id="2130891">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130891" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130891/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How do you make photo videos using Filmora?
 
 Step1Download [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) from official website and click the setup wait till it install.
@@ -99,10 +106,16 @@ Step2Now **open** **Filmora** and **click** **new project**.
 ![open filmora](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3**Import** photos by **clicking** (import media) and then drag and drop them.
@@ -125,27 +138,20 @@ Step7Let's add some music. **Click** the **audio tab** at the top right. Now **c
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step8You can **double-click** the music to open the **settings box** and make changes.
 
 ![change music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-12.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1972670/19272" target="_top" id="1972670">
+  <img src="//a.impactradius-go.com/display-ad/19272-1972670" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972670/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step9To make your slideshow more appealing, you can also add transitions or effects.
 
 ![add transitions or effects](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-13.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037358/7443" target="_top" id="2037358">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037358" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037358/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step10After finishing all the editing, you can export your creation to any format you want.
 
@@ -162,10 +168,10 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How do you make photo videos using Filmora?
@@ -175,6 +181,13 @@ Step1Download [Wondershare Filmora](https://tools.techidaily.com/wondershare/fil
 Step2Now **open** **Filmora** and **click** **new project**.
 
 ![open filmora](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-6.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3**Import** photos by **clicking** (import media) and then drag and drop them.
 
@@ -192,6 +205,19 @@ Step6**Double click the text** to open the box for **making edits in text**, fon
 
 ![double click on the text box](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-10.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1770544">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770544.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770544">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770544.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770544%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770544/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step7Let's add some music. **Click** the **audio tab** at the top right. Now **choose** some **music** and then **drag and drop** to add.
 
 ![add some music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-11.jpg)
@@ -199,6 +225,13 @@ Step7Let's add some music. **Click** the **audio tab** at the top right. Now **c
 Step8You can **double-click** the music to open the **settings box** and make changes.
 
 ![change music](https://images.wondershare.com/filmora/article-images/2022/07/pixiz-photo-video-12.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step9To make your slideshow more appealing, you can also add transitions or effects.
 
@@ -238,5 +271,19 @@ So, Pixiz is an excellent service to make photo videos online by just uploading 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-fundamentals-of-archiving-webcam-conversations/"><u>[New] 2024 Approved Fundamentals of Archiving Webcam Conversations</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-in-2024-crafting-an-authentic-online-presence-in-the-world-of-fb/"><u>[Updated] In 2024, Crafting an Authentic Online Presence in the World of FB</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-unveiling-secrets-of-hulu-recording-across-windowsmacosios/"><u>[Updated] In 2024, Unveiling Secrets of Hulu Recording Across Windows/MacOS/iOS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-from-niche-to-mainstream-amassing-a-million-view-channel/"><u>2024 Approved From Niche to Mainstream Amassing a Million-View Channel</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-high-end-4k-recording-devices-ranked-15/"><u>2024 Approved High-End 4K Recording Devices Ranked #15</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-prime-20-opening-melodies-in-animation/"><u>2024 Approved Prime 20 Opening Melodies in Animation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-ultimate-drone-buying-roadmap-pre-purchase-essentials/"><u>2024 Approved The Ultimate Drone Buying Roadmap Pre-Purchase Essentials</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-unveiling-excellent-video-creatives/"><u>2024 Approved Unveiling Excellent Video Creatives</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-10-blu-ray-players-of-2024/"><u>Best 10 Blu-Ray Players of 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722978461706-download-and-update-asus-screen-drivers-with-these-quick-tips/"><u>Download & Update ASUS Screen Drivers with These Quick Tips!</u></a></li>
+<li><a href="https://driver-download.techidaily.com/freshly-updated-retrieve-geforce-rtx-3070-ti-graphics-card-drivers-for-win-11-8-and-7-from-nvidia/"><u>Freshly Updated: Retrieve GeForce RTX 3070 Ti Graphics Card Drivers for Win 11, 8 & 7 From NVIDIA</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/unveiling-the-samsung-qn55q60rafxza-a-comprehensive-look-at-this-high-definition-smart-tv/"><u>Unveiling the Samsung QN55Q60RAFXZA: A Comprehensive Look at This High-Definition Smart TV</u></a></li>
+</ul></div>
 

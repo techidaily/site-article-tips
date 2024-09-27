@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Expedite Visuals  Drawing & Enhancing with Windows Photos App\""
-date: 2024-09-14T18:21:59.241Z
-updated: 2024-09-20T22:31:02.727Z
+date: 2024-09-25T18:49:52.632Z
+updated: 2024-09-27T01:18:10.910Z
 tags: 
   - screen-recording
   - ai video
@@ -66,19 +66,47 @@ Are you looking forward to drawing on Photos online? [LunaPic](https://www140.lu
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/lunapic-drawing.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/1001446/11832" target="_top" id="1001446">
+  <img src="//a.impactradius-go.com/display-ad/11832-1001446" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001446/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Select the color from the range of palette available
 * Select the pen size using the given number scroll option
 * Click on apply if you are all set to draw or click on clear if you wish to make changes
 
 ![draw on photos in windows 10](https://images.wondershare.com/filmora/article-images/editing-drawings-on-windows-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * To save your drawing on the image, you must click on Apply after each action you make with the tool
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
 The Photos app has an interface that is restructured with dark theme options and new drawing and editing features making it a great tool. If you want to draw on Photos in Windows 10, follow the above steps and make your actions easier. If you want to have more options to edit videos with drawing in Windows 10, why not choose [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)? You can edit your video with various drawing and text style.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<a href="https://wigfever.sjv.io/c/5597632/2014857/22899" target="_top" id="2014857">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014857" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014857/22899" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
@@ -105,12 +133,24 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094421/7443" target="_top" id="2094421">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094421" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094421/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://some-approaches.techidaily.com/updated-vanguard-websites-for-3d-letterforms/"><u>[Updated] Vanguard Websites for 3D Letterforms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-8-must-have-macbook-wallpaper-apps/"><u>2024 Approved 8 Must-Have MacBook Wallpaper Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-droning-shadows-action-camera-analysis/"><u>2024 Approved Droning Shadows Action Camera Analysis</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-enhancing-visual-narratives-on-iphone-3-low-cost-techniques-for-music-integration-into-film-projects/"><u>2024 Approved Enhancing Visual Narratives on IPhone 3 Low-Cost Techniques for Music Integration Into Film Projects</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-invest-in-quality-the-finest-camera-tripods-reviewed/"><u>2024 Approved Invest in Quality The Finest Camera Tripods Reviewed</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-smartphone-and-tablet-companion-best-gba-simulators/"><u>2024 Approved Smartphone & Tablet Companion Best GBA Simulators</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-sonic-shadows-the-art-of-sound-and-image-blending/"><u>2024 Approved Sonic Shadows The Art of Sound and Image Blending</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-superior-animation-pack-for-text/"><u>2024 Approved Superior Animation Pack for Text</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-no-fuss-podcast-streaming-handbook/"><u>2024 Approved The No-Fuss Podcast Streaming Handbook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/an-in-depth-look-at-basic-and-simplified-hdr-photography-for-2024/"><u>An In-Depth Look at Basic and Simplified HDR Photography for 2024</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/expertly-reviewed-the-premier-wi-fi-expanders-dominating-2024/"><u>Expertly Reviewed: The Premier Wi-Fi Expanders Dominating 2024</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-smooth-gameplay-proven-solutions-for-dota-2-latency-issues/"><u>Mastering Smooth Gameplay: Proven Solutions for Dota 2 Latency Issues</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ring-the-visual-storyteller-youtube-cinematic-training/"><u>Mastering the Visual Storyteller YouTube Cinematic Training</u></a></li>
+<li><a href="https://fox-info.techidaily.com/maximize-visual-impact-with-free-digital-lut-resources-for-2024/"><u>Maximize Visual Impact with FREE Digital LUT Resources for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-2024-approved-a-detailed-guide-to-making-your-pictures-speak/"><u>New 2024 Approved A Detailed Guide to Making Your Pictures Speak</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-cumuluspro-desk-pad-review-a-revolutionary-restful-solution/"><u>Unveiling the CumulusPRO Desk Pad Review: A Revolutionary Restful Solution</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/updated-in-2024-upgrading-your-edit-why-final-cut-pro-outshines-final-cut-express/"><u>Updated In 2024, Upgrading Your Edit Why Final Cut Pro Outshines Final Cut Express</u></a></li>
+</ul></div>
 

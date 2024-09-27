@@ -148,19 +148,5 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
-<span class="atpl-alsoreadstyle">Also read:</span>
-<div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-humorous-vines-the-ultimate-10-list/"><u>[New] 2024 Approved Humorous Vines The Ultimate 10 List</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-tales-on-the-silver-screen-writing-for-cinema/"><u>[New] 2024 Approved Tales on the Silver Screen Writing for Cinema</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-behind-the-scenes-mastering-cinematic-techniques-in-24-for-2024/"><u>[New] Behind the Scenes Mastering Cinematic Techniques in '24 for 2024</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-crafting-professional-livestreams-on-youtube-and-twitch-using-obs-for-2024/"><u>[New] Crafting Professional Livestreams on YouTube and Twitch Using OBS for 2024</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-thriving-in-the-social-media-jungle-facebooks-essentials-for-2024/"><u>[New] Thriving in the Social Media Jungle Facebook's Essentials for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-ideal-internet-spots-curated-custom-tones-downloads-for-2024/"><u>[Updated] Ideal Internet Spots Curated Custom Tones Downloads for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-desktoponline-passport-picture-creation-10-per-person/"><u>[Updated] In 2024, Desktop/Online Passport Picture Creation - 10 Per Person</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-unveiling-the-best-21-hdmi-screens-side-by-side-review-for-2024/"><u>[Updated] Unveiling the Best 2.1 HDMI Screens Side-By-Side Review for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/2024-approved-capture-every-moment-essential-ways-for-google-meet-recordings/"><u>2024 Approved Capture Every Moment Essential Ways for Google Meet Recordings</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/dvdwindows-10mac/"><u>高画質なDVDの圧縮手順：Windows 10/Macユーザーによる完全無損失編集テクニック</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/adopt-simplest-path-for-learning-latin-digitally/"><u>Adopt Simplest Path for Learning Latin Digitally</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/will-pokemon-go-ban-the-account-if-you-use-pgsharp-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Will Pokémon Go Ban the Account if You Use PGSharp On Realme GT Neo 5 SE | Dr.fone</u></a></li>
-</ul></div>
+
 

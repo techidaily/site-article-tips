@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Bridging Social Platforms  A Guide for Linktree on TikTok Profiles\""
-date: 2024-09-22T23:35:50.737Z
-updated: 2024-09-27T03:50:00.152Z
+date: 2024-09-30T06:27:05.130Z
+updated: 2024-10-01T22:04:32.909Z
 tags: 
   - screen-recording
   - ai video
@@ -64,10 +64,10 @@ The Linktree platform was built to help users fully utilize their social media a
 * **Multiple Admins:** If you run a medium or large-scale business and cannot manage your Linktree account alone, you can add multiple admins. You can also add multi-factor authentication to protect your account.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043596/7443" target="_top" id="2043596">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043596" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135395/19272" target="_top" id="2135395">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135395" border="0" alt="https://techidaily.com" width="125" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043596/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135395/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Pricing Plans of Linktree
@@ -92,16 +92,16 @@ If you are creating Linktree on a web browser, use these steps to easily create 
 
 ![tap on sign up free](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Create your account password and tap “Continue.” Next, you will be asked to provide your name and choose your business or content categories. After choosing, click “Continue” and select a subscription package on the next screen.
 
 ![create your unique password](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step 3:** Click on the link sent in your email to verify your account to proceed further. Once verified, press “Add Link” to add your first link. Here, you can add a direct link or click "View All" and choose a specific platform like "TikTok" to add your TikTok link.
 
@@ -119,9 +119,23 @@ Linktree mobile app is also viable for creating a Linktree landing page if you a
 
 ![select the signup option](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Step 2:** Now you will be moved back to the app, and here you need to enter your name and select business or content categories. After that, you will receive a mail for account verification. Verify the account to proceed further.
 
 ![confirm the account category](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123732/7443" target="_top" id="2123732">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123732" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123732/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3:** Once the account is verified, press “Add New link” on the app to add your links. You can enter a link directly or choose a platform from numerous options given on the app. To add a link to your TikTok video, select “TikTok Video” and enter the link details.
 
@@ -130,20 +144,6 @@ Linktree mobile app is also viable for creating a Linktree landing page if you a
 **Step 4:** In the “Appearance” tab, you can add a profile pic, change themes, customize backgrounds and buttons, etc. The “Preview” tab lets you view your page from another user’s perspective. By pressing "More," you can access different options from “Settings” to “Help & Support.”
 
 ![adjust the appearance settings](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/517826/4704" target="_top" id="517826">
-  <img src="//a.impactradius-go.com/display-ad/4704-517826" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/517826/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3: How to Add Link in TikTok Bio?
 
@@ -167,10 +167,10 @@ TikTok has unlimited potential for business development, and you should fully ut
 * [Bonus: How to make TikTok Videos?](#%5FToc126053428)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 1: What is Linktree?
@@ -184,6 +184,13 @@ It is a freemium service that allows you to create a landing page with all your 
 Linktree has always supported adding your TikTok accounts link to your landing page. In October 2022, TikTok and Linktree announced a new collaboration to enhance the user experience by working on a new feature called “Profile Kit.” Part of the TikTok for Developers Program, it also includes SDK Login Kit, which allows users to log in through their TikTok credentials.
 
 After Profile Kit integration, the TikTok creators will have a more enhanced and engaging user experience on Linktree. Users can now log in to their TikTok through Linktree and display up to 6 of their videos to enhance their profile. People viewing the TikTok creator's profile on Linktree can play those videos without leaving the platform.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975841/19272" target="_top" id="1975841">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975841" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975841/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Premium Services Offered by Linktree
 
@@ -218,10 +225,10 @@ If you are creating Linktree on a web browser, use these steps to easily create 
 ![tap on sign up free](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-2.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135353/19272" target="_top" id="2135353">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135353" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135353/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Step 2:** Create your account password and tap “Continue.” Next, you will be asked to provide your name and choose your business or content categories. After choosing, click “Continue” and select a subscription package on the next screen.
@@ -236,26 +243,6 @@ If you are creating Linktree on a web browser, use these steps to easily create 
 
 ![adjust the linktree appearance](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-5.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135416/19272" target="_top" id="2135416">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135416" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135416/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Simple Instruction to Create a Linktree on Mobile Device
 
 Linktree mobile app is also viable for creating a Linktree landing page if you aren't comfortable creating an account on a website. Follow these steps to create Linktree using the mobile app:
@@ -267,6 +254,13 @@ Linktree mobile app is also viable for creating a Linktree landing page if you a
 **Step 2:** Now you will be moved back to the app, and here you need to enter your name and select business or content categories. After that, you will receive a mail for account verification. Verify the account to proceed further.
 
 ![confirm the account category](https://images.wondershare.com/filmora/article-images/2023/02/linktree-to-tiktok-7.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135366/19272" target="_top" id="2135366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135366" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Step 3:** Once the account is verified, press “Add New link” on the app to add your links. You can enter a link directly or choose a platform from numerous options given on the app. To add a link to your TikTok video, select “TikTok Video” and enter the link details.
 
@@ -316,21 +310,14 @@ TikTok has unlimited potential for business development, and you should fully ut
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-canva-creative-editor-exploration/"><u>[New] 2024 Approved Canva Creative Editor Exploration</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-integrating-instant-video-playback-within-the-social-media-webspace/"><u>[New] In 2024, Integrating Instant Video Playback Within the Social Media Webspace</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-step-into-tomorrow-secure-these-7-devices-for-metaverse-life/"><u>[New] Step Into Tomorrow Secure These 7 Devices for Metaverse Life</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-ultimate-guide-to-podcast-style-unboxing-for-2024/"><u>[New] The Ultimate Guide to Podcast-Style Unboxing for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unlocking-apples-podcast-library-a-download-guide/"><u>[Updated] 2024 Approved Unlocking Apple's Podcast Library A Download Guide</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/updated-seeking-access-to-all-mutually-shared-media-in-chats/"><u>[Updated] Seeking Access to All Mutually-Shared Media in Chats</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/abandoning-gpt-conversation-steps-here/"><u>Abandoning GPT Conversation: Steps Here</u></a></li>
-<li><a href="https://article-tips.techidaily.com/expert-picks-top-10-budget-friendly-jpeg-to-gif-apps/"><u>Expert Picks Top 10 Budget-Friendly JPEG to GIF Apps</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-exploring-digital-realms-metaverse-versus-multiverse-compared/"><u>In 2024, Exploring Digital Realms Metaverse Versus Multiverse Compared</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-how-to-change-your-infinix-hot-30i-location-on-twitter-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change your Infinix Hot 30i Location on Twitter | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-xiaomi-redmi-note-12-4g-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Xiaomi Redmi Note 12 4G Location | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-unlock-iphone-11-pro-with-forgotten-passcode-different-methods-you-can-try-by-drfone-ios/"><u>In 2024, Unlock iPhone 11 Pro With Forgotten Passcode Different Methods You Can Try</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-pursuit-of-quality-a-deep-dive-into-sonys-x1000v-for-2024/"><u>In Pursuit of Quality A Deep Dive Into Sony's X1000V for 2024</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/step-by-step-guide-creating-a-gif-from-your-favorite-youtube-video/"><u>Step-by-Step Guide: Creating a GIF From Your Favorite YouTube Video</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/the-most-useful-tips-for-pokemon-go-ultra-league-on-itel-p55plus-drfone-by-drfone-virtual-android/"><u>The Most Useful Tips for Pokemon Go Ultra League On Itel P55+ | Dr.fone</u></a></li>
-<li><a href="https://video-capture.techidaily.com/top-10-mobile-and-desktop-video-chat-apps/"><u>Top 10 Mobile & Desktop Video Chat Apps</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/024-approved-unboxing-youtube-shorts-music-hacks-for-viral-scenes/"><u>[New] 2024 Approved Unboxing YouTube Shorts Music Hacks for Viral Scenes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-seamless-scenes-crafting-smooth-transitions-using-kinemaster/"><u>[New] Seamless Scenes Crafting Smooth Transitions Using Kinemaster</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-2023s-ultimate-list-of-affordable-live-stream-software-and-apps/"><u>[Updated] 2024 Approved 2023’S Ultimate List of Affordable Live Stream Software and Apps</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/1080p-hd-dvd-extractor-pro-fast-convert-dvds-to-hevc-format-in-under-five-minutes-official/"><u>1080P HD DVD Extractor Pro - Fast Convert DVDs to HEVC Format in Under Five Minutes [Official]</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-creating-emotional-depth-scriptwriting-tips/"><u>In 2024, Creating Emotional Depth Scriptwriting Tips</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/in-2024-the-best-of-the-best-top-rated-2d-animation-software-free-trials-and-paid-plans/"><u>In 2024, The Best of the Best Top-Rated 2D Animation Software Free Trials & Paid Plans</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/no-graphics-available-during-startup/"><u>No Graphics Available During Startup</u></a></li>
+<li><a href="https://article-tips.techidaily.com/sharper-stars-in-iphone-nocturne-photos/"><u>Sharper Stars in iPhone Nocturne Photos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/the-great-debate-continues-is-bandicam-or-camtasia-better/"><u>The Great Debate Continues Is Bandicam or Camtasia Better?</u></a></li>
 </ul></div>
 

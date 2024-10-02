@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Retro Reel Upgrade  Converting Photographs to Videos for 2024\""
-date: 2024-09-21T16:16:49.166Z
-updated: 2024-09-27T00:39:49.541Z
+date: 2024-09-25T01:06:25.531Z
+updated: 2024-10-02T06:32:16.030Z
 tags: 
   - screen-recording
   - ai video
@@ -91,6 +91,13 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049379/7443" target="_top" id="2049379">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
@@ -112,10 +119,16 @@ As stated above, you can find a wide range of video editing options to explore i
 ![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137976/21526" target="_top" id="2137976">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137976" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137976/21526" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
@@ -126,27 +139,20 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
-  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 5\. Export your video
 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
 
-Find more fancy ways to make the best photo and video slideshow with Filmora!
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144288/7443" target="_top" id="2144288">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144288" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2129042/19576" target="_top" id="2129042">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129042" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144288/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129042/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Find more fancy ways to make the best photo and video slideshow with Filmora!
 
 ## More Editing Tips for Creating Memorable Videos
 
@@ -176,16 +182,16 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043597/7443" target="_top" id="2043597">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043597" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043597/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135348/19272" target="_top" id="2135348">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135348" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135348/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -212,18 +218,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://remote-screen-capture.techidaily.com/new-23-budget-friendly-methods-document-webinars-with-no-cost-for-2024/"><u>[New] 23 Budget-Friendly Methods Document Webinars with No Cost for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-broadcast-battlegrounds-where-does-streaming-technology-stand-strongest-for-2024/"><u>[Updated] Broadcast Battlegrounds Where Does Streaming Technology Stand Strongest for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-syncopation-and-screenplay-directing-music-videos-with-ios/"><u>[Updated] Syncopation & Screenplay Directing Music Videos with iOS</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-realme-c55-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Realme C55 Phone When You Forget the Password</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/big-sur-unveiled-your-guide-to-a-flawless-mac-os-shift-for-2024/"><u>Big Sur Unveiled Your Guide to a Flawless Mac OS Shift for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/daily-dose-of-bulgarian-for-efficient-speakers/"><u>Daily Dose of Bulgarian for Efficient Speakers</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/effortless-conversion-of-dall-e-3s-webp-images-to-desired-jpeg-or-png-files/"><u>Effortless Conversion of DALL-E 3'S WebP Images to Desired JPEG or PNG Files</u></a></li>
-<li><a href="https://extra-information.techidaily.com/elevate-your-video-quality-with-gopro-knowledge/"><u>Elevate Your Video Quality with GoPro Knowledge</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-top-12-prominent-xiaomi-civi-3-fingerprint-not-working-solutions-by-drfone-android/"><u>In 2024, Top 12 Prominent Xiaomi Civi 3 Fingerprint Not Working Solutions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-zero-cost-film-aids-eco-edition/"><u>In 2024, Zero-Cost Film Aids Eco Edition</u></a></li>
-<li><a href="https://article-tips.techidaily.com/soundscapes-for-the-eye-ranking-the-best-photographers-plus-videographers-w-tunes/"><u>Soundscapes for the Eye Ranking the Best Photographers + Videographers W/ Tunes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/spectacular-8-cam-enhancers-for-improved-video-feeds-for-2024/"><u>Spectacular 8 Cam Enhancers for Improved Video Feeds for 2024</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-live-location-is-not-updating-and-how-to-fix-on-your-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Live Location is Not Updating and How to Fix on your Infinix Hot 40 | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-shuttered-by-darkness-iphone-tips-and-tricks/"><u>[New] 2024 Approved Shuttered by Darkness IPhone Tips & Tricks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-elevate-your-sedan-with-these-essential-accessories-for-sj4000/"><u>[New] In 2024, Elevate Your Sedan with These Essential Accessories for SJ4000</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-ultimate-selection-choosing-excellent-free-srt-translators/"><u>[New] In 2024, Ultimate Selection Choosing Excellent FREE SRT Translators</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-light-intensity-in-hdr-scrutinized-beneficial/"><u>[New] Light Intensity in HDR Scrutinized Beneficial?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unleash-creativity-harnessing-gs-power-in-kinemaster-for-2024/"><u>[New] Unleash Creativity Harnessing GS Power in KineMaster for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-from-genres-to-gems-building-a-personalized-youtube-music-mix-onlinemobile/"><u>[Updated] From Genres to Gems Building a Personalized YouTube Music Mix Online/Mobile</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-gopro-innovations-a-side-by-side-exploration/"><u>[Updated] In 2024, GoPro Innovations A Side-by-Side Exploration</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-updating-your-meet-name-easy-steps-for-pc-and-mobile/"><u>[Updated] In 2024, Updating Your Meet Name Easy Steps for PC & Mobile</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-optimizing-your-fb-live-on-zoom-stream-for-2024/"><u>[Updated] Optimizing Your FB Live on Zoom Stream for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-intense-evaluation-the-detailed-study-of-bublcam-360/"><u>2024 Approved Intense Evaluation The Detailed Study of Bublcam 360</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/deep-windows-11-secrets-effortless-media-upload-made-simple/"><u>Deep Windows 11 Secrets Effortless Media Upload Made Simple</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-3-easy-methods-to-unlock-icloud-locked-iphone-8-plusipadipod-by-drfone-ios/"><u>In 2024, 3 Easy Methods to Unlock iCloud Locked iPhone 8 Plus/iPad/iPod</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-how-to-make-time-lapse-on-samsung-mobile/"><u>In 2024, How to Make Time Lapse on Samsung Mobile</u></a></li>
+<li><a href="https://article-tips.techidaily.com/insta-trends-staying-ahead-with-innovative-video-content/"><u>Insta-Trends Staying Ahead with Innovative Video Content</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-excel-2013-files-from-virus-infected-pen-drives-for-free-stellar-by-stellar-guide/"><u>Recover Excel 2013 Files from Virus-Infected Pen Drives for Free | Stellar</u></a></li>
 </ul></div>
 

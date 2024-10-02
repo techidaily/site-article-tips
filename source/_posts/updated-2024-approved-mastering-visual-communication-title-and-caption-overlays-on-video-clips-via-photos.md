@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Mastering Visual Communication  Title & Caption Overlays on Video Clips via Photos\""
-date: 2024-09-23T19:41:55.796Z
-updated: 2024-09-26T16:03:01.186Z
+date: 2024-09-26T21:30:23.315Z
+updated: 2024-10-01T18:43:02.241Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082533/7443" target="_top" id="2082533">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -75,10 +75,16 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137210/26400" target="_top" id="2137210">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137210" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137210/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983472">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983472.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983472%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983472/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -92,26 +98,26 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
+  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -138,20 +144,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/new-creating-professional-gameplay-archives-with-fbx-for-2024/"><u>[New] Creating Professional Gameplay Archives with FBX for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-cutting-edge-from-srt-to-subtitle-system-for-2024/"><u>[New] Cutting Edge From SRT to Subtitle System for 2024</u></a></li>
-<li><a href="https://article-posts.techidaily.com/new-in-2024-expert-tips-for-superior-4k-visual-quality-with-gear/"><u>[New] In 2024, Expert Tips for Superior 4K Visual Quality with Gear</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/new-the-evolutionary-stride-from-m1-pro-to-m1-max-a-comparison-for-2024/"><u>[New] The Evolutionary Stride From M1 Pro to M1 Max - A Comparison for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-aerial-imaging-warfare-djis-pro-vs-gopro-k20/"><u>[Updated] 2024 Approved Aerial Imaging Warfare DJI's Pro Vs GoPro K20</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-combining-youtube-harmonies-in-moving-images/"><u>[Updated] 2024 Approved Combining YouTube Harmonies in Moving Images</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-art-of-chromatic-enhancement/"><u>[Updated] 2024 Approved The Art of Chromatic Enhancement</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-in-2024-accelerate-engagement-quick-instagram-likes-and-videos-strategy/"><u>[Updated] In 2024, Accelerate Engagement Quick Instagram Likes and Videos Strategy</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-quick-tips-modifying-snapchat-video-velocity/"><u>[Updated] In 2024, Quick Tips Modifying Snapchat Video Velocity</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-educators-compendium-of-video-assisted-methods-for-2024/"><u>[Updated] The Educator's Compendium of Video-Assisted Methods for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-three-budget-friendly-solutions-incorporating-sound-into-your-iphone-videos-for-2024/"><u>[Updated] Three Budget-Friendly Solutions Incorporating Sound Into Your iPhone Videos for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/all-about-factory-reset-what-is-it-and-what-it-does-to-your-tecno-pop-8-drfone-by-drfone-reset-android-reset-android/"><u>All About Factory Reset, What Is It and What It Does to Your Tecno Pop 8? | Dr.fone</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/comparing-chatgpt-and-huggingfaces-huggingchat-determining-the-superior-conversational-ai/"><u>Comparing ChatGPT and HuggingFace's HuggingChat: Determining the Superior Conversational AI</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/in-2024-show-audio-waveform-and-add-waveform-animation-in-premiere-protutor/"><u>In 2024, Show Audio Waveform and Add Waveform Animation in Premiere ProTutor</u></a></li>
-<li><a href="https://fox-info.techidaily.com/transforming-photos-remove-background-with-ease/"><u>Transforming Photos Remove Background with Ease</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-naming-gems-top-strategies-for-exceptional-podcast-titles/"><u>[New] 2024 Approved Naming Gems Top Strategies for Exceptional Podcast Titles</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-biometrics-battle-comparing-faces-of-iphone-x-and-galaxy-phones/"><u>[New] Biometrics Battle Comparing Faces of iPhone X & Galaxy Phones</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/asy-paths-to-profitable-youtube-business-channels-top-10-list-for-2024/"><u>[New] Easy Paths to Profitable YouTube Business Channels, Top 10 List for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-consolidated-calendar-management-merge-mobile-and-pc-zoom-dates/"><u>[New] In 2024, Consolidated Calendar Management Merge Mobile and PC Zoom Dates</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-mastering-green-screen-techniques-in-kinemaster-a-step-by-step-guide-for-2024/"><u>[New] Mastering Green Screen Techniques in Kinemaster - A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigating-through-new-camera-settings-in-ios-11/"><u>[New] Navigating Through New Camera Settings in iOS 11</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-unmatched-playwrights-arena/"><u>[Updated] Unmatched Playwright's Arena</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-syncing-soundtracks-seamlessly-with-iphone-videos-discover-3-tricks/"><u>2024 Approved Syncing Soundtracks Seamlessly with iPhone Videos [Discover 3 Tricks]</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-ultimate-iphone-hdr-insights-for-stunning-images/"><u>2024 Approved Ultimate iPhone HDR Insights for Stunning Images</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-ride-the-viral-wave-mixing-tiktok-flair-into-instagram-reels/"><u>In 2024, Ride the Viral Wave Mixing TikTok Flair Into Instagram Reels</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-why-is-ipogo-not-working-on-oppo-reno-9a-fixed-drfone-by-drfone-virtual-android/"><u>In 2024, Why is iPogo not working On Oppo Reno 9A? Fixed | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/possible-ways-to-recover-deleted-files-from-vivo-y100i-by-fonelab-android-recover-data/"><u>Possible ways to recover deleted files from Vivo Y100i</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/the-motorola-edgeplus-assessment-shortcomings-in-achieving-elite-status/"><u>The Motorola Edge+ Assessment: Shortcomings in Achieving Elite Status</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/top-recommended-3d-printing-filaments-of-2024/"><u>Top Recommended 3D Printing Filaments of 2024</u></a></li>
 </ul></div>
 

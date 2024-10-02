@@ -1,7 +1,7 @@
 ---
 title: "Vertigo Ventures with GoPro Karma Technology for 2024"
-date: 2024-09-24T04:39:13.877Z
-updated: 2024-09-27T00:57:17.022Z
+date: 2024-09-30T22:20:29.353Z
+updated: 2024-10-01T21:45:37.545Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,10 @@ thumbnail: https://thmb.techidaily.com/df387578e472d57cf1ae89d5517c348af827dd00d
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2027167/19272" target="_top" id="2027167">
-  <img src="//a.impactradius-go.com/display-ad/19272-2027167" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027167/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Detailed review for GoPro Karma
@@ -100,10 +100,10 @@ thumbnail: https://thmb.techidaily.com/df387578e472d57cf1ae89d5517c348af827dd00d
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144272/7443" target="_top" id="2144272">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144272" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144272/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -115,10 +115,10 @@ Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135396/19272" target="_top" id="2135396">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135396" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135396/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -146,16 +146,19 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-flight-pioneers-face-off-dji-vs-gopro/"><u>[New] Flight Pioneers Face Off DJI vs GoPro</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-visionary-5-android-backdrop-modification-apps-for-iphone/"><u>[New] Visionary 5 Android Backdrop Modification Apps for iPhone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-master-list-the-finest-no-money-video-player-tools-and-software-pcmobile/"><u>[Updated] Master List The Finest No-Money Video Player Tools & Software (PC/Mobile)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-velocity-victories-olympics-year-2022-for-2024/"><u>[Updated] Velocity Victories Olympics, Year 2022 for 2024</u></a></li>
-<li><a href="https://app-tips.techidaily.com/creating-effective-reminders-using-slackbot-a-step-by-step-guide-on-slack/"><u>Creating Effective Reminders Using Slackbot: A Step-by-Step Guide on Slack</u></a></li>
-<li><a href="https://article-tips.techidaily.com/find-excellence-in-hd-on-android-our-top-10-player-guide/"><u>Find Excellence in HD on Android Our Top 10 Player Guide</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-repair-corrupt-mp4-and-avi-files-of-nokia-c210-with-video-repair-utility-on-mac-by-stellar-video-repair-mobile-video-repair/"><u>How to Repair corrupt MP4 and AVI files of Nokia C210 with Video Repair Utility on Mac?</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-stop-my-spouse-from-spying-on-my-honor-x8b-drfone-by-drfone-virtual-android/"><u>How to Stop My Spouse from Spying on My Honor X8b | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-7-ways-to-unlock-a-locked-samsung-galaxy-a54-5g-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Samsung Galaxy A54 5G Phone</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/step-by-step-guide-adding-subtitles-on-mx-player/"><u>Step-by-Step Guide: Adding Subtitles on MX Player</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/top-5-methods-verifying-windows-11-devices-availability/"><u>Top 5 Methods: Verifying Windows 11 Devices' Availability</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultimate-mobile-cinema-showcase-apples-best-freepluspaid-film-watchers-guide/"><u>[New] 2024 Approved The Ultimate Mobile Cinema Showcase Apple's Best FREE+Paid Film Watchers Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dissecting-vivas-multimedia-interface-for-2024/"><u>[New] Dissecting Viva's Multimedia Interface for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exploring-new-horizons-top-5-samsung-gear-vr-games-for-2024/"><u>[New] Exploring New Horizons - Top 5 Samsung Gear VR Games for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-capturing-sounds-audacity-tutorial-for-mac-users-for-2024/"><u>[Updated] Capturing Sounds Audacity Tutorial for Mac Users for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-crafting-new-tones-top-7-recording-changer-applications-reviewed-for-2024/"><u>[Updated] Crafting New Tones Top 7 Recording Changer Applications Reviewed for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-decoding-metaverse-and-multimetase-distinctions-expert-perspective/"><u>[Updated] Decoding Metaverse & Multimetase Distinctions (Expert Perspective)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-image-innovation-at-its-peak-8-leaders-in-photogridding/"><u>[Updated] Image Innovation at Its Peak 8 Leaders in Photogridding</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-smilesketcher-easy-to-use-digital-comedy-tool/"><u>[Updated] In 2024, SmileSketcher Easy-to-Use Digital Comedy Tool</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-screen-capturing-on-iphoneipad-updated-strategies-for-2024/"><u>[Updated] Screen Capturing on iPhone/iPad Updated Strategies for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/budget-friendly-apple-watch-series-se-is-it-worth-the-upgrade/"><u>Budget-Friendly Apple Watch Series SE: Is It Worth the Upgrade?</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/compatible-with-vlc-discover-how-to-stream-dav-files-smoothly/"><u>Compatible with VLC? Discover How to Stream .DAV Files Smoothly</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-photos-from-oppo-reno-10-pro-5g-to-laptop-without-usb-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Photos from Oppo Reno 10 Pro 5G to Laptop Without USB | Dr.fone</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/in-2024-eliteres-converter-windows-mac-and-online-access/"><u>In 2024, EliteRes Converter Windows, Mac & Online Access</u></a></li>
+<li><a href="https://article-tips.techidaily.com/prime-titles-pro-elevate-your-youtube-game/"><u>Prime Titles Pro Elevate Your YouTube Game</u></a></li>
 </ul></div>
 

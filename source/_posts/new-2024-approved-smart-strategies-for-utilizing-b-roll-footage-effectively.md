@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Smart Strategies for Utilizing B-Roll Footage Effectively\""
-date: 2024-09-19T20:43:52.361Z
-updated: 2024-09-20T19:16:36.345Z
+date: 2024-09-24T19:23:43.647Z
+updated: 2024-10-02T05:35:41.443Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,19 @@ B roll can be utilized for establishing shots as well as close-ups of items. It 
 
 For instance, wider shots are frequently used when someone is giving a speech while seated behind a podium so that we can see both them and their surroundings, such as audience members standing close and applauding or security personnel.
 
+<!-- affiliate ads begin -->
+<span id="1983474">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Methods to use b roll
 
 Now that there are so many stock footage platforms, you have a lot of choices when you need just the right scene for your project. Most of the time, filmmakers don't use B roll footage. One good way to use it is to use it as a way to move from one scene to the next. It can also be used to set the mood for an event or show what time of day it is when filming.
@@ -62,10 +75,10 @@ Including archival material in your video allows your audience to experience a p
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105863/7443" target="_top" id="2105863">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105863" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105863/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Undirected b roll footage
@@ -79,10 +92,16 @@ When you are sharing a narrative that has been told in the past or that has hist
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137215/26400" target="_top" id="2137215">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137215" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137215/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="2127886">
+					<video width="576" height="1024" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2127886.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2127886">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2127886.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2127886%2F18498'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2127886/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
@@ -96,10 +115,10 @@ If flaws were discovered during primary photography, the directors could have re
 Imagine the A roll as part of the video's story. This could be a documentary film, news show, or scripted sketch. Everything else on your editing table must be rearranged to fit it. When the speaker in the following video is directly talking to the camera or interviewer, this is A roll footage. The video's most crucial segments were filmed with primary footage.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -134,5 +153,20 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-straightforward-strategies-for-podcast-streaming/"><u>[New] 2024 Approved Straightforward Strategies for Podcast Streaming</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-best-live-cricket-watch-tactics-unveiled/"><u>[Updated] 2024 Approved Best Live Cricket Watch Tactics Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-perfect-harmony-in-canvas-cropping-adding-music-to-video/"><u>[Updated] 2024 Approved Perfect Harmony in Canvas Cropping, Adding Music to Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/approved-expert-advice-for-embedding-youtube-playlists-with-ease/"><u>2024 Approved Expert Advice for Embedding YouTube Playlists with Ease</u></a></li>
+<li><a href="https://fox-that.techidaily.com/guide-to-restoring-iphone-flashlight-functionality-discover-12-repair-techniques/"><u>Guide to Restoring iPhone Flashlight Functionality - Discover 12 Repair Techniques</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-enable-usb-debugging-on-a-locked-xiaomi-redmi-note-12t-pro-phone-by-drfone-android/"><u>How To Enable USB Debugging on a Locked Xiaomi Redmi Note 12T Pro Phone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-how-to-safely-procure-pure-photography-collections/"><u>In 2024, How to Safely Procure Pure Photography Collections</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-oppo-find-x6-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Oppo Find X6 Android SIM Unlock APK</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-unlocking-digital-media-compreenhensive-srt-to-other-guidebook/"><u>In 2024, Unlocking Digital Media Compreenhensive SRT-to-Other Guidebook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/maxitouch-all-in-one-4k-screen-plus-desk/"><u>MaxiTouch All-in-One 4K, Screen Plus Desk</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/reinstating-accessible-wastecan-icon-on-windows-11/"><u>Reinstating Accessible Wastecan Icon on Windows 11</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/tornar-seu-video-em-musica-converter-mpeg-a-mp3-facilmente-com-o-movavi-metodo-gratuito-e-rapido-online/"><u>Tornar Seu Vídeo Em Música: Converter MPEG a MP3 Facilmente Com O Movavi - Método Gratuito E Rápido Online!</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/unlocking-creative-potential-with-ig-reel-slow-motion/"><u>Unlocking Creative Potential with IG Reel Slow-Motion</u></a></li>
+</ul></div>
 

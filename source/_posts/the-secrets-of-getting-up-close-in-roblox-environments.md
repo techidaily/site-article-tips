@@ -1,7 +1,7 @@
 ---
 title: "The Secrets of Getting Up Close in Roblox Environments"
-date: 2024-09-24T02:48:07.586Z
-updated: 2024-09-27T01:51:00.096Z
+date: 2024-09-25T20:24:14.720Z
+updated: 2024-10-02T07:18:18.553Z
 tags: 
   - screen-recording
   - ai video
@@ -74,24 +74,24 @@ Step1There is a simple and convenient technique to manage the zoom while playing
 ![push r3 button ontroller](https://images.wondershare.com/filmora/article-images/2022/07/push-r3-button-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959764/19272" target="_top" id="1959764">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959764" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959764/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2Zoom in by pressing forward on the right thumbstick that has been clicked down.
 
 ![press forward right thumbstick](https://images.wondershare.com/filmora/article-images/2022/07/press-forward-right-thumbstick.jpg)
 
-Step3Pull rearward on the clicked-down right thumbstick to zoom out. The same joystick (right) must constantly be pulled rearward to zoom out.
-
 <!-- affiliate ads begin -->
-<a href="https://dhgate.sjv.io/c/5597632/1186802/12108" target="_top" id="1186802">
-  <img src="//a.impactradius-go.com/display-ad/12108-1186802" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1186802/12108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Step3Pull rearward on the clicked-down right thumbstick to zoom out. The same joystick (right) must constantly be pulled rearward to zoom out.
 
 ## Way 4\. Zoom in/out in Roblox on Tablet
 
@@ -107,6 +107,19 @@ Step2To zoom, just use two fingers and slide them apart (for zooming in) or toge
 
 ![zoom roblox with fingers](https://images.wondershare.com/filmora/article-images/2022/07/zoom-roblox-with-fingers.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3You will be given the best method using the touchpad: while holding down the right side, move the screen to view your character from the front and from behind!
 
 Step4The camera angle and/or your character will only move if one of your fingers, preferably the index, remains steady on the screen. This will prevent the zoom level from changing.
@@ -114,23 +127,10 @@ Step4The camera angle and/or your character will only move if one of your finger
 ![zoom character on roblox](https://images.wondershare.com/filmora/article-images/2022/07/zoom-character-on-roblox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049390/7443" target="_top" id="2049390">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049390" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049390/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -167,20 +167,20 @@ You may wish to change your viewpoint when playing games on Roblox, the most cut
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-expert-tips-for-altering-and-personalizing-iphone-ringtones/"><u>[New] Expert Tips for Altering & Personalizing iPhone Ringtones</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/new-how-to-quickly-and-easily-share-a-youtube-playlist/"><u>[New] How to Quickly And Easily Share A YouTube Playlist</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-audience-level-sound-production-using-audacity/"><u>[New] In 2024, Audience-Level Sound Production Using Audacity</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-in-2024-premier-tools-to-record-your-pc-screenshots/"><u>[New] In 2024, Premier Tools to Record Your PC Screenshots</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-ultimate-action-recorder-an-overview-of-panasonics-hx-a1/"><u>[New] In 2024, The Ultimate Action Recorder An Overview of Panasonic's HX-A1</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-insiders-list-google-pixel-tone-sources/"><u>[New] Insider's List Google Pixel Tone Sources</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-embark-on-a-virtual-odyssey-with-your-ios-device/"><u>[Updated] 2024 Approved Embark on a Virtual Odyssey with Your iOS Device</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-find-your-favorite-download-free-slide-show-patterns-today-for-2024/"><u>[Updated] Find Your Favorite, Download-Free Slide Show Patterns Today for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-how-to-craft-an-engaging-solo-auditory-adventure/"><u>[Updated] How to Craft an Engaging Solo Auditory Adventure</u></a></li>
-<li><a href="https://article-posts.techidaily.com/updated-in-2024-breakthrough-tactic-unleash-mac-with-apple-watch/"><u>[Updated] In 2024, Breakthrough Tactic Unleash Mac with Apple Watch</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/download-movavis-xrecorder-now-premium-free-pc-recording-tool-with-advanced-features/"><u>Download Movavi's XRecorder Now: Premium, FREE PC Recording Tool with Advanced Features</u></a></li>
-<li><a href="https://article-posts.techidaily.com/experts-insight-downloading-audio-on-apple-gadgets/"><u>Expert's Insight Downloading Audio on Apple Gadgets</u></a></li>
-<li><a href="https://win-dash.techidaily.com/lenovo-x1-carbon-compatible-drivers-for-windows-10-and-7-simple-steps-to-download/"><u>Lenovo X1 Carbon - Compatible Drivers for Windows 10 and 7: Simple Steps to Download</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/unlock-nonstop-powerful-bass-performance-with-the-ion-tailgater-plus-in-depth-review/"><u>Unlock Nonstop Powerful Bass Performance with the ION Tailgater Plus - In Depth Review</u></a></li>
-<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On OnePlus Ace 3? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-balancing-main-and-supplemental-filmmaking-elements/"><u>[New] 2024 Approved Balancing Main & Supplemental Filmmaking Elements</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-closer-look-techniques-for-effective-collaboration-on-ms-teams/"><u>[New] 2024 Approved Closer Look Techniques for Effective Collaboration on MS Teams</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-a-deep-dive-into-windows-hd-color-and-hdr-editing-excellence/"><u>[New] A Deep Dive Into Windows HD Color and HDR Editing Excellence</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-youtube-video-to-text-conversion-at-no-cost/"><u>[New] Effortless YouTube Video to Text Conversion at No Cost!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-complete-guide-to-decluttered-image-designs-on-canva/"><u>[New] In 2024, The Complete Guide to Decluttered Image Designs on Canva</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-nextgen-videotron-app-evaluation/"><u>[Updated] 2024 Approved NextGen Videotron App Evaluation</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-how-to-respond-to-a-youtube-copyright-claim-best-practices/"><u>[Updated] In 2024, How to Respond to a YouTube Copyright Claim Best Practices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-foremost-8-4k-blu-ray-systems-reviewed-for-2024/"><u>[Updated] The Foremost 8 4K Blu-Ray Systems Reviewed for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-vivavideo-review-insights-and-impressions-for-2024/"><u>[Updated] VivaVideo Review Insights and Impressions for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-assessing-common-fb-video-formats/"><u>2024 Approved Assessing Common FB Video Formats</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/-microphones-for-youtubers-on-a-budget/"><u>Cheap Microphones for Youtubers on a Budget</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-data-from-oppo-find-n3-flip-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Data from Oppo Find N3 Flip to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-nailing-the-perfect-capture-mac-tips-for-screencasting-streamed-video/"><u>In 2024, Nailing the Perfect Capture Mac Tips for Screencasting Streamed Video</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-2024-approved-windows-8-video-editor-edit-mp4-files-with-ease/"><u>New 2024 Approved Windows 8 Video Editor Edit MP4 Files with Ease</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-oppo-reno-11-5g-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Oppo Reno 11 5G | Dr.fone</u></a></li>
 </ul></div>
 

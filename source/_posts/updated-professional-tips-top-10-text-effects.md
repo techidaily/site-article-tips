@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Professional Tips  Top 10 Text Effects\""
-date: 2024-09-14T18:39:49.407Z
-updated: 2024-09-20T18:22:15.464Z
+date: 2024-09-29T18:26:26.200Z
+updated: 2024-10-01T23:21:58.203Z
 tags: 
   - screen-recording
   - ai video
@@ -44,6 +44,13 @@ There is no doubt that After Effects is considered to be a great editor to apply
 
 There are certain text effects that you generally come across whether you are watching movies, web series, and videos on social media or video streaming platforms. We have compiled a list of the most popular text effects that are extremely relevant in the current times in videography.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1975821/19272" target="_top" id="1975821">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975821" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975821/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Underwater Text Effect
 
 Opening a video with the view of a beach and blue water is definitely stunning. But when you add an underwater text effect to display any title, it instantly grabs the attention of the viewers. In the underwater text effect, your text seems to be fixated or floating under the water. The text generally has a darker shade of blue over the light bluish water.
@@ -74,13 +81,6 @@ Glitch text effect is more prominent when it is applied to a large text having a
 
 ![3d text video effect](https://images.wondershare.com/filmora/article-images/2022/09/3d-text-video-effect.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006955/19272" target="_top" id="2006955">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006955" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006955/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Starting from 3D texts coming out of the background wall to 3D hologram text effect with retro look, you can apply any 3D effect to the texts and titles of your video as per relevancy. Most importantly, there is a wide scope for customization and personalization to captivate the viewers and get the message across clearly. You can go through 3D text After Effects tutorial and embed 3D texts in your video easily.
 
 ### 5\. Comic Book Text Effect
@@ -91,6 +91,13 @@ Comic book text effect is an old-school style but its application in funny segme
 
 Similarly, it is used for displaying texts and titles in anime videos. The text effect has a cartoonish look and a comic background to enhance the text effect. There could also be a blasting effect in the background that can act as a highlighter. The text color in the comic text effect also has a retro feel but bright in outlook.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 6\. Blurry Fade on Text Effect
 
 Blurry fade on is such a pleasing effect for the human eye especially when it is in animated form. The blurry fade on effect is like looking at a word with your specs on while the words in its surrounding come with blur effect. This text effect is widely used when there is a need to highlight certain words in a sentence.
@@ -98,6 +105,13 @@ Blurry fade on is such a pleasing effect for the human eye especially when it is
 ![blurry fade on text effect](https://images.wondershare.com/filmora/article-images/2022/09/blurry-fade-on-text-effect.jpg)
 
 In fact, the text effect is used to highlight a few characters in a word while the others remain blurred. You can also use the effect when you are making transitions between different texts and titles. It is more like an add-on to the usual fade on effect as it adds a blurring effect. It is important to get the attention of the viewers to specific texts.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049378/7443" target="_top" id="2049378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 7\. Type on Text Effect
 
@@ -122,6 +136,13 @@ If you have watched any informational video, you must have seen small notes slid
 ![slide text effect](https://images.wondershare.com/filmora/article-images/2022/09/slide-text-effect.jpg)
 
 Generally, the slide effect for text is accompanied by a highlighted background so that the text is legible. It is suitable for showing important notes in a few sentences such as showing some facts about a place. The effect is widely used in videos related to news or videos where there are more photos and texts and less voice narration.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. Stripe Text Effect
 
@@ -153,13 +174,6 @@ Step3 Select a text effect template of your liking and drop it on the timeline. 
 
 Thereafter, you can edit the style of the text as well as modify other settings. Moreover, you can go to Advanced section to edit out the text effect and animation easily.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## The Bottom Line
 
 We have listed the most popular text effects that are widely used in today’s videos. You can find text animation tutorial related to these effects online for After Effects. However, you may find After Effects slightly complicated due to its interface. That is why we have recommended [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) as the best alternative to apply all the popular and common text effects and tweak them for customization and personalization.
@@ -167,13 +181,6 @@ We have listed the most popular text effects that are widely used in today’s v
 Part 1\. Popular Text Effects
 
 There are certain text effects that you generally come across whether you are watching movies, web series, and videos on social media or video streaming platforms. We have compiled a list of the most popular text effects that are extremely relevant in the current times in videography.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902319/19272" target="_top" id="1902319">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902319" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902319/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. Underwater Text Effect
 
@@ -197,13 +204,34 @@ Glitch text effect is an extremely popular effect in modern times where retro vi
 
 ![glitch text effect](https://images.wondershare.com/filmora/article-images/2022/09/glitch-text-effect.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896510/19272" target="_top" id="1896510">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896510" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896510/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Glitch text effect is more prominent when it is applied to a large text having a light color against a dark background. The use of shadow and blur effect to get the desired glitch effect is common. More often than not, some short straight lines like strokes are placed around the text to enhance the glitch effect. Some creators prefer glitch text effect on 3D texts for a better visual appeal.
+
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576477/17382" target="_top" id="1576477">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576477" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576477/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. 3D Text Effect
 
 3D text effect has been popular ever since its inception and its popularity has been steady in the videography world even today. Of course, with time, the effect has changed a lot to match the different niches of videos, and hence, you will come across a wide variety of 3D text effects. Starting from full screen texts and titles to adverts and promotional texts, 3D text effects find a place everywhere.
 
 ![3d text video effect](https://images.wondershare.com/filmora/article-images/2022/09/3d-text-video-effect.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105866/7443" target="_top" id="2105866">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105866" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105866/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Starting from 3D texts coming out of the background wall to 3D hologram text effect with retro look, you can apply any 3D effect to the texts and titles of your video as per relevancy. Most importantly, there is a wide scope for customization and personalization to captivate the viewers and get the message across clearly. You can go through 3D text After Effects tutorial and embed 3D texts in your video easily.
 
@@ -214,13 +242,6 @@ Comic book text effect is an old-school style but its application in funny segme
 ![comic book text effect](https://images.wondershare.com/filmora/article-images/2022/09/comic-book-text-effect.jpg)
 
 Similarly, it is used for displaying texts and titles in anime videos. The text effect has a cartoonish look and a comic background to enhance the text effect. There could also be a blasting effect in the background that can act as a highlighter. The text color in the comic text effect also has a retro feel but bright in outlook.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Blurry Fade on Text Effect
 
@@ -245,6 +266,13 @@ If you are looking for a customized animation for the texts in your video, you s
 ![animate along a path text effect](https://images.wondershare.com/filmora/article-images/2022/09/animate-along-a-path-text-effect.jpg)
 
 You can use the effect to show certain lines that are common throughout the video. Besides, you can use it while making transition from one scene to another. Some video creators use them for opening and editing credits so that it can keep the audiences hooked instead of the usual opening and ending credits.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 9\. Slide Text Effect
 
@@ -273,13 +301,6 @@ For text effects, amateur video editors generally search for Adobe After Effects
 Step1 Download and install Wondershare Filmora on your computer. Filmora is available for both Windows and Mac users. Launch Filmora and click on New Project option.
 
 ![download and install filmora](https://images.wondershare.com/filmora/guide/startup-window-01.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step2 Import your video clip under Project Media folder to which you want to add text effects.? Drag and drop it onto the timeline and go to Titles menu option. You will see different categories text effects on the left panel. Some of them are static effects while others are animations.
 
@@ -317,5 +338,20 @@ We have listed the most popular text effects that are widely used in today’s v
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-game-changing-tvs-for-ps5-and-xbox-series-x-enthusiasts/"><u>[New] 2024 Approved Game-Changing TVs for PS5 & Xbox Series X Enthusiasts</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-how-to-locate-your-youtube-fanbase/"><u>[New] How to Locate Your YouTube Fanbase</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-retro-revelry-on-snapchat-camera-roll-insights/"><u>[New] In 2024, Retro Revelry on Snapchat Camera Roll Insights</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-top-10-free-os-compatible-videography-applications/"><u>[New] In 2024, Top 10 Free, OS-Compatible Videography Applications</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-make-your-mark-stand-out-with-youtube-studio-editing/"><u>[Updated] Make Your Mark Stand Out with YouTube Studio Editing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-top-10-heavy-lift-drones-you-should-know-for-2024/"><u>[Updated] Top 10 Heavy Lift Drones You Should Know for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/in-2024-best-10-mock-location-apps-worth-trying-on-motorola-moto-e13-drfone-by-drfone-virtual-android/"><u>In 2024, Best 10 Mock Location Apps Worth Trying On Motorola Moto E13 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-proven-strategies-for-effective-chromebook-zooming/"><u>In 2024, Proven Strategies for Effective Chromebook Zooming</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-revive-your-experience-with-these-key-iphone-x-tips/"><u>In 2024, Revive Your Experience with These Key iPhone X Tips</u></a></li>
+<li><a href="https://article-tips.techidaily.com/integrating-songs-and-snaps-online-for-2024/"><u>Integrating Songs and Snaps Online for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/resolving-lameencdll-issues-in-audacitys-mp3-encoding-feature/"><u>Resolving lame_enc.dll Issues in Audacity's MP3 Encoding Feature</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/unveiling-hugging-face-what-it-is-and-how-its-applied/"><u>Unveiling Hugging Face: What It Is & How It's Applied</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/with-the-trending-of-videos-more-and-more-people-are-likely-to-create-videos-to-help-people-figure-out-the-best-free-online-video-editing-tools-ive-tested-s/"><u>With the Trending of Videos, More and More People Are Likely to Create Videos. To Help People Figure Out the Best Free Online Video Editing Tools, Ive Tested some Online Video Editors on the Market A</u></a></li>
+</ul></div>
 

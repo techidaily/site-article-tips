@@ -1,7 +1,7 @@
 ---
 title: "The Pioneering Path of VR Technology"
-date: 2024-09-20T22:39:37.509Z
-updated: 2024-09-26T20:09:01.796Z
+date: 2024-09-28T02:28:32.754Z
+updated: 2024-10-02T03:50:11.963Z
 tags: 
   - screen-recording
   - ai video
@@ -41,10 +41,16 @@ thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6
  )
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -58,16 +64,10 @@ thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
 
 <!-- affiliate ads begin -->
-<span id="1424528">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1424528.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1424528">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1424528.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1424528%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1424528/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2068440/7443" target="_top" id="2068440">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068440" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068440/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
@@ -77,10 +77,10 @@ thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -90,10 +90,10 @@ thumbnail: https://thmb.techidaily.com/485fa639637af95e40bb39955015be2d5660936e6
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -121,21 +121,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-reviewing-asuss-4k-spectacle-the-mg28uq-unboxed/"><u>[New] 2024 Approved Reviewing ASUS's 4K Spectacle - The MG28UQ Unboxed</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-wit-wave-twitters-funniest-content/"><u>[New] 2024 Approved Wit Wave Twitter's Funniest Content</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-elite-7-drone-gimbal-selections/"><u>[New] Elite 7 Drone Gimbal Selections</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-advanced-strategies-for-enhancing-vhs-images-digitally/"><u>[New] In 2024, Advanced Strategies for Enhancing VHS Images Digitally</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/new-the-backchannel-bridge-engaging-with-your-audience-for-2024/"><u>[New] The Backchannel Bridge Engaging with Your Audience for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-price-benchmarking-top-value-in-cloud-services/"><u>[Updated] 2024 Approved Price Benchmarking Top Value in Cloud Services</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-creating-a-space-for-feedback-talking-with-your-viewers-for-2024/"><u>[Updated] Creating a Space for Feedback Talking with Your Viewers for 2024</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/updated-enhance-discoverability-with-effective-video-tags/"><u>[Updated] Enhance Discoverability with Effective Video Tags</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-a-comprehensive-guide-to-previewing-facebooks-hidden-activities/"><u>[Updated] In 2024, A Comprehensive Guide to Previewing Facebook's Hidden Activities</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-integrating-your-podcast-into-apple-music/"><u>[Updated] In 2024, Integrating Your Podcast Into Apple Music</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-navigating-through-instagrams-video-time-slot/"><u>[Updated] Navigating Through Instagram's Video Time Slot</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/2024-approved-secure-your-webcam-with-these-10-tips/"><u>2024 Approved Secure Your Webcam with These 10 Tips</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/in-2024-navigating-through-gopro-and-time-lapse-synergy/"><u>In 2024, Navigating Through GoPro and Time-Lapse Synergy</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-fake-gps-location-pro-and-is-it-good-on-infinix-gt-10-pro-drfone-by-drfone-virtual-android/"><u>In 2024, What is Fake GPS Location Pro and Is It Good On Infinix GT 10 Pro? | Dr.fone</u></a></li>
-<li><a href="https://fox-that.techidaily.com/overcoming-sim-not-provisioned-mmi-errors-on-your-device-easily/"><u>Overcoming 'SIM Not Provisioned MMI' Errors on Your Device Easily</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-cold-weather-spectacle-of-beijing-2022/"><u>The Cold-Weather Spectacle of Beijing 2022</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-protecting-your-digital-memories-how-to-save-tiktok-videos/"><u>[New] 2024 Approved Protecting Your Digital Memories How to Save TikTok Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-essential-vr-game-development-tools-for-modern-creators/"><u>[New] In 2024, Essential VR Game Development Tools for Modern Creators</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-maximize-space-not-time-discover-the-coolest-34-phone-apps-for-slashing-size-for-2024/"><u>[New] Maximize Space, Not Time Discover the Coolest 34 Phone Apps for Slashing Size for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigating-the-lands-marketplace-of-product-sponsored-youtube-content-for-2024/"><u>[New] Navigating the Lands Marketplace of Product-Sponsored YouTube Content for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-secrets-of-the-pros-apple-devices-for-premium-interactive-recording/"><u>[New] Secrets of the Pros Apple Devices for Premium Interactive Recording</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/urn-your-shorts-into-cash-effective-monetization-techniques/"><u>[New] Turn Your Shorts Into Cash Effective Monetization Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-advanced-windows-based-editors-for-high-quality-videography/"><u>[Updated] 2024 Approved Advanced Windows-Based Editors for High-Quality Videography</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-solving-obs-fullscreen-glitches/"><u>[Updated] 2024 Approved Solving OBS Fullscreen Glitches</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-tailored-titles-for-your-youtube-success/"><u>[Updated] 2024 Approved Tailored Titles for Your YouTube Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elevate-your-videos-luminous-techniques-for-android-users/"><u>[Updated] Elevate Your Videos - Luminous Techniques for Android Users</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-in-2024-ecological-architecture-merging-nature-and-city-planning/"><u>[Updated] In 2024, Ecological Architecture Merging Nature and City Planning</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-skys-boldest-workhorses-top-10-drones/"><u>[Updated] In 2024, The Sky's Boldest Workhorses - Top 10 Drones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-nikon-km-170-vs-hero-black-a-tough-decision/"><u>[Updated] Nikon KM-170 VS Hero Black A Tough Decision</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-simplify-media-handling-with-top-18-free-converters-for-windowsmacos-users-for-2024/"><u>[Updated] Simplify Media Handling With Top 18 Free Converters For Windows/macOS Users for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-exclusive-reveals-on-securing-high-quality-live-cricket-broadcasting/"><u>2024 Approved Exclusive Reveals on Securing High-Quality Live Cricket Broadcasting</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/experience-the-virtual-reality-frontier-on-youtube/"><u>Experience the Virtual Reality Frontier on Youtube</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/how-to-cast-poco-f5-pro-5g-to-computer-for-iphone-and-android-drfone-by-drfone-android/"><u>How to Cast Poco F5 Pro 5G to Computer for iPhone and Android? | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-bring-your-videos-to-life-the-magic-of-cartoon-conversion-explained-for-2024/"><u>New Bring Your Videos to Life The Magic of Cartoon Conversion Explained for 2024</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/new-in-2024-dub-like-a-pro-top-6-video-dubbing-apps-for-android-and-ios/"><u>New In 2024, Dub Like a Pro Top 6 Video Dubbing Apps for Android and iOS</u></a></li>
 </ul></div>
 

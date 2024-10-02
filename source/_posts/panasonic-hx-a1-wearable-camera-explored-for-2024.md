@@ -1,7 +1,7 @@
 ---
 title: "\"Panasonic HX-A1 Wearable Camera Explored for 2024\""
-date: 2024-09-25T20:00:34.169Z
-updated: 2024-09-27T01:17:45.506Z
+date: 2024-09-28T08:04:19.743Z
+updated: 2024-10-02T07:23:29.617Z
 tags: 
   - screen-recording
   - ai video
@@ -44,10 +44,10 @@ thumbnail: https://thmb.techidaily.com/9c499903b4fab811676ace6dccfa6523d6366f829
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902294/19272" target="_top" id="1902294">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902294" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902294/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Specification
@@ -76,10 +76,10 @@ thumbnail: https://thmb.techidaily.com/9c499903b4fab811676ace6dccfa6523d6366f829
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2075462/7443" target="_top" id="2075462">
+  <img src="//a.impactradius-go.com/display-ad/7443-2075462" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075462/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Accessories in the box
@@ -120,10 +120,10 @@ thumbnail: https://thmb.techidaily.com/9c499903b4fab811676ace6dccfa6523d6366f829
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2130886/7443" target="_top" id="2130886">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130886" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130886/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Features
@@ -155,10 +155,10 @@ thumbnail: https://thmb.techidaily.com/9c499903b4fab811676ace6dccfa6523d6366f829
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098703/14409" target="_top" id="2098703">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098703" border="0" alt="https://techidaily.com" width="468" height="60"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098703/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -194,22 +194,22 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-educational-videography-key-editing-strategies/"><u>[New] 2024 Approved Educational Videography Key Editing Strategies</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-navigating-the-world-of-file-conversion-in-vlc-starting-with-mp4-for-2024/"><u>[New] Navigating the World of File Conversion in VLC, Starting with MP4 for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-streamline-twitters-from-video-to-audible-format/"><u>[New] Streamline Twitters From Video to Audible Format</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/new-the-complete-walkthrough-for-console-gaming-pc-recordings-for-2024/"><u>[New] The Complete Walkthrough for Console Gaming PC Recordings for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-above-par-editing-software-for-ios-and-android-smartphones-for-2024/"><u>[Updated] Above-Par Editing Software for iOS & Android Smartphones for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-proven-methods-to-master-time-lapse-creation/"><u>[Updated] Proven Methods to Master Time Lapse Creation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-path-to-picsart-proficiency/"><u>[Updated] The Ultimate Path to PicsArt Proficiency</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-skincare-revolution-the-best-apps-for-your-phone/"><u>2024 Approved Skincare Revolution The Best Apps for Your Phone</u></a></li>
-<li><a href="https://driver-download.techidaily.com/download-nvidia-graphics-drivers-compatible-versions-for-windows-10-11-7-and-8/"><u>Download NVIDIA Graphics Drivers: Compatible Versions for Windows 10, 11, 7 & 8</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/explore-the-future-of-web-search-bings-ai-on-android-and-ios/"><u>Explore the Future of Web Search: Bing's AI on Android & iOS</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/how-to-un-reload-your-loved-tiktok-videos/"><u>How to Un-Reload Your Loved TikTok Videos</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-honor-magic5-ultimate-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Honor Magic5 Ultimate Current Location of a Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-gain-listener-traffic-advanced-techniques-in-podcast-seo/"><u>In 2024, Gain Listener Traffic Advanced Techniques in Podcast SEO</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-the-ultimate-resource-for-mac-users-unlocking-preview-capabilities/"><u>In 2024, The Ultimate Resource for Mac Users Unlocking Preview Capabilities</u></a></li>
-<li><a href="https://article-tips.techidaily.com/quick-and-fun-make-a-meme-with-kinemaster-for-2024/"><u>Quick & Fun Make a Meme with KineMaster for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/the-5-best-ways-to-make-money-on-youtube-shorts-today/"><u>The 5 Best Ways to Make Money on YouTube Shorts Today</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/the-best-android-unlock-software-for-vivo-v29-pro-device-top-5-picks-to-remove-android-locks-by-drfone-android/"><u>The Best Android Unlock Software For Vivo V29 Pro Device Top 5 Picks to Remove Android Locks</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-how-to-upload-and-share-videos-seamlessly-on-instagram/"><u>[New] 2024 Approved How to Upload and Share Videos Seamlessly on Instagram</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultimate-guide-to-efficient-mobile-video-management/"><u>[New] 2024 Approved The Ultimate Guide to Efficient Mobile Video Management</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/new-clear-vision-how-to-cut-out-image-clutter-on-photopea/"><u>[New] Clear Vision How to Cut Out Image Clutter on Photopea</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-a-buyers-guide-to-exceptional-hdr-photography-equipment/"><u>[New] In 2024, A Buyer's Guide to Exceptional HDR Photography Equipment</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-narrative-noble-order-honors-hexagon-for-2024/"><u>[New] Narrative Noble Order - Honor's Hexagon for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-top-ten-clandestine-corrections-for-artists/"><u>[Updated] 2024 Approved Top Ten Clandestine Corrections for Artists</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/1716069906921-updated-activating-built-in-screen-recorders-mate-1020-and-p-series-devices-p20-p10-for-2024/"><u>[Updated] Activating Built-In Screen Recorders Mate 10/20 & P-Series Devices (P20, P10). For 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-instantly-connecting-fans-how-to-take-your-fb-live-further-for-2024/"><u>[Updated] Instantly Connecting Fans How to Take Your FB Live Further for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unlocking-the-power-of-high-dynamic-range-in-photography-for-2024/"><u>[Updated] Unlocking the Power of High Dynamic Range in Photography for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-apk-gaming-revolution-welcome-funimate-pro-android-edition/"><u>2024 Approved APK Gaming Revolution Welcome Funimate Pro Android Edition</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-step-by-step-crafting-photos-into-engaging-videos-in-pixiz/"><u>2024 Approved Step-by-Step Crafting Photos Into Engaging Videos in Pixiz</u></a></li>
+<li><a href="https://win11.techidaily.com/bridging-the-gap-onedrive-and-microsoft-id-for-pc-users/"><u>Bridging the Gap: OneDrive & Microsoft ID for PC Users</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-a-step-by-step-guide-on-using-adb-and-fastboot-to-remove-frp-lock-from-your-lava-agni-2-5g-by-drfone-android/"><u>In 2024, A Step-by-Step Guide on Using ADB and Fastboot to Remove FRP Lock from your Lava Agni 2 5G</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-change-location-on-yik-yak-for-your-apple-iphone-x-to-enjoy-more-fun-drfone-by-drfone-virtual-ios/"><u>In 2024, Change Location on Yik Yak For your Apple iPhone X to Enjoy More Fun | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-elite-insight-parrots-second-gen-drone-20/"><u>In 2024, Elite Insight Parrot's Second-Gen Drone 2.0</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/mastering-the-marathon-of-martainment-essential-steps-in-your-ai-powered-process-automation-quest/"><u>Mastering the Marathon of MarTainment: Essential Steps in Your AI-Powered Process Automation Quest</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-11-kid-friendly-waterproof-vlog-cameras-for-newbies-for-2024/"><u>Top 11 Kid-Friendly Waterproof Vlog Cameras for Newbies for 2024</u></a></li>
 </ul></div>
 

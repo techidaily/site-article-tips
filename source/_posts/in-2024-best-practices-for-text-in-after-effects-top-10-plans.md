@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Best Practices for Text in After Effects (Top 10 Plans)"
-date: 2024-09-21T17:56:19.580Z
-updated: 2024-09-26T23:59:55.688Z
+date: 2024-09-28T06:26:13.667Z
+updated: 2024-10-02T03:23:20.943Z
 tags: 
   - screen-recording
   - ai video
@@ -51,13 +51,6 @@ The glitch text effects are extremely common in today's videos as they instantly
 
 ![glitch text effects preset](https://images.wondershare.com/filmora/article-images/2022/09/glitch-text-effects-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Motion Type Text Animation Preset
 
 You should have simple but effective motion text effects in your video so that certain texts and titles can get the message across clearly to the viewers. In this pack, you get amazing motion text effects with and without keyframes. Besides, you get several useful parameters like in-out mirror, reverse in and out, and overshoot that you can tweak to get the desired text animations.
@@ -69,6 +62,13 @@ You should have simple but effective motion text effects in your video so that c
 There are two FFX files in the pack that lets you get a retro text effect along with the popular typewriter animation. Import the files and drop the effect on your text and you can adjust several parameters to create amazing text effects. The retro effect is very similar to watching something on old monitors with very low resolution.
 
 ![typominal typewriter effect preset](https://images.wondershare.com/filmora/article-images/2022/09/typominal-typewriter-effect-preset.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151859/7443" target="_top" id="2151859">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151859" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151859/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Tapered Stroke Preset
 
@@ -106,26 +106,6 @@ If you want to keep the text animations simple but you want it to be different t
 
 ![universial text aniamtion preset](https://images.wondershare.com/filmora/article-images/2022/09/universial-text-aniamtion-preset.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 10\. Text Animation Lower Third
 
 Lower thirds are an essential part of the modern videos where you are introducing concepts and giving out information. Starting from title introductions to displaying headlines and quotes, you will get the perfect text presents in this dynamic pack to satisfy your requirements perfectly. You can customize several parameters to get the text effects as per your video project.
@@ -140,6 +120,13 @@ Step1From your After Effects project, go to Tool panel and click on Type tool. C
 
 ![adjust text styles after effects](https://images.wondershare.com/filmora/article-images/2022/09/adjust-text-styles-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2Go to Effects and Presets panel and you will find all the presets including the imported ones. Search for any desired text effect preset and drag and drop it on the text layer.
 
 ![search desired text preset after effects](https://images.wondershare.com/filmora/article-images/2022/09/search-desired-text-preset-after-effects.jpg)
@@ -147,13 +134,6 @@ Step2Go to Effects and Presets panel and you will find all the presets including
 Step3Click on the text layer to expand it and you will see different parameters that you can adjust to get the desired text effect. You can also tweak keyframes wherever applicable to adjust the text animation.
 
 ![adjust text layer after effects](https://images.wondershare.com/filmora/article-images/2022/09/adjust-text-layer-after-effects.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123726/7443" target="_top" id="2123726">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123726" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123726/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 3\. Alternative Way to Create Text Effects for Video
 
@@ -172,16 +152,10 @@ Step2Drop the video clip onto timeline if you want to use it as a background to 
 ![drop the video clip onto timeline](https://images.wondershare.com/filmora/guide/types-of-titles-win-1.png)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2080317/19272" target="_top" id="2080317">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080317" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080317/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3Go to Titles and you will see different categories of text effects on the left panel. Search for any text effect and select any desired template. Drop it onto the timeline above the background layer.
@@ -206,25 +180,11 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
 
 There are unlimited text presets available on After Effects and for a beginner, it can be quite time-consuming to go through all of them and get confused about which one to pick. To make things easier for beginners, we are listing down the best 10 text presets After Effects free and paid for instant selection for their video projects.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. Glitch Text Effects
 
 The glitch text effects are extremely common in today's videos as they instantly draw the attention of the viewers and offer a retro feel. In this text presents, you get 30 different glitch text effect animations that you can use for titles as well as in-body texts. You get to choose from 32 glitch maps for creative and refreshing text effects for your videos.
 
 ![glitch text effects preset](https://images.wondershare.com/filmora/article-images/2022/09/glitch-text-effects-preset.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. Motion Type Text Animation Preset
 
@@ -237,6 +197,13 @@ You should have simple but effective motion text effects in your video so that c
 There are two FFX files in the pack that lets you get a retro text effect along with the popular typewriter animation. Import the files and drop the effect on your text and you can adjust several parameters to create amazing text effects. The retro effect is very similar to watching something on old monitors with very low resolution.
 
 ![typominal typewriter effect preset](https://images.wondershare.com/filmora/article-images/2022/09/typominal-typewriter-effect-preset.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135398/19272" target="_top" id="2135398">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135398" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135398/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Tapered Stroke Preset
 
@@ -256,6 +223,19 @@ You get 16 amazing text styles that you can use on your texts and titles to make
 
 ![text styles preset](https://images.wondershare.com/filmora/article-images/2022/09/text-styles-preset.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1993652">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 7\. Text Animation Bundle
 
 You get 80 text presets in this pack that you can customize and make the texts and titles in your video project elegant. All the animations have studio-like quality and you can animate your text uniquely and randomly. Starting from standard text animations to some really cool and creative text animations, you get everything in one pack.
@@ -274,6 +254,13 @@ If you want to keep the text animations simple but you want it to be different t
 
 ![universial text aniamtion preset](https://images.wondershare.com/filmora/article-images/2022/09/universial-text-aniamtion-preset.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 10\. Text Animation Lower Third
 
 Lower thirds are an essential part of the modern videos where you are introducing concepts and giving out information. Starting from title introductions to displaying headlines and quotes, you will get the perfect text presents in this dynamic pack to satisfy your requirements perfectly. You can customize several parameters to get the text effects as per your video project.
@@ -291,6 +278,13 @@ Step1From your After Effects project, go to Tool panel and click on Type tool. C
 Step2Go to Effects and Presets panel and you will find all the presets including the imported ones. Search for any desired text effect preset and drag and drop it on the text layer.
 
 ![search desired text preset after effects](https://images.wondershare.com/filmora/article-images/2022/09/search-desired-text-preset-after-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3Click on the text layer to expand it and you will see different parameters that you can adjust to get the desired text effect. You can also tweak keyframes wherever applicable to adjust the text animation.
 
@@ -321,10 +315,10 @@ Step4Double-click on the text layer and edit the text. Place the text layer on t
 ![edit the text](https://images.wondershare.com/filmora/guide/text-animation-win-1.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
-  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134234/18498" target="_top" id="2134234">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134234" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134234/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -359,22 +353,16 @@ If you decide to use Adobe After Effects to add text effects to your video, we h
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-action-shooting-guide-choosing-cameras-as-a-novice-23-update/"><u>[New] 2024 Approved Action Shooting Guide Choosing Cameras as a Novice '23 Update</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-essential-4-techniques-for-sharpening-iphone-hdr-videos-on-premiere/"><u>[New] 2024 Approved Essential 4 Techniques for Sharpening iPhone HDR Videos on Premiere</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-nostalgic-notions-integrating-timeless-vhs-effects-into-modern-video-production/"><u>[New] 2024 Approved Nostalgic Notions Integrating Timeless VHS Effects Into Modern Video Production</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-perfect-playtime-footage-with-nvidia/"><u>[New] 2024 Approved Perfect Playtime Footage with NVIDIA</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-telegram-tactics-for-aspiring-marketers-a-compreeher-guide/"><u>[New] 2024 Approved Telegram Tactics for Aspiring Marketers A Compreeher Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-list-of-8-best-free-and-paid-movie-apps-for-iphone-for-2024/"><u>[New] List of 8 Best Free and Paid Movie Apps for iPhone for 2024</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-cutting-ties-with-instagram-users/"><u>[Updated] 2024 Approved Cutting Ties with Instagram Users</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-2023-how-to-share-twitter-videos-on-whatsapp/"><u>[Updated] In 2024, 2023 | How to Share Twitter Videos on WhatsApp?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-top-virtual-reality-development-tools-gamers/"><u>[Updated] In 2024, Top Virtual Reality Development Tools Gamers</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-unlocking-vidmas-secrets-to-superior-screen-recording/"><u>[Updated] Unlocking Vidma’s Secrets to Superior Screen Recording</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/a-comprehensive-guide-uncovering-individual-email-ids-safely/"><u>A Comprehensive Guide: Uncovering Individual Email IDs Safely</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guiding-users-through-terminal-restart-on-win11/"><u>Guiding Users Through Terminal Restart on Win11</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-old-world-wonders-iphone-x-portraits/"><u>In 2024, Old World Wonders – iPhone X Portraits</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-rated-ipad-air-enhancements-and-gadgets-the-ultimate-list/"><u>Top-Rated iPad Air Enhancements and Gadgets: The Ultimate List</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/unlocking-your-potential-in-youtube-video-production-scripts/"><u>Unlocking Your Potential in YouTube Video Production Scripts</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/ways-to-stop-parent-tracking-your-oppo-k11-5g-drfone-by-drfone-virtual-android/"><u>Ways to stop parent tracking your Oppo K11 5G | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/zero-cost-for-fcp-your-how-to/"><u>Zero Cost for FCP - Your How To</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-premium-picks-for-the-ultimate-gopro-experience/"><u>[New] 2024 Approved Premium Picks for the Ultimate Gopro Experience</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-conquer-youtube-searches-with-these-top-11-seo-strategies-for-2024/"><u>[New] Conquer YouTube Searches with These Top 11 SEO Strategies for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-total-capture-trio-setup/"><u>[New] In 2024, Total Capture Trio Setup</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-definitive-guide-to-10-premium-vector-stockplaces/"><u>[Updated] 2024 Approved The Definitive Guide to 10 Premium Vector Stockplaces</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-seamless-blending-android-tips-for-multi-video-editing/"><u>[Updated] In 2024, Seamless Blending Android Tips for Multi-Video Editing</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-the-quick-glitch-fix-for-podcast-broadcasts/"><u>2024 Approved The Quick Glitch Fix for Podcast Broadcasts</u></a></li>
+<li><a href="https://common-error.techidaily.com/guide-to-fixing-origins-games-setting-up-made-simple/"><u>Guide to Fixing Origins Games: Setting Up Made Simple</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-hidefake-snapchat-location-on-your-vivo-y55s-5g-2023-drfone-by-drfone-virtual-android/"><u>How to Hide/Fake Snapchat Location on Your Vivo Y55s 5G (2023) | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/premier-sites-for-tweeting-in-a-post-twitter-era-for-2024/"><u>Premier Sites for Tweeting in a Post-Twitter Era for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/superior-steadicams-for-drone-shooting-precision/"><u>Superior Steadicams for Drone Shooting Precision</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/trim-videos-online-for-free-10-best-websites-and-tools-for-2024/"><u>Trim Videos Online for Free 10 Best Websites and Tools for 2024</u></a></li>
 </ul></div>
 

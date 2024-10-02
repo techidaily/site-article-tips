@@ -1,7 +1,7 @@
 ---
 title: "\"Getting Started with Azure Speech-to-Text Service\""
-date: 2024-09-20T00:37:41.157Z
-updated: 2024-09-27T02:31:08.044Z
+date: 2024-09-27T05:37:44.339Z
+updated: 2024-10-02T01:41:01.045Z
 tags: 
   - screen-recording
   - ai video
@@ -56,16 +56,10 @@ Step3The program will take a while to deploy an instance. Now tap Keys and endpo
 ![micrsoft azure speech to text copy key and region](https://images.wondershare.com/filmora/article-images/2022/07/microsoft-speech-to-text-1.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2144280/7443" target="_top" id="2144280">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144280" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144280/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step4Download and install Microsoft Visual C++ and .NET Core 3.1 Runtime. Next, install Speech CL on .NET by running this command “**dotnet tool install -global Microsoft.CognitiveServices.Speech.CLI.**” Alternatively, download and install Speech CLI for Windows PCs as a [ZIP file](https://aka.ms/speech/spx-windows).
@@ -76,19 +70,6 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 
 ![icon note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 **Note:** Click [this video](https://docs.microsoft.com/en-us/shows/one-dev-minute/how-to-use-the-azure-cognitive-services-net-speech-sdk-for-recognition) for a detailed guide on how to use Azure Speech Services with Visual Basic (SDK).
 
 ## Part 3: What Are the Free Alternatives to the Microsoft Speech to Text Service?
@@ -96,19 +77,6 @@ Step6Now it's time to convert speech to text using Azure STT Service. To do that
 We should all agree that using Microsoft Azures Speech Service is not a walk in the park. You need some knowledge of programming and Windows Command Prompt. Even worse, you'll have to pay each time you want to convert speech to text after depleting the free credits.
 
 Fortunately, there's no shortage of free speech to text converters for beginners. So, in this part, we'll discuss some free Microsoft Azure STT alternatives for beginners.
-
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -136,6 +104,13 @@ Select the audio asset in the timeline, and click the "Speech-to-Text" icon in t
 
 ![toolbar stt](https://images.wondershare.com/filmora/guide/guide-win/toolbar-stt.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://dhgate.sjv.io/c/5597632/1172027/12108" target="_top" id="1172027">
+  <img src="//a.impactradius-go.com/display-ad/12108-1172027" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://dhgate.sjv.io/i/5597632/1172027/12108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 2
 
 Click the "Speech-to-Text" icon, and it will show the parameter settings. You can choose the languages to be transcribed and to be transcribed to. Filmora's STT feature supports direct transcription of bilingual subtitles with up to 27 languages of transcription
@@ -143,10 +118,10 @@ Click the "Speech-to-Text" icon, and it will show the parameter settings. You ca
 ![parameter setting](https://images.wondershare.com/filmora/guide/guide-win/setting-stt.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Google Docs - Free
@@ -182,10 +157,10 @@ Step2Drag-n-drop your video or audio file on the program and then choose the tra
 Step3Finally, click the transcribed text file to edit it with new texts and punctuations on the inbuilt editor. You can export your transcription in .txt, .srt, or .docx formats. Directly export to Google Drive is also available.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -201,6 +176,14 @@ In that case, use a more straightforward option like Google Docs to dictate text
 [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Try STT Now](https://tools.techidaily.com/wondershare/filmora/download/) [Explore STT](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
+
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123733/7443" target="_top" id="2123733">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123733" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123733/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 
 <ins class="adsbygoogle"
@@ -221,16 +204,18 @@ In that case, use a more straightforward option like Google Docs to dictate text
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-accelerate-your-storytelling-with-customized-speed-settings/"><u>[New] In 2024, Accelerate Your Storytelling with Customized Speed Settings</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-reveal-the-disenchanted-instagrams-unfollowers/"><u>[Updated] 2024 Approved Reveal the Disenchanted Instagram's Unfollowers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-front-rows-of-recreation-beyond-the-sports-arena-for-2024/"><u>[Updated] Front Rows of Recreation Beyond the Sports Arena for 2024</u></a></li>
-<li><a href="https://youtube-help.techidaily.com/2024-approved-must-know-facts-for-asmr-content-lovers/"><u>2024 Approved Must-Know Facts for ASMR Content Lovers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/fixing-disconnected-headphone-unit-for-2024/"><u>Fixing Disconnected Headphone Unit for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/get-your-canon-printing-machine-ready-dr-c225-driver-downloads-for-modern-windows-os/"><u>Get Your Canon Printing Machine Ready: DR-C225 Driver Downloads for Modern Windows OS</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-step-by-step-process-to-shoot-with-a-fisheye-lens/"><u>In 2024, Step-by-Step Process to Shoot with a Fisheye Lens</u></a></li>
-<li><a href="https://article-tips.techidaily.com/optimal-outlooks-ideal-laptops-to-render-hd-videos-quickly-for-2024/"><u>Optimal Outlooks Ideal Laptops to Render HD Videos Quickly for 2024</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/playing-fb-videos-on-your-apple-device-for-2024/"><u>Playing FB Videos on Your Apple Device for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/step-by-step-mastering-the-art-of-vr-exploration/"><u>Step-by-Step Mastering the Art of VR Exploration</u></a></li>
-<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-asus-rog-phone-7-ultimate-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Asus ROG Phone 7 Ultimate? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-essential-guide-to-choosing-video-aspect-ratios/"><u>[New] 2024 Approved The Essential Guide to Choosing Video Aspect Ratios</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-basic-approach-tweaking-clownfish-tones-in-windoze-for-2024/"><u>[New] Basic Approach Tweaking Clownfish Tones in Windoze for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-complete-connoisseurs-manual-for-expertise-in-morphvox-voice-changing/"><u>[New] Complete Connoisseur’s Manual for Expertise in MorphVOX Voice Changing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-top-7-low-cost-video-compacting-tools-for-android-devices/"><u>[New] In 2024, Top 7 Low-Cost Video Compacting Tools for Android Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-streamline-your-wedding-countdown-the-best-androidios-clock-apps-guide/"><u>[New] Streamline Your Wedding Countdown The Best Android/iOS Clock Apps Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-techniques-for-maximizing-gopro-battery-life/"><u>[New] Techniques for Maximizing GoPro Battery Life</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-transform-your-youtube-footage-into-cinematic-delight-with-imovie-expertise/"><u>[New] Transform Your YouTube Footage Into Cinematic Delight with iMovie Expertise</u></a></li>
+<li><a href="https://windows11.techidaily.com/a-practical-approach-to-windows-network-file-transfer-via-python/"><u>A Practical Approach to Windows Network File Transfer via Python</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-value-for-money-top-6-budget-4k-projector-models/"><u>Best Value for Money Top 6 Budget 4K Projector Models</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-gamers-guide-to-video-recording/"><u>In 2024, Gamer's Guide to Video Recording</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-top-4-ways-to-trace-samsung-galaxy-s23-fe-location-drfone-by-drfone-virtual-android/"><u>In 2024, Top 4 Ways to Trace Samsung Galaxy S23 FE Location | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/solving-the-dilemma-effective-solutions-for-persistent-mouse-disconnection-issues/"><u>Solving the Dilemma: Effective Solutions for Persistent Mouse Disconnection Issues</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/transcode-un-fichier-avi-en-format-ogg-pour-la-video-gratuite-et-facile-movavi/"><u>Transcode Un Fichier AVI en Format Ogg Pour La Vidéo, Gratuite Et Facile - Movavi</u></a></li>
 </ul></div>
 

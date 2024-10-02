@@ -1,7 +1,7 @@
 ---
 title: "\"Step-by-Step Walkthrough  Incorporating Subtitles in MP4s for 2024\""
-date: 2024-09-22T16:22:45.895Z
-updated: 2024-09-26T21:15:10.952Z
+date: 2024-09-25T00:14:43.340Z
+updated: 2024-10-01T16:48:46.794Z
 tags: 
   - screen-recording
   - ai video
@@ -65,23 +65,9 @@ Step1 Download and install Filmora software on your PC or Mac > Launch the Progr
 
 ![downlaod and install filmora](https://images.wondershare.com/filmora/article-images/2022/07/ultimate-guide-to-add-srt-to-mp4-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Click the ‘Import’ button at the top left corner > Select ‘Import Media Files’ > Upload the MP4 video and the SRT file.
 
 ![click on import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-add-srt-to-mp4-with-filmora-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Up next, you need to Drag-n-drop the .srt file into the Timeline and right-click it > select ‘Advanced Edit’.
 
@@ -109,29 +95,22 @@ Step2 Click on the ‘Add’ button to upload the MP4 video file that you want t
 
 ![click on add button](https://images.wondershare.com/filmora/article-images/2022/07/add-srt-to-mp4-with-clideo-online-tool-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2002019/7443" target="_top" id="2002019">
+  <img src="//a.impactradius-go.com/display-ad/7443-2002019" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002019/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Once you've successfully uploaded the MP4 video file, you'll be given options that you want to use to add SRT to MP4\. You can use ‘Add Manually’, to add the subtitles manually, ‘Upload SRT’ to upload the SRT file, or ‘Generate Automatically’ to allow the Clideo to generate the subtitles automatically.
 
 ![add subtitles manually](https://images.wondershare.com/filmora/article-images/2022/07/add-srt-to-mp4-with-clideo-online-tool-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123731/7443" target="_top" id="2123731">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123731" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123731/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 We recommend using the ‘Upload SRT’ option to add the subtitles file. The ‘Generate Automatically’ option is still a ‘Beta’ feature, so it might not work perfectly.
 
 Step4 Now, click on ‘Styles’ to choose how you want the text to appear on your video. From text font to background, color, size, and alignment.
 
 ![click on styles](https://images.wondershare.com/filmora/article-images/2022/07/add-srt-to-mp4-with-clideo-online-tool-3.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148649/16836" target="_top" id="2148649">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148649" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148649/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Then, click ‘Format’ at the bottom left corner of your PC or Mac screen to choose the format in which you want the output of your file to be.
 
@@ -170,6 +149,13 @@ Regardless of whatever you're planning to do with your video, it's important you
 | Premiere Pro  | √                  |
 | Jubler        | √                  |
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016129/19272" target="_top" id="2016129">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016129" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016129/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### ● Display videos and subtitles with a media player
 
 | **Platform** | **SRT Compatible** |
@@ -181,13 +167,6 @@ Regardless of whatever you're planning to do with your video, it's important you
 | YouTube      | √                  |
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036472/19272" target="_top" id="2036472">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036472" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036472/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Note:** if you’re using a different hosting site, check the support documentation for that site to see which subtitling formats they support.
 
@@ -231,6 +210,19 @@ Today, the [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmor
 * Add subtitles to MP4 in over 18 different languages including English.
 * Clean user interface.
 
+<!-- affiliate ads begin -->
+<span id="1531879">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Add SRT to MP4 with [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
 
 Step1 Download and install Filmora software on your PC or Mac > Launch the Program and click on ‘New Project’.
@@ -241,9 +233,23 @@ Step2 Click the ‘Import’ button at the top left corner > Select ‘Import Me
 
 ![click on import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-add-srt-to-mp4-with-filmora-1.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Up next, you need to Drag-n-drop the .srt file into the Timeline and right-click it > select ‘Advanced Edit’.
 
 ![select advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-add-srt-to-mp4-with-filmora-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959707/19272" target="_top" id="1959707">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959707" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959707/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Edit the SRT file according to your requirements. You can edit time.code, change subtitles, and do lots more.
 
@@ -271,13 +277,6 @@ Step3 Once you've successfully uploaded the MP4 video file, you'll be given opti
 
 ![add subtitles manually](https://images.wondershare.com/filmora/article-images/2022/07/add-srt-to-mp4-with-clideo-online-tool-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 We recommend using the ‘Upload SRT’ option to add the subtitles file. The ‘Generate Automatically’ option is still a ‘Beta’ feature, so it might not work perfectly.
 
 Step4 Now, click on ‘Styles’ to choose how you want the text to appear on your video. From text font to background, color, size, and alignment.
@@ -288,11 +287,25 @@ Then, click ‘Format’ at the bottom left corner of your PC or Mac screen to c
 
 ![click on format](https://images.wondershare.com/filmora/article-images/2022/07/add-srt-to-mp4-with-clideo-online-tool-4.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Hit the ‘Export’ button at the bottom right corner to start burning subtitles into the MP4 video.
 
 Step5 After adding SRT to MP4, click the ‘Download’ button to save the output file to your device. You can also upload the file to Dropbox or Google Drive cloud storage by clicking the drop-down icon next to Download.
 
 ![click on download button](https://images.wondershare.com/filmora/article-images/2022/07/add-srt-to-mp4-with-clideo-online-tool-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: SRT file format is just right for you, if…
 
@@ -333,27 +346,20 @@ Regardless of whatever you're planning to do with your video, it's important you
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130870/7443" target="_top" id="2130870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **Note:** if you’re using a different hosting site, check the support documentation for that site to see which subtitling formats they support.
 
 ## Part 4: Hot FAQs on adding SRT to MP4
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975802/19272" target="_top" id="1975802">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975802" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975802/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. What is an SRT file?
 
 SRT file is a simple text file used with video data and contains no video or audio data.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144299/7443" target="_top" id="2144299">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144299" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144299/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. How do I permanently add SRT files to a movie?
 
@@ -391,18 +397,19 @@ Gone are the days when adding SRT to MP4 was considered a very difficult task. N
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-celebrating-artistry-top-20-anime-melodies/"><u>[New] Celebrating Artistry Top 20 Anime Melodies</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-in-2024-revolutionizing-art-into-nfts-top-7-tools-explored/"><u>[New] In 2024, Revolutionizing Art Into NFTs - Top 7 Tools Explored</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-premium-5-filters-boosting-oceanic-imaging/"><u>[New] Premium 5 Filters Boosting Oceanic Imaging</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-transcoding-excellence-from-xml-ssa-to-srt-mastery/"><u>[New] Transcoding Excellence From XML, SSA to SRT Mastery</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-2024-approved-superior-lineup-elite-webcam-holders/"><u>[Updated] 2024 Approved Superior Lineup Elite Webcam Holders</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-top-8-recommendations-tripods-for-sharp-4k-images-for-2024/"><u>[Updated] Top 8 Recommendations Tripods for Sharp 4K Images for 2024</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/2024-approved-prime-audio-pads-for-the-web/"><u>2024 Approved Prime Audio Pads for the Web</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-assessment-of-the-tp-link-av2000-adapter-fast-connectivity-with-design-room-for-improvement/"><u>Comprehensive Assessment of the TP-Link AV2000 Adapter: Fast Connectivity with Design Room for Improvement</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-contacts-on-iphone-13-mini-4-methods-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore Contacts on iPhone 13 mini (4 Methods) | Stellar</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/mastering-the-art-of-android-clip-inversions/"><u>Mastering the Art of Android Clip Inversions</u></a></li>
-<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-nokia-g42-5g-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Nokia G42 5G | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/solving-windows-distorted-thx-spatial-sound/"><u>Solving Windows' Distorted THX Spatial Sound</u></a></li>
-<li><a href="https://article-tips.techidaily.com/strategies-to-enhance-stability-of-win-11s-photo-viewer/"><u>Strategies to Enhance Stability of Win 11'S Photo Viewer</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-drones-that-follow-innovative-gps-trail-tenders-for-2024/"><u>[New] Drones That Follow Innovative GPS Trail Tenders for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dynamic-14-visual-expressions-with-text-animation/"><u>[New] Dynamic 14 Visual Expressions with Text Animation</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unveiling-the-power-of-picture-in-picture-on-apple-devices/"><u>[New] Unveiling the Power of Picture-in-Picture on Apple Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-zooctorial-template-goldmine-for-2024/"><u>[New] Zooctorial Template Goldmine for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-exploring-varieties-in-gesture-tech/"><u>[Updated] Exploring Varieties in Gesture Tech</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-gopro-hero4-session-vs-hero5-session-for-2024/"><u>[Updated] GoPro Hero4 Session Vs Hero5 Session for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-understanding-youtubes-earnings-structure/"><u>[Updated] In 2024, Understanding YouTube's Earnings Structure</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-spin-tiktok-magic-into-viral-instagram-reel-success-for-2024/"><u>[Updated] Spin TikTok Magic Into Viral Instagram Reel Success for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-templates-no-cost-explore-premiere-pro-samples-free-for-2024/"><u>Best Templates, No Cost! Explore Premiere Pro Samples (FREE) for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/download-and-update-tp-link-usb-400-bluetooth-adapter-drivers-faster-pairing/"><u>Download & Update TP-Link USB 400 Bluetooth Adapter Drivers – Faster Pairing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/everything-you-need-to-know-before-upgrading-to-windows-10-for-2024/"><u>Everything You Need To Know Before Upgrading To Windows 10 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-top-picks-for-kids-and-first-time-fliers-easy-drone-models/"><u>In 2024, Top Picks for Kids & First-Time Fliers Easy Drone Models</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/step-by-step-guide-tuning-into-fm-stations-with-ios-and-android-devices/"><u>Step-by-Step Guide: Tuning Into FM Stations with iOS and Android Devices</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unlocking-the-potential-top-5-benefits-of-using-chatgpt-in-your-cryptocurrency-investments/"><u>Unlocking the Potential: Top 5 Benefits of Using ChatGPT in Your Cryptocurrency Investments</u></a></li>
 </ul></div>
 

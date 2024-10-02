@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Ultimate Photographic Face-Off  Legend SJ6 Vs. Xiaomi's Yi Kickstarter for 2024\""
-date: 2024-09-18T19:13:27.183Z
-updated: 2024-09-20T16:10:26.673Z
+date: 2024-09-25T16:02:36.457Z
+updated: 2024-10-01T20:33:43.713Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,19 @@ thumbnail: https://thmb.techidaily.com/d6f225de23330f252c6d5195ffc58e836dfeb5e08
 | Loop Recording                 | 5 min, 20 min, 60 min, 120 min, Max | 3min/5min/10min           |
 | Waterproof                     | 40 m (with case)                    | 30 m (with case)          |
 
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Hardware Comparison
 
 #### Design
@@ -82,6 +95,13 @@ thumbnail: https://thmb.techidaily.com/d6f225de23330f252c6d5195ffc58e836dfeb5e08
 
  If you are a underwater adventure lover then Yi 4K cannot provide your more satisfactory service because it can go underwater up to 40 meters and this dive is not possible without protective case. The sad part is that the camera box doesn’t include case so you have to make additional payment to buy it. SJ6 legend is designed to offer impressive underwater performance with its ability to go underwater up to 30 meters with ease and a sturdy, sleek, well designed waterproof case is included in its package.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1918684/19272" target="_top" id="1918684">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918684" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918684/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Features and Performance Comparison
 
 #### Video and Image Quality
@@ -97,16 +117,10 @@ thumbnail: https://thmb.techidaily.com/d6f225de23330f252c6d5195ffc58e836dfeb5e08
  If you are found of recording videos on the go then SJ6 Gyro Stabilizer feature can serve you with better results. Simply turn on Gyro mode during your recordings and it will adjust all ups and downs during motion recordings. No matter whether you are going to attach your camera to handlebar or wish to place it on helmet; this camera with ensure quality results in all cases. In case of Yi 4K you will be able to avail electronic image stabilization for 2.7K resolution level. It is designed using 3 axis type gyroscope and also includes 3-axis accelerometer to ensure smooth recording on the go. The cross border compensation feature makes videos more stable.
 
 <!-- affiliate ads begin -->
-<span id="1938141">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1938141.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1938141">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1938141.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1938141%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1938141/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -120,16 +134,10 @@ thumbnail: https://thmb.techidaily.com/d6f225de23330f252c6d5195ffc58e836dfeb5e08
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2123728/7443" target="_top" id="2123728">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123728" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123728/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -155,5 +163,17 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-blog.techidaily.com/n-2024-channel-identity-constructing-memorable-templates-for-gamers/"><u>[New] In 2024, Channel Identity Constructing Memorable Templates for Gamers</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-best-stream-tech-innovative-hardware-and-software-guide-for-youtubers-for-2024/"><u>[Updated] Best Stream Tech Innovative Hardware & Software Guide for Youtubers for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-elevate-your-ar-graphics-tips-for-using-luts/"><u>[Updated] In 2024, Elevate Your AR Graphics - Tips for Using LUTs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-transform-your-note-habits-with-mematics-tools/"><u>[Updated] Transform Your Note Habits with Mematic's Tools</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/3-easy-solutions-to-hard-reset-samsung-galaxy-f15-5g-drfone-by-drfone-reset-android-reset-android/"><u>3 Easy Solutions to Hard Reset Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/enabling-secure-browsing-with-windows-10s-safeguard/"><u>Enabling Secure Browsing with Windows 10’S SafeGuard</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-video-filter-installation-in-zoom-the-simplified-method/"><u>In 2024, Video Filter Installation in Zoom The Simplified Method</u></a></li>
+<li><a href="https://article-tips.techidaily.com/picsart-tips-infusing-life-with-facial-motion-blur-for-2024/"><u>Picsart Tips Infusing Life with Facial Motion Blur for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/the-secrets-behind-nvidias-rtx-technology-explained/"><u>The Secrets Behind Nvidia's RTX Technology Explained</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/top-10-telegram-spy-tools-on-apple-iphone-12-mini-for-parents-drfone-by-drfone-virtual-ios/"><u>Top 10 Telegram Spy Tools On Apple iPhone 12 mini for Parents | Dr.fone</u></a></li>
+</ul></div>
 

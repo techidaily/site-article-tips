@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Premium Motion Mastery Modules"
-date: 2024-09-19T20:51:10.244Z
-updated: 2024-09-21T00:23:37.745Z
+date: 2024-09-25T02:31:30.673Z
+updated: 2024-10-01T22:25:01.878Z
 tags: 
   - screen-recording
   - ai video
@@ -46,10 +46,10 @@ There is always a high demand for dynamic text animations in After Effects. This
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484944/16446" target="_top" id="1484944">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484944" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144275/7443" target="_top" id="2144275">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144275" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484944/16446" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144275/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 4\. Squash & Stretch Preset
@@ -59,10 +59,10 @@ If you want to add texts and titles in your video that looks like the games mean
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
-  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://review-au.sjv.io/c/5597632/2098700/14409" target="_top" id="2098700">
+  <img src="//a.impactradius-go.com/display-ad/14409-2098700" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098700/14409" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
@@ -72,10 +72,16 @@ In this pack, you will find unique text effects, and you can animate text with k
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977028">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977028.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977028">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977028.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977028%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977028/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 6\. Text Library
@@ -83,6 +89,20 @@ In this pack, you will find unique text effects, and you can animate text with k
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
 
@@ -95,19 +115,6 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
-
-<!-- affiliate ads begin -->
-<span id="1492813">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1492813.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1492813">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1492813.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1492813%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1492813/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -141,5 +148,21 @@ As the saying goes, the more the merrier and the more presets you have, the more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-visual-perfection-with-obs-studio-and-its-comprehensive-lut-support/"><u>[New] 2024 Approved Visual Perfection with OBS Studio and Its Comprehensive LUT Support</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-2024-approved-windowsmac-recording-skype-chats-and-calls/"><u>[New] 2024 Approved Windows/Mac Recording Skype Chats & Calls</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unlock-picture-perfection-compreenhensive-facetune-review-for-2024/"><u>[New] Unlock Picture Perfection Compreenhensive Facetune Review for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-3d-modeling-software-to-use-for-animation/"><u>[Updated] 2024 Approved 3D Modeling Software to Use for Animation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-seamless-transition-leading-8-tools-for-sub-to-srt-changeover/"><u>[Updated] 2024 Approved Seamless Transition Leading 8 Tools for Sub to SRT Changeover</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-exploring-inshot-is-it-the-pinnacle-of-editing/"><u>[Updated] In 2024, Exploring InShot Is It the Pinnacle of Editing?</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-income-accumulation-with-cosmetic-videos/"><u>[Updated] Income Accumulation with Cosmetic Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-top-30-metaverse-gems-diy-meme-ideas-unleashed/"><u>[Updated] Top 30 Metaverse Gems DIY Meme Ideas Unleashed</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/approved-top-ten-must-watch-vr-scenes-on-youtube/"><u>2024 Approved Top Ten Must-Watch VR Scenes on Youtube</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/how-to-configure-and-use-multi-desktop-environments-in-windows-11-efficiently/"><u>How to Configure and Use Multi-Desktop Environments in Windows 11 Efficiently</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-sharefake-gps-on-uber-for-lava-yuva-3-pro-drfone-by-drfone-virtual-android/"><u>How to share/fake gps on Uber for Lava Yuva 3 Pro | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-times-own-tutorial-swiftly-reverse-iphone-videos/"><u>In 2024, Time's Own Tutorial Swiftly Reverse iPhone Videos</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/top-videoplayer-fur-avi-dateien-kostenlos-herunterladen-unter-macos-und-windows-10/"><u>Top-Videoplayer Für AVI-Dateien Kostenlos Herunterladen Unter macOS Und Windows 10</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/why-is-ipogo-not-working-on-lava-blaze-curve-5g-fixed-drfone-by-drfone-virtual-android/"><u>Why is iPogo not working On Lava Blaze Curve 5G? Fixed | Dr.fone</u></a></li>
+</ul></div>
 

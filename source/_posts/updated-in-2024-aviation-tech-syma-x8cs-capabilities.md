@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Aviation Tech  Syma X8C's Capabilities\""
-date: 2024-09-14T16:15:19.656Z
-updated: 2024-09-15T16:50:47.236Z
+date: 2024-10-03T01:05:00.551Z
+updated: 2024-10-07T05:37:48.611Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/35db44591f3dcbc09fec63cf1897abe760727c167
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2027195/19272" target="_top" id="2027195">
+  <img src="//a.impactradius-go.com/display-ad/19272-2027195" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2027195/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -77,6 +84,13 @@ thumbnail: https://thmb.techidaily.com/35db44591f3dcbc09fec63cf1897abe760727c167
 #### 2\.  Design
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
@@ -100,6 +114,13 @@ thumbnail: https://thmb.techidaily.com/35db44591f3dcbc09fec63cf1897abe760727c167
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
+  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
 
 ## Conclusion
@@ -107,6 +128,13 @@ thumbnail: https://thmb.techidaily.com/35db44591f3dcbc09fec63cf1897abe760727c167
  By considering all above factors, we must say that Syma X8C is a well designed drone unit that can serve with much better results as an entry level aerial shoot recorder. As the price tag keeps it below $100 range so beginners find it most affordable for their learning needs and the gimbal protection leads to highly stable footage that can be shared on social media sites to impress friends. The control mechanisms is rated as highly responsive so will all these satisfactory features it becomes a must buy product for your air flight adventures.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -131,12 +159,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134498/18498" target="_top" id="2134498">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134498" border="0" alt="https://techidaily.com" width="720" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134498/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-interactive-image-merging-for-desktop-enthusiasts/"><u>[New] Interactive Image Merging for Desktop Enthusiasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-perfecting-motion-capture-in-a-canon-lens/"><u>[New] Perfecting Motion Capture in a Canon Lens</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-transforming-ideas-into-reality-best-6-nft-services-explored-for-2024/"><u>[New] Transforming Ideas Into Reality Best 6 NFT Services Explored for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-2024-approved-efficient-ad-elimination-select-7-android-adblockers/"><u>[Updated] 2024 Approved Efficient Ad Elimination Select 7 Android AdBlockers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elevate-your-media-creation-skills-with-windows-11-tips/"><u>[Updated] Elevate Your Media Creation Skills with Windows 11 Tips</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-drones-unveiled-a-comprehensive-buyers-preparation-plan/"><u>[Updated] In 2024, Drones Unveiled A Comprehensive Buyer’s Preparation Plan</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/digital-jest-dynamics-by-ai-potential-for-laughter/"><u>Digital Jest Dynamics by AI: Potential for Laughter?</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/how-to-access-your-iphone-6s-when-you-forget-the-passcode-by-drfone-ios/"><u>How to Access Your iPhone 6s When You Forget the Passcode?</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-samsung-galaxy-a15-5g-get-deleted-pictures-back-with-ease-and-safety-by-fonelab-android-recover-pictures/"><u>How to Samsung Galaxy A15 5G Get Deleted Pictures Back with Ease and Safety?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/hp-dreamcolor-z32x-4k-monitor-review/"><u>HP-DREAMCOLOR Z32X 4K Monitor Review</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-10-fake-gps-location-apps-on-android-of-your-realme-10t-5g-drfone-by-drfone-virtual/"><u>In 2024, 10 Fake GPS Location Apps on Android Of your Realme 10T 5G | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-can-samsung-galaxy-a14-4gmirror-share-to-pc-drfone-by-drfone-android/"><u>In 2024, How Can Samsung Galaxy A14 4GMirror Share to PC? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-srt-from-basics-to-cutting-edge-techniques/"><u>In 2024, SRT From Basics to Cutting-Edge Techniques</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/power-play-uncovering-the-excellence-of-ibuypower-y60s-premium-gaming-experience/"><u>Power Play: Uncovering the Excellence of iBuyPower Y60's Premium Gaming Experience</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/readying-for-revolutionary-tools-in-diy-crafts/"><u>Readying for Revolutionary Tools in DIY Crafts</u></a></li>
+</ul></div>
 

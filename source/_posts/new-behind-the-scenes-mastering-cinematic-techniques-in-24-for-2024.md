@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Behind the Scenes  Mastering Cinematic Techniques in '24 for 2024\""
-date: 2024-09-15T21:50:09.128Z
-updated: 2024-09-20T23:44:57.209Z
+date: 2024-10-01T20:20:31.291Z
+updated: 2024-10-06T20:55:31.116Z
 tags: 
   - screen-recording
   - ai video
@@ -63,6 +63,26 @@ Alright! Let's check out how it looks in the video below.
 
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557746/17382" target="_top" id="1557746">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557746" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557746/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### DIY Light Flag
 
 Black color does not reflect light, so a black fabric can be used to make a DIY Light Flag. Here is a step-by-step guide to creating a light flag at home.
@@ -82,10 +102,10 @@ Let us see how it looks;
 ![diy light flag](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-flag.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037356/7443" target="_top" id="2037356">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037356" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037356/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### DIY Black Wrap
@@ -129,10 +149,16 @@ There is a GIF attached below to understand the steps visually.
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 3\. DIY Light Diffuser
@@ -157,6 +183,20 @@ For a better understanding of the steps, watch the GIF attached below.
 
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1925473/19272" target="_top" id="1925473">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925473" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925473/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2080312/19272" target="_top" id="2080312">
+  <img src="//a.impactradius-go.com/display-ad/19272-2080312" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080312/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tip 4\. Reveal Movement and 180° Presentation
 
 The most commonly used cinematic movements are the reveal and 180° presentation movements. A gimbal is needed to record these movements.
@@ -179,13 +219,6 @@ Here is a video showing how to record reveal movement.
 
 ![reveal movement](https://images.wondershare.com/filmora/article-images/2022/12/reveal-movement.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 180° Presentation Movement
 
 This Movement gives the subject a general look and displays more details of the surroundings and the subject.
@@ -203,6 +236,13 @@ Step 3 Move slowly to the other side of the subject while recording.
 A sample video attached below shows how to record 180 presentation movements.
 
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151890/7443" target="_top" id="2151890">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151890" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151890/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Tip 5\. Create a Barrel Roll Shot
 
@@ -223,20 +263,6 @@ Step 4 Turn on the power drill at low speed and record the barrel roll shot.
 The video attached below will help you to understand these steps.
 
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130529/26400" target="_top" id="2130529">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130529/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -272,5 +298,19 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-step-by-step-placing-titles-on-video-clips-with-windows-photos/"><u>[New] In 2024, Step-by-Step Placing Titles on Video Clips with Windows Photos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-quick-quip-cinema-script/"><u>[New] Quick Quip Cinema Script</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-secrets-to-gaining-traction-for-your-fb-page-for-2024/"><u>[New] Secrets to Gaining Traction for Your FB Page for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-unveiling-the-secret-acquiring-twitter-gifs-effortlessly-on-pc/"><u>[Updated] 2024 Approved Unveiling the Secret Acquiring Twitter GIFs Effortlessly on PC</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-advanced-zooming-practices-in-microsoft-teams-for-2024/"><u>[Updated] Advanced Zooming Practices in Microsoft Teams for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-science-of-video-sizing-by-imovie/"><u>[Updated] In 2024, The Science of Video Sizing by iMovie</u></a></li>
+<li><a href="https://solve-outstanding.techidaily.com/a-legjobb-2d-animationos-kezelo-softverek-11-pda-berles-nelkul-kotelezo-fizetese-nelkul/"><u>A Legjobb 2D Animationos Kezelő Softverek - 11 PDA: Bérlés Nélkül, Kötelező Fizetése Nélkül</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-infinix-note-30-vip-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Infinix Note 30 VIP</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/comparing-echo-pop-and-echo-dot-key-features-and-functionality/"><u>Comparing Echo Pop and Echo Dot: Key Features & Functionality</u></a></li>
+<li><a href="https://techidaily.com/how-to-hard-reset-vivo-y78plus-without-password-drfone-by-drfone-reset-android-reset-android/"><u>How to Hard Reset Vivo Y78+ Without Password | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/how-to-unlock-zte-axon-40-lite-phone-without-pin-by-drfone-android/"><u>How to Unlock ZTE Axon 40 Lite Phone without PIN</u></a></li>
+<li><a href="https://tiktok-video-files.techidaily.com/in-2024-co-singers-capturing-hearts-online/"><u>In 2024, Co-Singers Capturing Hearts Online</u></a></li>
+</ul></div>
 

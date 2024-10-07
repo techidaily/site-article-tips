@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Cutting-Edge Ways of Shooting with a Fisheye Lens\""
-date: 2024-09-28T07:41:30.094Z
-updated: 2024-10-01T16:24:15.745Z
+date: 2024-10-06T01:12:03.726Z
+updated: 2024-10-06T16:31:47.473Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,13 @@ thumbnail: https://thmb.techidaily.com/6f24909f969f84628da7cca908a8ecbcf1f131079
 
  The process of shooting panoramas with fisheye lenses involves a number of considerations and they are as follows-:
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037334/7443" target="_top" id="2037334">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037334" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037334/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1. The equipment and setup
 
  To shoot quality 360 degrees panoramas with fisheye, it is imperative to get the equipment as well as the set up right. Your equipment needs to be calibrated properly to make the stitching process nice and easy. To find the best setting for your equipment, the grid method is recommended on the panohead.
@@ -42,17 +49,17 @@ thumbnail: https://thmb.techidaily.com/6f24909f969f84628da7cca908a8ecbcf1f131079
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2144271/7443" target="_top" id="2144271">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144271" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144271/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137379/7443" target="_top" id="2137379">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137379" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137379/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2. Leveling and rotating
@@ -60,6 +67,13 @@ thumbnail: https://thmb.techidaily.com/6f24909f969f84628da7cca908a8ecbcf1f131079
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
 
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3. The actual shooting
 
@@ -73,13 +87,6 @@ thumbnail: https://thmb.techidaily.com/6f24909f969f84628da7cca908a8ecbcf1f131079
 
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -87,13 +94,6 @@ thumbnail: https://thmb.techidaily.com/6f24909f969f84628da7cca908a8ecbcf1f131079
  You might be also interested in:
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## What's fisheye lenses
 
@@ -136,16 +136,24 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-top-6-translation-devices-for-media-files/"><u>[New] Top 6 Translation Devices for Media Files</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-top-8-mobile-tools-transforming-slow-mo-to-fast-forward/"><u>[Updated] 2024 Approved Top 8 Mobile Tools Transforming Slow Mo to Fast-Forward</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-smooth-screenshots-selecting-the-ultimate-handheld-stabilizer/"><u>[Updated] Smooth Screenshots Selecting the Ultimate Handheld Stabilizer</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-strategizing-effective-movie-sneak-peeks/"><u>2024 Approved Strategizing Effective Movie Sneak Peeks</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/diy-fixes-handling-the-remote-procedure-call-server-unavailable-glitch-in-windows/"><u>DIY Fixes: Handling the 'Remote Procedure Call' Server Unavailable Glitch in Windows</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-apple-iphone-7-without-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock Apple iPhone 7 Without Passcode? | Dr.fone</u></a></li>
-<li><a href="https://techtrends.techidaily.com/navigating-through-apples-operating-system-updates-an-ultimate-macos-compendium/"><u>Navigating Through Apple's Operating System Updates: An Ultimate macOS Compendium</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/splitcam-examination-camera-quality-showdown-in-2024/"><u>SplitCam Examination - Camera Quality Showdown, In 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-ultimate-guide-to-mp4-devices/"><u>The Ultimate Guide to MP4 Devices</u></a></li>
-<li><a href="https://fox-sys.techidaily.com/top-security-pick-the-safest-web-browsing-software-in-2020-discover-malwarefox/"><u>Top Security Pick: The Safest Web Browsing Software in 2020 – Discover MalwareFox!</u></a></li>
-<li><a href="https://dvd-bd.techidaily.com/transformez-rapidement-les-videos-et-audio-avec-winxvideo-ai-acceleration-gpu-pour-toute-conversion-de-fichiers/"><u>Transformez Rapidement Les Vidéos Et Audio Avec WinxVideo AI : Accélération GPU Pour Toute Conversion De Fichiers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-bypassing-youtube-previews-the-invisible-button-hack-for-2024/"><u>[New] Bypassing YouTube Previews The Invisible Button Hack for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exploring-free-animation-methods-onlineoffline-for-2024/"><u>[New] Exploring Free Animation Methods Online/Offline for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unlock-limitless-space-choose-from-top-20-free-cloud-providers/"><u>[New] In 2024, Unlock Limitless Space Choose From Top 20 Free Cloud Providers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-photoshops-handy-hacks-for-horizontal-and-vertical-warping/"><u>[New] Photoshop's Handy Hacks for Horizontal and Vertical Warping</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-revolutionizing-content-with-360-degree-footage-for-2024/"><u>[New] Revolutionizing Content with 360-Degree Footage for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-hero-session-evolution-four-to-five-for-2024/"><u>[Updated] Hero Session Evolution Four to Five for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-insta-meets-tiktok-connectors-handbook/"><u>[Updated] Insta Meets TikTok Connector's Handbook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-nostalgic-notions-integrating-timeless-vhs-effects-into-modern-video-production/"><u>[Updated] Nostalgic Notions Integrating Timeless VHS Effects Into Modern Video Production</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-transformative-tiktok-techniques-unveiled/"><u>[Updated] Transformative TikTok Techniques Unveiled</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/analyzing-the-sound-performance-of-oladance-ows-sports-in-ear-headphones-reviewed-for-google-searches/"><u>Analyzing the Sound Performance of Oladance OWS Sports In-Ear Headphones Reviewed for Google Searches</u></a></li>
+<li><a href="https://hardware-reviews.techidaily.com/discover-the-power-an-experts-take-on-the-value-packed-gigabyte-b760m-ds3h-ax-motherboard-for-multi-screen-enthusiasts/"><u>Discover the Power: An Expert's Take on the Value-Packed Gigabyte B760M DS3H AX Motherboard for Multi-Screen Enthusiasts</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/in-2024-cutting-edge-strategies-for-recording-slideshows/"><u>In 2024, Cutting-Edge Strategies for Recording Slideshows</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-bypass-icloud-by-checkra1n-even-on-apple-iphone-15-if-youve-tried-everything-by-drfone-ios/"><u>In 2024, How To Bypass iCloud By Checkra1n Even On Apple iPhone 15 If Youve Tried Everything</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fix-samsung-galaxy-a14-5g-find-my-friends-no-location-found-drfone-by-drfone-virtual-android/"><u>In 2024, How to Fix Samsung Galaxy A14 5G Find My Friends No Location Found? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-photos-from-motorola-moto-g73-5g-to-samsung-galaxy-s21-ultra-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Photos From Motorola Moto G73 5G to Samsung Galaxy S21 Ultra | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/no-cost-wmv-file-transformation-services-available-online-with-movavis-help/"><u>No-Cost WMV File Transformation Services Available Online with Movavi's Help</u></a></li>
+<li><a href="https://review-topics.techidaily.com/recover-your-pictures-after-find-n3-flip-has-been-deleted-by-fonelab-android-recover-pictures/"><u>Recover your pictures after Find N3 Flip has been deleted.</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/revive-freezing-mobile-videos-in-chrome-and-firefox/"><u>Revive Freezing Mobile Videos in Chrome and Firefox</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/the-corporate-revolution-how-accessing-chatgpt-and-whisper-apis-can-boost-your-company/"><u>The Corporate Revolution: How Accessing ChatGPT and Whisper APIs Can Boost Your Company</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Isolating Subject with Affinity"
-date: 2024-09-12T17:00:51.990Z
-updated: 2024-09-15T17:25:58.627Z
+date: 2024-10-05T04:51:14.956Z
+updated: 2024-10-07T06:50:35.841Z
 tags: 
   - screen-recording
   - ai video
@@ -57,6 +57,13 @@ Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** 
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
 Now, hit **"Control+D"** to deselect the selection. Alternatively, you can click **"Select"** in the top toolbar and choose the **"Deselect"** option. Finally, you can export your file using the **"File" > "Export"** option.
@@ -91,10 +98,10 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115913/19272" target="_top" id="2115913">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115913" border="0" alt="https://techidaily.com" width="180" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1918666/19272" target="_top" id="1918666">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918666" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115913/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918666/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Best Alternative of Affinity Photo
@@ -120,6 +127,13 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135414/19272" target="_top" id="2135414">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135414" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135414/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -140,16 +154,16 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
 <!-- affiliate ads begin -->
-<span id="1743243">
-					<video width="200" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1743243.png"
+<span id="1975555">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975555.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/19272-1743243">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1743243.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975555">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975555.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Faligracehair.sjv.io%2Fc%2F5597632%2F1743243%2F19272'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975555%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1743243/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975555/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
@@ -167,6 +181,19 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
+
+<!-- affiliate ads begin -->
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -200,5 +227,18 @@ Hopefully, this article and video can help you create ideal images!
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-starting-with-green-magic-an-in-depth-guide-to-the-filmmakers-color-technique/"><u>[New] In 2024, Starting with Green Magic An In-Depth Guide to the Filmmaker’s Color Technique</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-advanced-guide-to-virtual-backgrounds-in-videography/"><u>[Updated] Advanced Guide to Virtual Backgrounds in Videography</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-free-tools-to-master-voice-manipulation-and-sound-design-for-2024/"><u>[Updated] Free Tools to Master Voice Manipulation and Sound Design for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-h501x4-fpv-quadcopter-unveiled-review-breakdown/"><u>[Updated] H501X4 FPV Quadcopter Unveiled - Review Breakdown</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-cross-service-song-matching-sharing-your-musical-journey/"><u>[Updated] In 2024, Cross-Service Song Matching Sharing Your Musical Journey</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-pick-of-the-crop-dji-action-vs-gopro-360-and-instax360/"><u>2024 Approved Pick of the Crop DJi Action Vs. GoPro 360 and InstaX360</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/from-ideas-to-impressions-writing-with-ais-insight/"><u>From Ideas to Impressions: Writing with AI's Insight</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-c51-to-blackberry-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme C51 to BlackBerry | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/secure-hassle-free-passport-images-top-10-choices-for-2024/"><u>Secure, Hassle-Free Passport Images - Top 10 Choices for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/sonys-vision-for-immersive-video-exploring-xperia-xz-premium/"><u>Sony's Vision for Immersive Video Exploring Xperia XZ Premium</u></a></li>
+<li><a href="https://sound-optimizing.techidaily.com/updated-locate-the-ringing-bell-audio-sample-for-2024/"><u>Updated Locate the Ringing Bell Audio Sample for 2024</u></a></li>
+</ul></div>
 

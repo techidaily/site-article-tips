@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Preserve Your Legacy  Transforming Older Images Into Modern Videos\""
-date: 2024-09-13T18:20:47.720Z
-updated: 2024-09-20T20:03:32.803Z
+date: 2024-10-01T01:43:46.748Z
+updated: 2024-10-07T05:49:13.946Z
 tags: 
   - screen-recording
   - ai video
@@ -103,6 +103,13 @@ Just above the timeline, you can find all kinds of tools to edit your video. For
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2100529/7443" target="_top" id="2100529">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100529" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
 #### 4\. Add effects, transitions, audio, and more
@@ -111,9 +118,23 @@ As stated above, you can find a wide range of video editing options to explore i
 
 ![Add Effects to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-effects-to-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135363/19272" target="_top" id="2135363">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135363" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135363/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To add text to your videos, just go to the “Titles” option here. This will let you select a text effect, letting you add the content of your choice.
 
 ![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2130885/7443" target="_top" id="2130885">
+  <img src="//a.impactradius-go.com/display-ad/7443-2130885" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130885/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
@@ -159,6 +180,13 @@ There you go! I’m sure that after reading this guide, you would be able to dig
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137224/26400" target="_top" id="2137224">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137224" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137224/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -182,12 +210,16 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484909/16446" target="_top" id="1484909">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484909" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484909/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-capture.techidaily.com/new-2024-approved-enhance-your-binge-watch-list-with-these-six-mac-methods-for-netflix-recording/"><u>[New] 2024 Approved Enhance Your Binge-Watch List with These Six Mac Methods for Netflix Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-enhance-your-video-understanding-windows-hdr/"><u>[New] 2024 Approved Enhance Your Video Understanding Windows HDR</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-zero-tolerance-for-background-distractions-editing-tutorial-on-photopea-for-2024/"><u>[New] Zero Tolerance for Background Distractions Editing Tutorial on Photopea for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-10-tips-for-teachers-creating-a-youtube-channel/"><u>[Updated] 10 Tips for Teachers Creating a YouTube Channel</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-maximizing-gopros-charged-time-span/"><u>[Updated] 2024 Approved Maximizing GoPro's Charged Time Span</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-fine-tune-focus-effective-minecraft-zooming-strategies-for-2024/"><u>[Updated] Fine-Tune Focus Effective Minecraft Zooming Strategies for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-highlighted-14-examples-of-motion-texts/"><u>[Updated] Highlighted 14 Examples of Motion Texts</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-master-iphone-cinematography-top-8-tips-for-professional-video-shooting-for-2024/"><u>[Updated] Master iPhone Cinematography Top 8 Tips for Professional Video Shooting for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/in-2024-unlocking-flawless-youtube-twitplay/"><u>In 2024, Unlocking Flawless YouTube Twitplay</u></a></li>
+</ul></div>
 

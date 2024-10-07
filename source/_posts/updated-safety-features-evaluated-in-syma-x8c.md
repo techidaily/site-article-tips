@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Safety Features Evaluated in Syma X8C"
-date: 2024-09-13T18:03:02.919Z
-updated: 2024-09-20T18:12:14.054Z
+date: 2024-10-05T23:51:48.840Z
+updated: 2024-10-07T03:03:41.857Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ thumbnail: https://thmb.techidaily.com/63dab56e4ce75698d2495662d618f28dc10e8ea57
 
  There are loads of pros as well as cons related Syma H8C device but they appear different to various kinds of users. Professionals may be worried about its camera quality whereas beginners will find its controls little complex. But in case if you need something at low price with all acceptable features then Syma H8C is really a good choice for your needs.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134495/18498" target="_top" id="2134495">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134495" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134495/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Complete Review
 
 #### 1. Basic Specs Info
@@ -78,6 +85,13 @@ thumbnail: https://thmb.techidaily.com/63dab56e4ce75698d2495662d618f28dc10e8ea57
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087248/19272" target="_top" id="2087248">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087248" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087248/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -94,6 +108,13 @@ thumbnail: https://thmb.techidaily.com/63dab56e4ce75698d2495662d618f28dc10e8ea57
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135394/19272" target="_top" id="2135394">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135394" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135394/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
@@ -101,6 +122,13 @@ thumbnail: https://thmb.techidaily.com/63dab56e4ce75698d2495662d618f28dc10e8ea57
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137222/26400" target="_top" id="2137222">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137222" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137222/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -131,12 +159,19 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918661/19272" target="_top" id="1918661">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918661" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918661/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-navigating-adobe-cloud-insights-and-best-non-adobe-choices/"><u>[New] 2024 Approved Navigating Adobe Cloud, Insights & Best Non-Adobe Choices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-best-10-virtual-world-games-on-ios-and-android/"><u>[New] Best 10 Virtual World Games on iOS & Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-cutting-edge-cosmetics-insights/"><u>[New] Cutting-Edge Cosmetics Insights</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/new-effortless-sound-sourcing-the-top-15-freebie-audiosites/"><u>[New] Effortless Sound Sourcing The Top 15 Freebie Audiosites</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-step-by-step-guide-mastering-creative-effects-in-online-zoom-sessions/"><u>[Updated] 2024 Approved Step-by-Step Guide Mastering Creative Effects in Online Zoom Sessions</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-direct-guide-saving-twitter-videos-on-your-mobile-device-for-2024/"><u>[Updated] Direct Guide Saving Twitter Videos on Your Mobile Device for 2024</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/a-complete-guide-to-oem-unlocking-on-honor-90-lite-by-drfone-android/"><u>A Complete Guide To OEM Unlocking on Honor 90 Lite</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-nokia-g310-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Nokia G310 | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-a-beginners-guide-the-essentials-of-using-tiktok-macos/"><u>In 2024, A Beginner's Guide The Essentials of Using TikTok (macOS)</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/in-2024-on-demand-broadcasts-a-guide-to-efficient-recording/"><u>In 2024, On-Demand Broadcasts A Guide to Efficient Recording</u></a></li>
+<li><a href="https://win-able.techidaily.com/overcoming-the-hurdles-of-an-atomic-heart-malfunction-at-startup/"><u>Overcoming The Hurdles of An Atomic Heart Malfunction at Startup</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premier-no-8-digital-composers-kit-for-2024/"><u>Premier No. 8 Digital Composer's Kit for 2024</u></a></li>
+</ul></div>
 

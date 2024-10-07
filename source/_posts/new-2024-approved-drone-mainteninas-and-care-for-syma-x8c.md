@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Drone Mainteninas and Care for Syma X8C\""
-date: 2024-09-16T20:03:59.657Z
-updated: 2024-09-20T21:28:56.070Z
+date: 2024-10-03T10:45:39.862Z
+updated: 2024-10-07T04:53:05.022Z
 tags: 
   - screen-recording
   - ai video
@@ -78,6 +78,13 @@ thumbnail: https://thmb.techidaily.com/35eb7ec70c3d68bdd6223aba9efbf03bc030e84e6
 
 ![syma vs phantom design](https://images.wondershare.com/filmora/article-images/syma-vs-phantom-design.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105877/7443" target="_top" id="2105877">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105877" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105877/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  If we consider the appearance then it looks close to the Phantom drone but no doubt to say that few variations exists and they make it unique. The overall dimension of this drone unit is 20x20x6.5 whereas maximum weight goes up to 450 grams thus it cannot be called as a tiny drone. When weighted with camera and prop guards, then this unit has overall weight of 600 grams. This dimension and weight makes this drone much stable in air.
 
  This device can also be used without propeller guards because they do not have much role to play in its flights but the added benefit is that removal of prop guards leads to reduced weight and hence flight time gets little improved. The overall length of propeller is about 9” and they are designed of very high quality material.
@@ -94,13 +101,34 @@ thumbnail: https://thmb.techidaily.com/35eb7ec70c3d68bdd6223aba9efbf03bc030e84e6
 
 ![syma x8c controller](https://images.wondershare.com/filmora/article-images/syma-x8c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049364/7443" target="_top" id="2049364">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049364" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049364/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Controller or the transmitter of X8C device is small enough that fits perfectly in user’s hands. Construction is completed with ABS plastic material that leads to light weight structure and this controller makes use of 2.4GHz frequency band to send control signals towards drone in air. The best thing to know about Syma X8C is that it can cover the 100 meter range impressively.
 
 #### 6\.  Camera
 
 ![syma x8c camera](https://images.wondershare.com/filmora/article-images/syma-x8c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151888/7443" target="_top" id="2151888">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151888" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151888/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  A drone cannot be complete without a camera mounted on its top; hence Syma has taken care of users need and they developed Syma X8C with a camera that can record everything in air. Although, it is not able to collect video information with HD quality but you will be glad to know that it is detachable and one can also make additional adjustments over its angles to adjust focus. All the recorded videos are stored inside a 4GB MicroSD card. Further, the attached gimbal assists in much stable footage.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2112007/7443" target="_top" id="2112007">
+  <img src="//a.impactradius-go.com/display-ad/7443-2112007" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2112007/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -131,12 +159,18 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-a-stepwise-journey-through-the-world-of-professional-srt-creation/"><u>[Updated] In 2024, A Stepwise Journey Through the World of Professional SRT Creation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-lightroom-guide-blending-high-dynamic-range-magic/"><u>[Updated] In 2024, Lightroom Guide Blending High Dynamic Range Magic</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-tecno-pop-8-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Tecno Pop 8? | Dr.fone</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/how-and-where-to-find-a-shiny-stone-pokemon-for-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>How and Where to Find a Shiny Stone Pokémon For OnePlus Nord N30 SE? | Dr.fone</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-5-traps-for-newbies-in-online-advertising-how-to-evade-them/"><u>In 2024, 5 Traps for Newbies in Online Advertising – How to Evade Them</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-understanding-youtube-revenue-models-today/"><u>In 2024, Understanding YouTube Revenue Models Today</u></a></li>
+<li><a href="https://article-tips.techidaily.com/navigating-whatsapps-depths-tricks-you-need-to-know/"><u>Navigating WhatsApp's Depths Tricks You Need to Know</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/overview-of-the-best-xiaomi-redmi-12-screen-mirroring-app-drfone-by-drfone-android/"><u>Overview of the Best Xiaomi Redmi 12 Screen Mirroring App | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/pioneering-your-way-up-on-youtube-26-key-strategies-for-2024/"><u>Pioneering Your Way Up on YouTube 26 Key Strategies for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/sketch-funny-graphics-to-share-giphy-wide/"><u>Sketch Funny Graphics to Share Giphy-Wide</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/syncing-sound-with-visuals-on-facebook-essential-guide/"><u>Syncing Sound with Visuals on Facebook - Essential Guide</u></a></li>
+</ul></div>
 

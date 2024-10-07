@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Enhancing Image Memory with Precise Dates"
-date: 2024-09-11T18:07:24.458Z
-updated: 2024-09-15T17:38:46.751Z
+date: 2024-10-04T22:17:41.755Z
+updated: 2024-10-06T19:54:23.889Z
 tags: 
   - screen-recording
   - ai video
@@ -163,6 +163,13 @@ The app is available for [Android](https://play.google.com/store/apps/details?id
 
 Mac and windows have free image editing programs that allow you to copy an image from its source, paste it into the editor, crop it, resize it, and then save it. First, let's look at how to **edit a photo on a Mac.**
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997680/19272" target="_top" id="1997680">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997680" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997680/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use the inbuilt photo on Mac to edit the photo
 
 Drag and drop your image onto the app window after launching the built-in Images app from your dock or **Finder > Applications** to begin editing photos on your Mac.
@@ -181,13 +188,6 @@ You can make your photos sharper by simply navigating to the bottom of the Modif
 
 ![sharpen your images](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3Adjust lighting and exposure
 
 When retouching your image in the Photos app, select the Adjust tab, then drag the thumb along the Lights slider to make the necessary adjustments.
@@ -195,16 +195,16 @@ When retouching your image in the Photos app, select the Adjust tab, then drag t
 ![adjust lighting and exposure](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-7.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1977006">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977006.png"
+<span id="2135472">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/2135472.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977006">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977006.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/18498-2135472">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/2135472.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977006%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Funicoeye.pxf.io%2Fc%2F5597632%2F2135472%2F18498'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977006/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/2135472/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Use inbuilt photo app on mac to add date stamps
@@ -261,6 +261,13 @@ Step5Enter the date you want.
 
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step6Select Menu in the upper-left corner.
 
 ![select menu](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-17.jpg)
@@ -268,6 +275,13 @@ Step6Select Menu in the upper-left corner.
 Step7Proceed to click on the Save option.
 
 ![click on save option](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-18.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135418/19272" target="_top" id="2135418">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135418" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135418/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Edit Photos Online to add date stamps
 
@@ -370,6 +384,13 @@ Step4Go back and take a picture to verify if it works.
 
 Step5You should note that the time stamp option could also appear as Watermark.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Use the inbuilt photo app to edit photos on Android and iPhone
 
 You can edit photos on Android and iOS devices. Click your phone's default camera to edit photos on both platforms.
@@ -424,13 +445,6 @@ The Adobe Photoshop Lightroom is a cloud-based product where you can upload and 
 
 You can download the app on [android](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&gl=US)and [iPhone](https://apps.apple.com/us/app/lightroom-photo-video-editor/id878783582) for free.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### **VSCO**
 
 VSCO is another editing app you can use for your photo editing. VSCO has an easy-to-use UI and many useful functions. The enormous filter library, which can be used to improve your photographs and make them shareable, is its best feature.
@@ -451,6 +465,13 @@ The app is available for [Android](https://play.google.com/store/apps/details?id
 ## Part 3\. Edit Photos and Add Date Stamps On The Computer
 
 Mac and windows have free image editing programs that allow you to copy an image from its source, paste it into the editor, crop it, resize it, and then save it. First, let's look at how to **edit a photo on a Mac.**
+
+<!-- affiliate ads begin -->
+<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
+  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Use the inbuilt photo on Mac to edit the photo
 
@@ -494,6 +515,13 @@ Step4Proceed to add date and time into the text area manually.
 
 ![add data and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-10.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135369/19272" target="_top" id="2135369">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135369" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135369/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step5When ready, drag and slide the date to the area of the image where you wish to stamp it.
 
 ![place the date and time](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-11.jpg)
@@ -530,13 +558,6 @@ Step5Enter the date you want.
 
 ![enter date](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-16.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139115/17108" target="_top" id="2139115">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139115" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139115/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step6Select Menu in the upper-left corner.
 
 ![select menu](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-17.jpg)
@@ -545,16 +566,16 @@ Step7Proceed to click on the Save option.
 
 ![click on save option](https://images.wondershare.com/filmora/article-images/2022/07/add-the-data-to-photo-18.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 4\. Edit Photos Online to add date stamps
 
 **You can add dates to photos online** via several platforms. Several websites make that possible. Let’s look at some of the platforms and the features they provide.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118314/7443" target="_top" id="2118314">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118314" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118314/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. [Canva](https://www.canva.com/photo-editor/)
 
@@ -623,5 +644,20 @@ Hopefully, these steps will be helpful if you ever want to **add a date** or **e
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://visual-screen-recording.techidaily.com/new-2024-approved-cross-monitors-data-synthesis/"><u>[New] 2024 Approved Cross-Monitors Data Synthesis</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-how-to-turn-a-tiktok-sound-into-your-ringtone-a-detailed-guidance/"><u>[New] How To Turn A TikTok Sound Into Your Ringtone? A Detailed Guidance</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-optimal-free-cam-viewer-with-snatch-feature/"><u>[New] Optimal Free Cam Viewer with Snatch Feature</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-explore-the-excitement-of-high-speed-photography-with-iphone/"><u>[Updated] Explore the Excitement of High-Speed Photography with iPhone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/a-list-of-the-best-8-sites-for-free-3d-text-psd-downloads-for-2024/"><u>A List of the Best 8 Sites for Free 3D Text PSD Downloads for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/crafting-compact-comforts-essential-mc-abodes-for-beginners/"><u>Crafting Compact Comforts Essential MC Abodes for Beginners</u></a></li>
+<li><a href="https://discover-guides.techidaily.com/free-conversion-techniques-transforming-webm-files-into-mp3-audio-on-any-device/"><u>Free Conversion Techniques: Transforming WEBM Files Into MP3 Audio on Any Device</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-transfer-contacts-from-honor-magic-5-pro-to-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Contacts from Honor Magic 5 Pro To Phone | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-building-blocks-to-successful-video-editing-on-windows-8/"><u>In 2024, Building Blocks to Successful Video Editing on Windows 8</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-how-to-record-lol-gameplay3-methods/"><u>In 2024, How To Record LOL Gameplay?(3 Methods)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-ultimate-method-for-making-tiktok-audio-your-ringtone/"><u>In 2024, The Ultimate Method for Making TikTok Audio Your Ringtone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/join-and-mix-spotify-plays-like-a-pro-your-step-by-step-guide/"><u>Join and Mix Spotify Plays Like a Pro – Your Step-by-Step Guide</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-cut-trim-and-edit-the-best-free-and-paid-android-video-editors-for-2024/"><u>Updated Cut, Trim, and Edit The Best Free and Paid Android Video Editors for 2024</u></a></li>
+</ul></div>
 

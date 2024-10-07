@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Ultimate Reddit Triumphs  Highly Upvoted Threads Compilation\""
-date: 2024-09-10T18:20:16.145Z
-updated: 2024-09-15T17:38:08.708Z
+date: 2024-10-05T02:25:02.175Z
+updated: 2024-10-07T03:32:11.832Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,19 @@ Here they are!
 
 ![chancellor palpatine the senate](https://images.wondershare.com/filmora/article-images/2023/01/the-senate.png)
 
+<!-- affiliate ads begin -->
+<span id="1542129">
+					<video width="864" height="1152" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1542129.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1542129">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1542129.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1542129%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1542129/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 When writing the article (Nov., 2022), this Reddit post features over 400k votes. 97% of those users Upvoted. This percentage made it the most upvoted Reddit post until another overtook it.
 
 (r/wallstreetbets)
@@ -68,6 +81,13 @@ It represents a fun and public meme of someone buying a billboard in New York. T
 
 $GME stands for GameStop's stock name. BRR represents printing money. The idea behind it - publicly displaying the astonishing soar of GameStop's stock at that time.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094422/7443" target="_top" id="2094422">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094422" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094422/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. [Rick Astley Rides a Bike (r/pics)](https://www.reddit.com/r/pics/comments/haucpf/ive%5Ffound%5Fa%5Ffew%5Ffunny%5Fmemories%5Fduring%5Flockdown/)
 
 ![rick astley rides a bike](https://images.wondershare.com/filmora/article-images/2023/01/rick-astley-old-photo.png)
@@ -75,6 +95,19 @@ $GME stands for GameStop's stock name. BRR represents printing money. The idea b
 Posted in 2020, this one currently has 438k votes with 99% Upvotes. It was posted by a famous user known on Reddit as[/u/ReallyRickAstley](https://www.reddit.com/user/ReallyRickAstley/).
 
 If you know the famous song "Never Gonna Give You Up, " you know who this is. Well, this is the Reddit account of the artist Rick Astley himself, taking over the platform with a photo of himself he found in 1989.
+
+<!-- affiliate ads begin -->
+<span id="1983551">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983551.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983551">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983551.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983551%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983551/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. [NYC Taxi Drivers Calendar (/r/funny)](https://www.reddit.com/r/funny/comments/7mjw12/my%5Fcab%5Fdriver%5Ftonight%5Fwas%5Fso%5Fexcited%5Fto%5Fshare/)
 
@@ -91,10 +124,10 @@ What's even more interesting is that the driver commented on this Reddit post, l
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135354/19272" target="_top" id="2135354">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135354" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135354/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Reddit gets most of its users inside its gaming communities. As a result, these can be some of the hottest topics with countless popular posts.
@@ -133,28 +166,29 @@ This is another most upvoted Reddit post that encouraged over 180k users to join
 
 It's a post with a title and a link to a site where anyone can join the battle. The goal - prevent Internet Service Providers from blocking apps and websites.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144308/7443" target="_top" id="2144308">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144308" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144308/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 9\. [Deangelo Juggles Balls for Real(/r/DunderMifflin)](https://www.reddit.com/r/DunderMifflin/comments/cec448/i%5Fwas%5Fwithout%5Finternet%5Ffor%5Fa%5Fwhile%5Fdecided%5Fto%5Fuse/)
 
 ![reddit post of deangelo juggling balls the office](https://images.wondershare.com/filmora/article-images/2023/01/deangelo-juggling-balls-on-the-office.png)
-
-<!-- affiliate ads begin -->
-<span id="1982462">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982462%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982462/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Millions of fans worldwide loved The Office with Steve Carell, a.k.a Michael Scott. One of the funniest moments was when Will Ferrell juggled imaginary balls in the Dunder Mifflin office.
 
 Well, a Reddit user made an edit of this clip and now it looks as if Will juggled four balls... then five.
 
 The post has a 98% upvote rate with 170k voters in total. The reason it's so popular is that The Office fans can't get enough of this show. Many say they never stop watching short clips of the show on Youtube and Reddit after finishing the entire series.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938682/19272" target="_top" id="1938682">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938682" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938682/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 10\. [Brave Soldier Buried Amongst His Devoted Troops (/r/todayilearned)](https://www.reddit.com/r/todayilearned/comments/7pbzcb/til%5Fafter%5Fcol%5Fshaw%5Fdied%5Fin%5Fbattle%5Fconfederates/)
 
@@ -221,16 +255,10 @@ If you know the famous song "Never Gonna Give You Up, " you know who this is. We
 ![nyc taxi driver calendar](https://images.wondershare.com/filmora/article-images/2023/01/new-york-taxi-driver.png)
 
 <!-- affiliate ads begin -->
-<span id="1975648">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975648.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975648">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975648%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975648/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2087395/7443" target="_top" id="2087395">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087395" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087395/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Another funny post in the official /r/funny subreddit itself. At this time, this one has 308k votes, 97% of which are Upvotes.
@@ -239,22 +267,16 @@ The image depicts the New York spirit as an excited cab driver shows off his cab
 
 What's even more interesting is that the driver commented on this Reddit post, letting everyone know that he also got the title "Mr. December" that year.
 
-<!-- affiliate ads begin -->
-<span id="1983474">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983474.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983474">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983474.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983474%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983474/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. [Showing a Game You Mastered to Someone You Care About (/r/gaming)](https://www.reddit.com/r/gaming/comments/ccr8c8/take%5Fyour%5Ftime%5Fyou%5Fgot%5Fthis/)
 
 ![showing a game you mastered reddit post](https://images.wondershare.com/filmora/article-images/2023/01/angry-gamer.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Reddit gets most of its users inside its gaming communities. As a result, these can be some of the hottest topics with countless popular posts.
 
@@ -267,13 +289,6 @@ You understand the pain if you've gone through something like this.
 ### 6\. [All News Anchors Say the Same Thing(/r/videos)](https://www.reddit.com/r/videos/comments/88ll08/this%5Fis%5Fwhat%5Fhappens%5Fwhen%5Fone%5Fcompany%5Fowns%5Fdozens/)
 
 ![all news anchors say the same thing reddit](https://images.wondershare.com/filmora/article-images/2023/01/news-anchors.png)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134242/18498" target="_top" id="2134242">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134242" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134242/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 293k users voted on this post, revealing what it looks like when a single company owns dozens of local news stations.
 
@@ -359,5 +374,24 @@ Whatever you decide to do, feel free to reflect on these posts and enjoy reading
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultrawide-uhd-dilemranc-which-monitor-wins/"><u>[New] 2024 Approved The Ultrawide-UHD Dilemranc Which Monitor Wins?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-data-size-and-time-coefficient-in-video-files-20mb/"><u>[New] Data Size and Time Coefficient in Video Files (20MB)</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-the-lexicon-of-persuasion-in-business-communication/"><u>[New] The Lexicon of Persuasion in Business Communication</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-packaging-perfection-strategies-for-stunning-first-touches/"><u>[Updated] 2024 Approved Packaging Perfection Strategies for Stunning First Touches</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-rhythmic-raptor-rumba/"><u>[Updated] 2024 Approved Rhythmic Raptor Rumba</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-fusing-images-online-and-desktop-harmoniously/"><u>[Updated] In 2024, Fusing Images Online & Desktop Harmoniously</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-post-vlc-era-unveiling-new-player-titans/"><u>[Updated] In 2024, Post-VLC Era Unveiling New Player Titans</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-standard-rgb-versus-srgb-standards/"><u>[Updated] In 2024, Standard Rgb Versus Srgb Standards</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1723007030954-chrome-stalling-or-freezing-on-windows-11-heres-how-to-smoothly-resolve-it/"><u>Chrome Stalling or Freezing on Windows 11? Here's How to Smoothly Resolve It!</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/complete-guide-to-adding-and-enjoying-the-boys-add-on-via-matrix-aio-on-kodi-platform/"><u>Complete Guide to Adding and Enjoying the Boys Add-On via Matrix AIO on Kodi Platform</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/discover-the-latest-innovative-functions-unveiled-for-googles-bard-at-io-2-groep-2023/"><u>Discover the Latest Innovative Functions Unveiled for Google's BARD at I/O 2 Groep 2023</u></a></li>
+<li><a href="https://article-helps.techidaily.com/discovering-your-perfectly-fitted-gopro-mount-6-and-above/"><u>Discovering Your Perfectly-Fitted GoPro Mount #6 and Above</u></a></li>
+<li><a href="https://article-tips.techidaily.com/high-impact-color-filters-expertly-curated-15-gopro-lut-picks/"><u>High-Impact Color Filters Expertly Curated 15 GoPro LUT Picks</u></a></li>
+<li><a href="https://techidaily.com/how-to-repair-ios-system-of-apple-iphone-8-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Repair iOS System of Apple iPhone 8? | Dr.fone</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/in-2024-where-to-stream-what-to-watch-twitchs-challenge-to-youtube/"><u>In 2024, Where To Stream, What to Watch? Twitch's Challenge to YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-subtitle-extraction-from-youtube-unveiling-three-steps-for-2024/"><u>Mastering Subtitle Extraction From YouTube Unveiling Three Steps for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/winx-dvd-ripper-and-winx-video-ai-online-sales-support-center-for-optimal-digital-conversion/"><u>Winx DVD Ripper & Winx Video AI - Online Sales Support Center for Optimal Digital Conversion</u></a></li>
+</ul></div>
 

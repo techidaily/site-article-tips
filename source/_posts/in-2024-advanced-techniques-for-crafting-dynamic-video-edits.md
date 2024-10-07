@@ -1,7 +1,7 @@
 ---
 title: "In 2024, Advanced Techniques for Crafting Dynamic Video Edits"
-date: 2024-09-14T16:05:55.957Z
-updated: 2024-09-20T18:11:23.026Z
+date: 2024-10-04T18:54:34.547Z
+updated: 2024-10-07T01:16:36.369Z
 tags: 
   - screen-recording
   - ai video
@@ -49,6 +49,13 @@ On the other hand, cutaways can show how different people react to what is being
 
 We'll examine the top 5 uses for B rolls across a variety of video genres and discuss how to implement them effectively in your own projects.
 
+<!-- affiliate ads begin -->
+<a href="https://electronicx.pxf.io/c/5597632/1166360/14483" target="_top" id="1166360">
+  <img src="//a.impactradius-go.com/display-ad/14483-1166360" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://electronicx.pxf.io/i/5597632/1166360/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Archival b roll footage
 
 Aerial B roll is the solution when you like to show your viewers where your film is being recorded or when you are changing locations and want them to know it. The plane takes off and lands in another city, and then shots of the city, its landmarks, its famous streets, etc. are shown. You have probably seen this type of B roll footage in movies and TV shows. These images aid in putting the viewer in the character's current location. Check out this collection of setting images from the Neighbors television series.
@@ -57,33 +64,33 @@ Aerial B roll is the solution when you like to show your viewers where your film
 
 Including archival material in your video allows your audience to experience a previously covered or historically significant story as it occurred. Look at this illustration from Netflix's 14 Peaks: Nothing Is Impossible, which was made utilizing old b roll film from the era to help the viewer connect with the narrative.
 
+<!-- affiliate ads begin -->
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137974/21526" target="_top" id="2137974">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137974" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137974/21526" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Storytelling b roll footage
 
 B roll footage can be used to tell a story that supports the narrative of your video. For example, in this video interview of Tom DeLonge, the speaker talks about living in a neighborhood. The B rolls show him driving around in his car, skateboarding on the street in the 90's. These add to the story the video creator wants to talk about not seeing people with a disability differently.
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134491/18498" target="_top" id="2134491">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134491" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134491/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 4\. Undirected b roll footage
 
 This particular kind of B roll film is captured without any direction being given to your character, as the name suggests. For the purposes of an interview video, for instance, these can be straightforward close-up views of your character's hands and facial expressions. On the other hand, while you're doing a documentary, you might record your subject participating in everyday activities.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 5\. Atmospheric b roll footage
 
 When you are sharing a narrative that has been told in the past or that has historical significance, incorporating archival material into your video gives your audience the opportunity to see the story as it occurred at the time. This is especially useful when you are discussing a narrative that has been experienced in the past or that has futuristic relevance.
 
 Have a look at the scenes from the episode "14 Peaks: Nothing Is Impossible" that can be found on Netflix. As a result of the use of archive film footage of b roll from the relevant time period in its production, the audience is able to connect with the narrative on a deeper level.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135375/19272" target="_top" id="2135375">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135375" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135375/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 6\. Pick-up shots
 
@@ -92,10 +99,10 @@ A pick-up is a tiny shot added to previously captured material. Re-shoots involv
 If flaws were discovered during primary photography, the directors could have requested another take. The producer and director should weigh the cost of rejoining cast and crew against the need for pick-ups or re-shoots to address storyline flaws (or worse) in the final edit.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135352/19272" target="_top" id="2135352">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135352" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135352/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 7\. A roll vs b roll
@@ -134,5 +141,18 @@ We sincerely hope that this post will be of use to you in making your films more
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://on-screen-recording.techidaily.com/new-2024-approved-upgrading-laptop-and-mobile-conferencing-with-background-changes/"><u>[New] 2024 Approved Upgrading Laptop & Mobile Conferencing With Background Changes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-transform-your-images-with-these-8-top-tier-tablet-editors/"><u>[Updated] In 2024, Transform Your Images with These 8 Top-Tier Tablet Editors</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-make-every-frame-count-a-list-of-the-hottest-50-video-reducing-apps-for-your-phone/"><u>[Updated] Make Every Frame Count A List of the Hottest 50 Video-Reducing Apps for Your Phone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/how-to-address-missing-xinput-13-dll-files-in-windows-systems/"><u>How to Address Missing XInput 1.3 DLL Files in Windows Systems</u></a></li>
+<li><a href="https://techidaily.com/how-to-update-or-downgrade-apple-iphone-7-without-data-loss-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Update or Downgrade Apple iPhone 7 Without Data Loss? | Dr.fone</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-getting-the-pokemon-go-gps-signal-not-found-11-error-in-vivo-s17-pro-drfone-by-drfone-virtual/"><u>In 2024, Getting the Pokemon Go GPS Signal Not Found 11 Error in Vivo S17 Pro | Dr.fone</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-can-i-unlock-my-apple-iphone-11-after-forgetting-my-pin-code-drfone-by-drfone-ios/"><u>In 2024, How Can I Unlock My Apple iPhone 11 After Forgetting my PIN Code? | Dr.fone</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-unfolding-the-world-on-iphone-perfect-fb-video-sharing/"><u>In 2024, Unfolding the World on iPhone Perfect FB Video Sharing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/step-by-step-methodology-for-video-filter-addition-on-tech-devices/"><u>Step-by-Step Methodology for Video Filter Addition on Tech Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/streamlining-media-files-from-xmltxt-to-srt-mastery-for-2024/"><u>Streamlining Media Files From XML/TXT to SRT Mastery for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ultimate-list-15-must-watch-unboxing-channels-for-2024/"><u>Ultimate List 15 Must-Watch Unboxing Channels for 2024</u></a></li>
+</ul></div>
 

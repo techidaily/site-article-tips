@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Behind the Magic  Cinematic Technique #1-5 Insights\""
-date: 2024-09-12T17:14:03.638Z
-updated: 2024-09-15T16:03:37.340Z
+date: 2024-10-03T18:15:52.851Z
+updated: 2024-10-07T05:45:08.567Z
 tags: 
   - screen-recording
   - ai video
@@ -45,6 +45,13 @@ Step 2 Now open and close the door to get smooth camera movement.
 
 Shaping light is a crucial component of filmmaking, requiring command over creating and guiding shadows. You need to focus the light on the subjects rather than the background. Use the following methods to focus light on the point of interest.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### DIY LED Panel
 
 You can create LED Panel at home to add light to a subject. Unfortunately, LED strips do not produce bright light when spread as a straight line. However, we can use cardboard and LED light strips to build a broader, more brilliant light. Follow the steps below to make DIY LED Panel.
@@ -64,10 +71,16 @@ Alright! Let's check out how it looks in the video below.
 ![diy led panel](https://images.wondershare.com/filmora/article-images/2022/12/diy-led-panel.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135367/19272" target="_top" id="2135367">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135367" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135367/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### DIY Light Flag
@@ -110,13 +123,6 @@ Here is a GIF attached for a better understanding of the steps.
 
 ![diy black wrap](https://images.wondershare.com/filmora/article-images/2022/12/diy-black-wrap.gif)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### DIY Light Reflector
 
 A reflector is a piece of glass or any reflective surface that can redirect light to a specific spot. For example, use aluminum foil to make a Light Reflector at your home.
@@ -136,10 +142,17 @@ There is a GIF attached below to understand the steps visually.
 ![diy light reflector](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-reflector.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2121335/18498" target="_top" id="2121335">
-  <img src="//a.impactradius-go.com/display-ad/18498-2121335" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://sentrypc.7eer.net/c/5597632/398455/3022" target="_top" id="398455">
+  <img src="//a.impactradius-go.com/display-ad/3022-398455" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2121335/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398455/3022" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 3\. DIY Light Diffuser
@@ -165,10 +178,10 @@ For a better understanding of the steps, watch the GIF attached below.
 ![diy light diffuser](https://images.wondershare.com/filmora/article-images/2022/12/diy-light-diffuser.gif)
 
 <!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123901/26106" target="_top" id="2123901">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123901" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123901/26106" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Tip 4\. Reveal Movement and 180° Presentation
@@ -211,6 +224,13 @@ A sample video attached below shows how to record 180 presentation movements.
 
 ![180 presentation movement](https://images.wondershare.com/filmora/article-images/2022/12/180-presentation-movement.gif)
 
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Tip 5\. Create a Barrel Roll Shot
 
 A barrel roll shot is one of the most advanced and creative camera movements. A gimbal is required to produce a Barrel roll shot. But you can use a power drill and your phone to record this Movement.
@@ -232,16 +252,10 @@ The video attached below will help you to understand these steps.
 ![barrel roll shot](https://images.wondershare.com/filmora/article-images/2022/12/barrel-roll-shot.gif)
 
 <!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Final Words
@@ -278,5 +292,20 @@ After filming the videos, edit them using [Wondershare Filmora](https://tools.te
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/updated-dynamic-distortions-for-compelling-image-narratives-for-2024/"><u>[Updated] Dynamic Distortions for Compelling Image Narratives for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-pros-cons-and-guide-to-utilizing-samsung-photo-editor/"><u>[Updated] In 2024, Pros, Con's, and Guide to Utilizing Samsung PHOTO EDITOR</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/2024-approved-from-basics-to-best-achieving-superior-sound-via-zoom-for-podcasting/"><u>2024 Approved From Basics to Best Achieving Superior Sound via Zoom for Podcasting</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/accuracy-at-hand-editing-tiktoks-personal-info/"><u>Accuracy at Hand Editing TikTok's Personal Info</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/battle-of-titans-thieye-t5-or-sjcam-s6-legend-for-2024/"><u>Battle of Titans Thieye T5 or SJCAM S6 Legend for 2024</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/code-masters-clash-determining-if-gemini-can-surpass-chatgpt-in-programming-excellence/"><u>Code Masters Clash: Determining if Gemini Can Surpass ChatGPT in Programming Excellence</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-realme-gt-neo-5-se-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Realme GT Neo 5 SE | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/guide-to-mirror-your-honor-magic-5-pro-to-other-android-devices-drfone-by-drfone-android/"><u>Guide to Mirror Your Honor Magic 5 Pro to Other Android devices | Dr.fone</u></a></li>
+<li><a href="https://extra-information.techidaily.com/in-2024-crafting-secrecy-in-images-with-photoshop/"><u>In 2024, Crafting Secrecy in Images with Photoshop</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-optimal-drone-cameras-film-and-snapshot-heroes-10/"><u>In 2024, Optimal Drone Cameras Film & Snapshot Heroes #10</u></a></li>
+<li><a href="https://games-able.techidaily.com/the-future-of-gaming-enhancing-controllers-remotely/"><u>The Future of Gaming: Enhancing Controllers Remotely</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-path-to-flawless-video-subtitles-via-internet-services-for-2024/"><u>The Ultimate Path to Flawless Video Subtitles via Internet Services for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshooting-guide-why-wont-my-iphone-alarm-ring/"><u>Troubleshooting Guide: Why Won't My iPhone Alarm Ring?</u></a></li>
+</ul></div>
 

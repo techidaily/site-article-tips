@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Analysis: The Smart, Steady Performance of Twelve South’s Compass Pro"
-date: 2024-09-26T01:57:27.634Z
-updated: 2024-10-02T07:18:22.189Z
+date: 2024-10-05T14:52:13.233Z
+updated: 2024-10-07T06:22:13.506Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Analysis: The Smart, Steady Performance of Twelve South’s Compass Pro"
@@ -42,9 +42,23 @@ Lifewire / Zach Sweat
 
 4.8
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Microsoft Xbox One Elite Series 2 Controller
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/JA4MI_SE7Alxl0MLR7rMoIVzKgI=/450x450/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/_hero_SQ_Xbox-One-Elite-Series-2-Controller-1-9039c64a27fa4dd3bac11330988d9c2f.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134494/18498" target="_top" id="2134494">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134494" border="0" alt="https://techidaily.com" width="721" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134494/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Lifewire / Zach Sweat
 
@@ -71,14 +85,14 @@ Lifewire / Zach Sweat
 
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/t8wI_yN2s_uIQ1leo87MmOnXxb4=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-5-0c39ec4e89eb45b094471681efec0e7d.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  Lifewire / Zach Sweat
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1884002/19272" target="_top" id="1884002">
+  <img src="//a.impactradius-go.com/display-ad/19272-1884002" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884002/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## **Design: Dark, sturdy, and feature-packed**
 
@@ -123,32 +137,13 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/cS5fpyPSlqvyETs-nGxTtAB3vXU=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-4-070b6c59b206457ba1068704bbe7bca9.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151860/7443" target="_top" id="2151860">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151860" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151860/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
-
-<!-- affiliate ads begin -->
-<span id="1982508">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Setup Process and Software: Bluetooth, at long last**
 
@@ -171,10 +166,10 @@ Lifewire / Zach Sweat
 ![Xbox One Elite Series 2 Controller](https://www.lifewire.com/thmb/v25KBj3XhkgWMjFaqVnLVUUJqSY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/Xbox-One-Elite-Series-2-Controller-3-29dc70adabc64f888db60e817695153f.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1997662/19272" target="_top" id="1997662">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997662" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997662/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Lifewire / Zach Sweat
@@ -200,13 +195,6 @@ Lifewire / Zach Sweat
  The bumpers on every XB1 controller up until the One S were another point of failure due to the thin plastic piece that attached them to the controller. If you dropped your controller in just the right spot, even from a short height, they often broke and flopped around, requiring you to either send it in for repair or fix it yourself at home. The original Elite also suffered from this, and I experienced this with my first device. Now that the Series 2 is built off the S controller, this is supposedly no longer an issue.
 
  While we didn’t experience any durability issues with our controller, the long-term durability will need to be assessed at a later date, though it seems to have gotten some upgrades to resolve issues of the past.
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## **Price: Like buying a brand new console**
 
@@ -266,19 +254,16 @@ Lifewire / Zach Sweat
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-viewer-interest-6-essential-video-formats/"><u>[New] 2024 Approved Mastering Viewer Interest 6 Essential Video Formats</u></a></li>
-<li><a href="https://facebook-videos.techidaily.com/new-in-2024-broadcast-success-master-the-art-of-monitor-sharing-on-fb/"><u>[New] In 2024, Broadcast Success Master the Art of Monitor Sharing on FB</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-captivating-cuts-10-essential-filmora-edits-everyone-loves/"><u>[New] In 2024, Captivating Cuts 10 Essential Filmora Edits Everyone Loves</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-embracing-whimsy-cartoon-face-magic-in-snapchat/"><u>[New] In 2024, Embracing Whimsy Cartoon Face Magic in Snapchat</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-master-iphone-photography-rotate-tilt-and-flip-effortlessly/"><u>[New] Master iPhone Photography Rotate, Tilt & Flip Effortlessly</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-leading-android-and-ios-timer-tools-reviewed-your-big-day-planners-must-haves/"><u>[Updated] 2024 Approved Leading Android & iOS Timer Tools Reviewed Your Big Day Planner's Must-Haves</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/updated-in-2024-the-art-of-shooting-and-editing-slow-motion-content-for-instagram/"><u>[Updated] In 2024, The Art of Shooting and Editing Slow Motion Content for Instagram</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-top-tier-mkv-players-macos-edition/"><u>[Updated] Top-Tier MKV Players MacOS Edition</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-wallet-friendly-skyvaults-affordable-ample-data-storing-for-2024/"><u>[Updated] Wallet-Friendly SkyVaults Affordable, Ample Data Storing for 2024</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/2024-approved-livestreaming-hacks-every-broadcaster-should-know/"><u>2024 Approved Livestreaming Hacks Every Broadcaster Should Know</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/2024-approved-unlocking-secrets-to-compelling-youtube-live-thumbnails/"><u>2024 Approved Unlocking Secrets to Compelling YouTube Live Thumbnails</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/avoid-distortion-best-practices-for-shooting-up-close-with-videoleap/"><u>Avoid Distortion Best Practices for Shooting Up Close with VideoLeap</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/innovative-insights-for-streaming-success-on-tiktoks-computer-interface/"><u>Innovative Insights for Streaming Success on TikTok's Computer Interface</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/netgears-speedy-champion-an-in-depth-review-of-the-unmatched-performance-of-the-rax120-router/"><u>Netgear's Speedy Champion: An In-Depth Review of the Unmatched Performance of the RAX120 Router</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-space-saver-strategies-pioneering-the-best-cloud-platforms/"><u>[New] 2024 Approved Space-Saver Strategies Pioneering the Best Cloud Platforms</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-tailored-content-personalizing-facebook-ad-videos-effectively/"><u>[New] Tailored Content Personalizing Facebook Ad Videos Effectively</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-zooctorial-template-goldmine-for-2024/"><u>[New] Zooctorial Template Goldmine for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ed-2024-approved-exploring-youtubes-operations-after-video-upload/"><u>[Updated] 2024 Approved Exploring YouTube's Operations After Video Upload</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-exploring-varieties-in-gesture-tech/"><u>[Updated] Exploring Varieties in Gesture Tech</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-flickr-profile-picture-breakdown-area-codec-timeframe-for-2024/"><u>[Updated] Flickr Profile Picture Breakdown Area, Codec, Timeframe for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/closer-than-ever-mastering-video-focus-on-videoleap/"><u>Closer Than Ever Mastering Video Focus on Videoleap</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-optimizing-your-podcasts-the-seo-blueprint/"><u>In 2024, Optimizing Your Podcasts The SEO Blueprint</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/in-2024-prolific-iphone-photography-cutting-edge-app-selection-guide/"><u>In 2024, Prolific iPhone Photography Cutting-Edge App Selection Guide</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-vivo-y36i-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Vivo Y36i Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/virtual-speedway-selection-top-5-picks-revealed-for-2024/"><u>Virtual Speedway Selection Top 5 Picks Revealed for 2024</u></a></li>
 </ul></div>
 

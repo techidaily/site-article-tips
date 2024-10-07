@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Mastering Transitions in Audition  Fade-In Basics\""
-date: 2024-09-08T17:14:33.755Z
-updated: 2024-09-15T16:43:38.131Z
+date: 2024-10-03T23:34:42.396Z
+updated: 2024-10-07T07:25:24.728Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,13 @@ If you have audio that starts quite abruptly and you'd like to add a fade, Audit
 
 * Now exactly, in the same way, you can go in and begin to make adjustments. Now, when you make a selection here, Audition compresses your adjustments into that selected region. You will need to be a little careful about that when working with these effects. So, you can add fades very easily at any time by clicking on the handles at the top right and left of Waveform Display, or you can use dedicated effects for the purpose.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2\. Audition Alternative to Fade Audio
 
 [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is another best audio editing tool that is a great alternative to Adobe Audition software. Wondershare Filmora, which is the latest version of Filmora, has the visual audio editing potential to guide you in editing audio files. There are many features available in this like you can add background music, detect music beats, etc.
@@ -77,51 +84,43 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1983471">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
 * Now, opt for the clip's end, and then, opt for dragging the fade-out maker i.e. to the left side. This is for the addition of a fade-out effect. There is one thing to keep in mind if you drag it further, the fade effect lasts for a longer time.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115926/19272" target="_top" id="2115926">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115926" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115926/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. Related FAQs
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123467/16836" target="_top" id="2123467">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123467" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123467/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115918/19272" target="_top" id="2115918">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115918" border="0" alt="https://techidaily.com" width="336" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115918/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135364/19272" target="_top" id="2135364">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135364" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135364/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948891/19272" target="_top" id="1948891">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948891" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948891/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -133,12 +132,26 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151892/7443" target="_top" id="2151892">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151892" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151892/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
 * Drag the sliders and set fade-in along with fade-out effects.
 
 ![set effects](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * There is an alternative to this. You may opt for the selection of fade icons that is on the left and/or right side of the waveform portion so you are able to fade in and/or fade out faster.
 * At the starting point of an audio clip, opt for dragging the fade-in maker that is to the right side. Then, opt for the application of the fade-in effect.
@@ -188,5 +201,19 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-enhancing-photos-with-chronological-details/"><u>[New] 2024 Approved Enhancing Photos with Chronological Details</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-illuminating-your-android-videos-for-2024/"><u>[New] Illuminating Your Android Videos for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ultimate-guide-to-windows-10-savvy-techniques/"><u>[Updated] 2024 Approved Ultimate Guide to Windows 10 Savvy Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-premier-10-decibel-boosters-macos-to-mobile-devices/"><u>[Updated] In 2024, Premier 10 Decibel Boosters MacOS to Mobile Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-top-12-sites-for-premium-free-photography-images/"><u>[Updated] In 2024, Top 12 Sites for Premium-Free Photography Images</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-youtube-earnings-guide-policy-overhaul-explained/"><u>[Updated] YouTube Earnings Guide Policy Overhaul Explained</u></a></li>
+<li><a href="https://android-location.techidaily.com/10-fake-gps-location-apps-on-android-of-your-nokia-c110-drfone-by-drfone-virtual/"><u>10 Fake GPS Location Apps on Android Of your Nokia C110 | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/facebook-helper-exploring-its-aid-and-resolution-features/"><u>Facebook Helper: Exploring Its Aid and Resolution Features</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/in-2024-effortlessly-capture-and-archive-your-favorite-fb-story-moments/"><u>In 2024, Effortlessly Capture and Archive Your Favorite FB Story Moments</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/mastering-your-wellness-journey-a-step-by-step-guide-to-setting-achievable-health-objectives-with-chatgpt/"><u>Mastering Your Wellness Journey: A Step-by-Step Guide to Setting Achievable Health Objectives with ChatGPT</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-reddit-trophy-case-top-ten-threads-for-2024/"><u>The Ultimate Reddit Trophy Case - Top Ten Threads for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/ultimate-guide-to-free-software-tools-for-extracting-audio-files-from-your-dvd-collection/"><u>Ultimate Guide to FREE Software Tools for Extracting Audio Files From Your DVD Collection</u></a></li>
+</ul></div>
 

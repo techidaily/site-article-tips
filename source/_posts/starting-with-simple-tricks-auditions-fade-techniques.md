@@ -1,7 +1,7 @@
 ---
 title: "\"Starting with Simple Tricks  Audition's Fade Techniques\""
-date: 2024-09-13T18:54:15.123Z
-updated: 2024-09-20T22:51:01.897Z
+date: 2024-10-03T02:34:21.415Z
+updated: 2024-10-07T15:13:49.359Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,13 @@ You can also split audio, adjust audio, replace the original audio of a video, a
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151882/7443" target="_top" id="2151882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151882" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151882/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### **Steps to use [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) to fade audio:**
 
 * First, do the installation of Filmora software from the home screen and set the default procedure for a successful installation, and then open it. Now, to your timeline, add your desired audio file, and then, opt for double-clicking on the same for opening the Audio editing menu.
@@ -96,10 +103,10 @@ Select the option of amplifying the effects i.e., amplitude and compression. Do 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2052059/7443" target="_top" id="2052059">
-  <img src="//a.impactradius-go.com/display-ad/7443-2052059" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2129738/7443" target="_top" id="2129738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2129738" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052059/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -126,37 +133,37 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
 ## Part 3\. Related FAQs
 
 <!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134502/19576" target="_top" id="2134502">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134502" border="0" alt="https://techidaily.com" width="672" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148633/16836" target="_top" id="2148633">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148633" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134502/19576" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148633/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. How do you fade in multitrack in Audition?
 
 If you want to fade in and fade out two clips at the same time, then controlling just one track or multiple tracks will allow you to do fades on multiple audios inside the multitrack in Adobe Audition.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How do you do a master fade in Audition?
 
 Select the option of amplifying the effects i.e., amplitude and compression. Do the necessary adjustments there. Then, go to effects and click on Special, and from there, select Mastering.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
+<a href="https://bluettide.pxf.io/c/5597632/2141683/17092" target="_top" id="2141683">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141683" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141683/17092" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. Adobe Audition fade-out greyed out?
 
 Fade-in and fade-out options are available in the top-left and right corners of the waveform. Right-clicking in the project panel will produce no ability to work in the audition. That option is called grey out. Whatever you want to look for won't work in this view.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144278/7443" target="_top" id="2144278">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144278" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144278/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -188,5 +195,21 @@ Adobe Audition has always been a powerful platform for audio editing. But as eve
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/opycatting-charisma-making-ingenious-parodies-for-2024/"><u>[New] Copycatting Charisma Making Ingenious Parodies for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unlock-podcast-prominence-with-advanced-seo-techniques/"><u>[New] Unlock Podcast Prominence with Advanced SEO Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-from-bottom-to-top-seo-guide-for-podcasters/"><u>[Updated] 2024 Approved From Bottom to Top Seo Guide for Podcasters</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-taking-video-action-with-gopro-burst-technology/"><u>[Updated] 2024 Approved Taking Video Action with GoPro Burst Technology</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-sprint-secrets-olympic-edition-22/"><u>[Updated] In 2024, Sprint Secrets - Olympic Edition '22</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-prime-steadicams-to-elevate-uav-video-production-quality-for-2024/"><u>[Updated] Prime Steadicams to Elevate UAV Video Production Quality for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/2024-approved-navigating-the-intricacies-of-morphvox-evolution/"><u>2024 Approved Navigating the Intricacies of MorphVOX Evolution</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-asus-z370-e-motherboard-drivers-fast-and-simple-installation/"><u>Download Asus Z370-E Motherboard Drivers - Fast and Simple Installation</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/easy-driver-installation-guide-for-canon-mf8500c-on-windows-vista78110/"><u>Easy Driver Installation Guide for Canon MF8500C on Windows Vista/7/8.1/10</u></a></li>
+<li><a href="https://games-able.techidaily.com/how-to-repair-and-sustain-your-xbox-sandx/"><u>How to Repair and Sustain Your Xbox S&X</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-how-do-you-get-sun-stone-evolutions-in-pokemon-for-vivo-g2-drfone-by-drfone-virtual-android/"><u>In 2024, How Do You Get Sun Stone Evolutions in Pokémon For Vivo G2? | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ultimate-guide-to-free-pptp-vpn-for-beginners-on-apple-iphone-14-pro-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Ultimate Guide to Free PPTP VPN For Beginners On Apple iPhone 14 Pro Max | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/revive-your-silent-laptop-with-easy-fixes-a-step-by-step-guide/"><u>Revive Your Silent Laptop with Easy Fixes – A Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/selecting-the-best-screen-recorders-of-todays-market-for-2024/"><u>Selecting the Best Screen Recorders of Today's Market for 2024</u></a></li>
+</ul></div>
 

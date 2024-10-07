@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Novice to Pro  Mastering Mac Preview Features\""
-date: 2024-09-27T08:24:15.959Z
-updated: 2024-10-01T20:23:27.449Z
+date: 2024-10-03T22:43:36.032Z
+updated: 2024-10-07T06:38:01.244Z
 tags: 
   - screen-recording
   - ai video
@@ -55,13 +55,6 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135397/19272" target="_top" id="2135397">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135397" border="0" alt="https://techidaily.com" width="180" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135397/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -105,10 +98,10 @@ Use the method explained above to open the photo in Preview.
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139121/17108" target="_top" id="2139121">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139121" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://25home.pxf.io/c/5597632/2148638/16836" target="_top" id="2148638">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148638" border="0" alt="https://techidaily.com" width="160" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139121/17108" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148638/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
@@ -128,16 +121,10 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<span id="1982456">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982456.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982456">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982456.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982456%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982456/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1938750/19272" target="_top" id="1938750">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938750" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938750/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
@@ -156,6 +143,13 @@ Once the background portion of the image gets selected (colored in red), without
 
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -171,6 +165,13 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 **Step 3: Combine the Images**
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135350/19272" target="_top" id="2135350">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135350" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135350/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Save Images in Different Formats
 
@@ -218,13 +219,6 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135370/19272" target="_top" id="2135370">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135370" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135370/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -250,15 +244,17 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-adding-impact-strategies-for-youtubes-last-impressions/"><u>[New] 2024 Approved Adding Impact Strategies for Youtubes' Last Impressions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-essential-4-techniques-for-sharpening-iphone-hdr-videos-on-premiere/"><u>[New] 2024 Approved Essential 4 Techniques for Sharpening iPhone HDR Videos on Premiere</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-nostalgic-notions-integrating-timeless-vhs-effects-into-modern-video-production/"><u>[New] 2024 Approved Nostalgic Notions Integrating Timeless VHS Effects Into Modern Video Production</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-list-of-8-best-free-and-paid-movie-apps-for-iphone-for-2024/"><u>[New] List of 8 Best Free and Paid Movie Apps for iPhone for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-top-virtual-reality-development-tools-gamers/"><u>[Updated] In 2024, Top Virtual Reality Development Tools Gamers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/best-8-online-photo-montage-maker/"><u>Best 8 Online Photo Montage Maker</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-iphone-6s-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Restore iPhone 6s without Backup | Stellar</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-infinix-hot-40-drfone-by-drfone-virtual-android/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Infinix Hot 40 | Dr.fone</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/the-ultimate-guide-to-choosing-a-durable-and-economical-case-for-your-macbook-pro-13-featuring-the-fintie-brand/"><u>The Ultimate Guide to Choosing a Durable and Economical Case for Your MacBook Pro 13 - Featuring the Fintie Brand</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/unlock-your-disabled-apple-iphone-se-2022-without-itunes-in-5-ways-drfone-by-drfone-ios/"><u>Unlock Your Disabled Apple iPhone SE (2022) Without iTunes in 5 Ways | Dr.fone</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-integrate-twitter-videos-into-your-instagram-feed/"><u>[New] In 2024, Integrate Twitter Videos Into Your Instagram Feed</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/n-2024-the-infographic-lens-on-2017s-youtube-numerical-truths/"><u>[New] In 2024, The Infographic Lens on 2017'S Youtube Numerical Truths</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-best-soundstage-networking/"><u>[Updated] In 2024, Best Soundstage Networking</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-selecting-the-perfect-day-for-podcast-drops/"><u>[Updated] Selecting the Perfect Day for Podcast Drops</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/2024-approved-mastery-in-music-selection-enhancing-video-packages/"><u>2024 Approved Mastery in Music Selection Enhancing Video Packages</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/full-circle-camera-unboxing-and-tests/"><u>Full Circle Camera Unboxing & Tests</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-track-whatsapp-messages-on-oppo-reno-10-5g-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, How to Track WhatsApp Messages on Oppo Reno 10 5G Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-unveiling-economical-virtual-reality-solutions/"><u>In 2024, Unveiling Economical Virtual Reality Solutions</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/navigating-through-specifications-the-in-depth-analysis-of-ipad-pro-vs-macbook-air/"><u>Navigating Through Specifications: The In-Depth Analysis of iPad Pro Vs. MacBook Air</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/new-button-new-ways-mondly-enriches-oculus-quest-interactions/"><u>New Button, New Ways: Mondly Enriches Oculus Quest Interactions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premium-flying-tech-available-right-now/"><u>Premium Flying Tech Available Right Now</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-bottom-line-on-chatgpt-as-an-earnings-engine/"><u>The Bottom Line on ChatGPT as an Earnings Engine</u></a></li>
 </ul></div>
 

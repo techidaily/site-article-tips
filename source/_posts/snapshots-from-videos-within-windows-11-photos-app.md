@@ -1,7 +1,7 @@
 ---
 title: "Snapshots From Videos Within Windows 11 Photos App"
-date: 2024-09-11T17:11:35.441Z
-updated: 2024-09-15T18:19:22.640Z
+date: 2024-10-01T19:09:45.784Z
+updated: 2024-10-07T03:36:23.709Z
 tags: 
   - screen-recording
   - ai video
@@ -78,10 +78,10 @@ Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Upd
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
@@ -96,8 +96,28 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134241/18498" target="_top" id="2134241">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134241" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134241/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -106,10 +126,10 @@ We provided you some knowledge on how to save a photo from video Windows 10 Phot
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136626/26400" target="_top" id="2136626">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136626" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136626/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -135,5 +155,17 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-step-by-step-lenovo-laptop-screen-recording/"><u>[New] 2024 Approved Step-by-Step Lenovo Laptop Screen Recording</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-cut-to-the-chase-quick-background-blur-tricks-for-everyday-meets-for-2024/"><u>[New] Cut to the Chase Quick Background Blur Tricks for Everyday Meets for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-syncing-socials-a-step-by-step-guide-to-linking-instagram-and-tiktok/"><u>[New] In 2024, Syncing Socials A Step-by-Step Guide to Linking Instagram and TikTok</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-integrating-zoom-and-skype-the-ultimate-guide-to-efficient-video-calls-for-2024/"><u>[New] Integrating Zoom and Skype The Ultimate Guide to Efficient Video Calls for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-hide-face-details-picart-privacy-mode/"><u>[Updated] 2024 Approved Hide Face Details PicArt Privacy Mode</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-pioneering-the-virtual-landscape-with-metaverse-marketing/"><u>[Updated] In 2024, Pioneering the Virtual Landscape with Metaverse Marketing</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-forgotten-free-text-from-mac-speech-devices/"><u>Essential, Forgotten Free Text From Mac Speech Devices</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/how-to-install-updated-software-for-epson-xp-420-driver-downloads-available/"><u>How to Install Updated Software for Epson XP 420 - Driver Downloads Available</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcoming-steams-missing-files-hurdle-on-win11-os/"><u>Overcoming Steam's Missing Files Hurdle on Win11 OS</u></a></li>
+<li><a href="https://techidaily.com/the-way-to-get-back-lost-videos-from-honor-x50iplus-by-fonelab-android-recover-video/"><u>The way to get back lost videos from Honor X50i+</u></a></li>
+</ul></div>
 

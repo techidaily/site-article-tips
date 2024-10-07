@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Adding Personal Touch  The Art of Typeface Integration in AE\""
-date: 2024-09-30T19:59:21.765Z
-updated: 2024-10-01T23:06:30.598Z
+date: 2024-10-05T03:57:57.414Z
+updated: 2024-10-07T10:00:43.523Z
 tags: 
   - screen-recording
   - ai video
@@ -54,13 +54,6 @@ Adobe After Effects provides a ton of families of fonts that can be added and us
 
 Some of the most famous fonts such as "typewriter", "Cursive Handwriting" and many more are categorized under their family of fonts and are very easy to access. Along with this, you can also select fonts with different character strokes and can alter their features while adding to your videos.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896505/19272" target="_top" id="1896505">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896505" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896505/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 3\. How to use text effects in After Effects?
 
 Adding text effects in Adobe After Effects is very easy and you can use these effects by following these steps:
@@ -70,21 +63,22 @@ Adding text effects in Adobe After Effects is very easy and you can use these ef
 ![effects and presets adobe](https://images.wondershare.com/filmora/article-images/2022/07/effects-and-presets-adobe.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1975658">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1975658.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1975658">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975658.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975658%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975658/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137213/26400" target="_top" id="2137213">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137213" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137213/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 * Now, add that text effect to your video by clicking on it and dragging and dropping it on your video. Then select any animation preset for your text from "Adobe Bridge".
 * Then slide the keyframes to set the text effect on the section of the video where you want to add your text. You can also compose the text by clicking on it and editing it for adjusting its content, height, width, opacity, and color.
 * After you are done, save the project and your text effects will be added to the final video successfully.
+
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4\. Alternative ways to edit text fonts
 
@@ -98,13 +92,6 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -116,13 +103,6 @@ These features also include adding texts and changing the fonts of those texts o
 * When you double click on the text effect, you get more text editing tools such as "font, size, alignment, color, etc." for the text. This also provides an animation tab where you can animate your texts.
 * After you are done, click "save" and the text effects will be added to your videos successfully.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006914/19272" target="_top" id="2006914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006914" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 The article discussed the detailed process of **how to add font to Adobe After Effects** application. The descriptive process of adding texts to video projects using After Effects have also been discussed throughout the article and the available alternatives that can help users with the same feature. I also discussed the various types of fonts that are available to the users in the application interface. These fonts are very easy to access and use. I hope this article will help in easing up the whole process of video editing using After Effects.
@@ -133,9 +113,29 @@ These features also include adding texts and changing the fonts of those texts o
 
 ![use filmora to edit device](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<span id="1899850">
+					<video width="486" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1899850.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/14483-1899850">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1899850.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:304px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Felectronicx.pxf.io%2Fc%2F5597632%2F1899850%2F14483'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1899850/14483" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * First open that video that you want to edit in [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) and then you will be available with a tab called "Titles" on the top. Select that and select any style of title that you want to edit. There is a preview window available to look at the text fonts and designs.
 
 ![open wanted video to edit in filmora](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
+  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 * Select the text style you want to add for your title and then drag it from the title's library to your timeline. An alternate way to add texts or such title font is to right-click on it and select the "Apply" option.
 * Here you can also set a particular font or style for the title as your favorite by right-clicking on the library and then selecting "Add to favorites" for easy access.
@@ -172,20 +172,22 @@ The article discussed the detailed process of **how to add font to Adobe After E
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-sure.techidaily.com/024-approved-elevating-video-experience-best-youtube-to-avi-companions/"><u>[New] 2024 Approved Elevating Video Experience Best YouTube-to-AVI Companions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-pioneering-photography-with-advanced-software/"><u>[New] 2024 Approved Pioneering Photography with Advanced Software</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-elevate-your-videos-mastering-the-art-of-srt-in-mp4/"><u>[Updated] 2024 Approved Elevate Your Videos Mastering the Art of SRT in MP4</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-understanding-the-functionality-of-m1-max-clips/"><u>[Updated] 2024 Approved Understanding the Functionality of M1 Max Clips</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/updated-downloading-dynamite-a-tiktok-hustle-manual-for-2024/"><u>[Updated] Downloading Dynamite - A TikTok Hustle Manual for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-frosty-frontiers-winter-games-apex-moments-for-2024/"><u>[Updated] Frosty Frontiers Winter Games Apex Moments for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-gaming-at-its-peak-platform-9-insights/"><u>[Updated] Gaming at Its Peak Platform #9 Insights</u></a></li>
-<li><a href="https://blog-min.techidaily.com/mp4-dvd2024/"><u>「MP4への変換! DVD再生用最強無料ソフト2024年版紹介」</u></a></li>
-<li><a href="https://iphone-transfer.techidaily.com/in-2024-5-tutorials-on-how-to-transfer-photos-from-apple-iphone-14-to-new-iphone-drfone-by-drfone-transfer-from-ios/"><u>In 2024, 5 Tutorials on How to Transfer Photos From Apple iPhone 14 to New iPhone | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-freely-enhance-your-photos-iosandroids-best-overlay-apps/"><u>In 2024, Freely Enhance Your Photos IOS/Android's Best Overlay Apps</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-peak-popularity-on-reddit-10-most-upvoted-stories/"><u>In 2024, Peak Popularity on Reddit 10 Most Upvoted Stories</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-which-pokemon-can-evolve-with-a-moon-stone-for-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Which Pokémon can Evolve with a Moon Stone For Lava Storm 5G? | Dr.fone</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/is-amazon-prime-worth-it-4-reasons-why-you-should-get-this-membership/"><u>Is Amazon Prime Worth It? 4 Reasons Why You Should Get This Membership</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/rectified-power-surge-issue-with-gateway-hub/"><u>Rectified: Power Surge Issue with Gateway Hub</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/ltimate-guide-to-youtube-fame-with-spectacular-music-videos-for-2024/"><u>The Ultimate Guide to YouTube Fame with Spectacular Music Videos for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-best-10-mininano-drones-in-the-market/"><u>[New] 2024 Approved Best 10 Mini/Nano Drones in the Market</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-bringing-realities-closer-google-cardboard-vs-samsung-gear-for-2024/"><u>[New] Bringing Realities Closer Google Cardboard Vs. Samsung Gear for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-chuckles-churner-visual-composer-for-2024/"><u>[New] Chuckles Churner Visual Composer for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-how-to-add-stickers-to-instagram/"><u>[New] In 2024, How to Add Stickers to Instagram?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-perfect-slideshow-software-for-iphone-fi-and-pro-max/"><u>[New] Perfect Slideshow Software For iPhone Fi & Pro Max</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-2024-approved-expert-tutorial-on-utilizing-googles-automatic-speech-transcription/"><u>[Updated] 2024 Approved Expert Tutorial on Utilizing Google's Automatic Speech Transcription</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-2024-approved-innovative-ideas-to-make-your-youtube-shorts-exceptional/"><u>[Updated] 2024 Approved Innovative Ideas to Make Your YouTube Shorts Exceptional</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-2024-approved-twitcast-audible-and-mp4-edition/"><u>[Updated] 2024 Approved TwitCast Audible & MP4 Edition</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-beam-wise-video-setups-expert-strategies-to-shine/"><u>[Updated] Beam-Wise Video Setups Expert Strategies to Shine</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-safety-features-evaluated-in-syma-x8c/"><u>[Updated] Safety Features Evaluated in Syma X8C</u></a></li>
+<li><a href="https://some-skills.techidaily.com/updated-unrivaled-script-authority-place/"><u>[Updated] Unrivaled Script Authority Place</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/best-6-celebrity-text-to-speech-ai-voice-generators-you-may-like-for-2024/"><u>Best 6 Celebrity Text to Speech AI Voice Generators You May Like for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ideal-tactic-fusing-gopro-footage-into-a-unified-360-video-experience-for-2024/"><u>Ideal Tactic Fusing GoPro Footage Into a Unified 360 Video Experience for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-periscope-basics-understanding-costs-benefits-and-account-creation/"><u>In 2024, Periscope Basics Understanding Costs, Benefits & Account Creation</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-resolve-your-iphone-13-mini-keeps-asking-for-outlook-password-by-drfone-ios/"><u>In 2024, Resolve Your iPhone 13 mini Keeps Asking for Outlook Password</u></a></li>
+<li><a href="https://article-tips.techidaily.com/periscope-unveiled-free-access-benefits-and-signing-up-guide-for-2024/"><u>Periscope Unveiled Free Access, Benefits & Signing Up Guide for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-tecno-spark-10c-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Tecno Spark 10C | Dr.fone</u></a></li>
 </ul></div>
 

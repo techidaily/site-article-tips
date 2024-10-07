@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Ten Practices to Avoid VR Motion Sickness for 2024"
-date: 2024-09-17T00:21:49.565Z
-updated: 2024-09-20T16:06:14.118Z
+date: 2024-10-01T18:42:40.918Z
+updated: 2024-10-07T01:31:23.968Z
 tags: 
   - screen-recording
   - ai video
@@ -55,6 +55,13 @@ thumbnail: https://thmb.techidaily.com/29cfc21c1254cb70322b91195c7081ab1c044155f
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1576474/17382" target="_top" id="1576474">
+  <img src="//a.impactradius-go.com/display-ad/17382-1576474" border="0" alt="https://techidaily.com" width="160" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1576474/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -62,6 +69,13 @@ thumbnail: https://thmb.techidaily.com/29cfc21c1254cb70322b91195c7081ab1c044155f
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -86,12 +100,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918719/19272" target="_top" id="1918719">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918719" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918719/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-pushing-perceptions-with-the-advanced-dell-p2715q-display-review/"><u>[New] 2024 Approved Pushing Perceptions with the Advanced Dell P2715Q Display Review</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exploring-panoramic-versus-full-immersion-visual-media-tech/"><u>[New] Exploring Panoramic Versus Full-Immersion Visual Media Tech</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-macs-visionary-picks-the-10-elite-monitors-with-4k/"><u>[New] In 2024, Mac's Visionary Picks The #10 Elite Monitors with 4K</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/new-the-ultimate-guide-to-comparing-triller-with-tiktoks-features-max-156-chars-for-2024/"><u>[New] The Ultimate Guide to Comparing Triller with TikTok's Features (Max 156 Chars) for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-gopros-360-degree-spectacle-max-vs-hero-11-showdown/"><u>[Updated] 2024 Approved GoPro's 360-Degree Spectacle Max vs Hero 11 Showdown</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-beyond-vidcon-top-50-youtube-celebrations/"><u>[Updated] Beyond VidCon Top 50 YouTube Celebrations</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-elevate-your-visuals-with-these-10-text-plans-for-ae/"><u>[Updated] Elevate Your Visuals with These 10 Text Plans for AE</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-high-impact-vectors-discover-the-best-10-websites/"><u>[Updated] High-Impact Vectors Discover the Best 10 Websites</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-step-by-step-converting-webp-to-jpeg/"><u>[Updated] In 2024, Step-by-Step Converting WebP to JPEG</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-blueprint-for-on-screen-dialogues/"><u>[Updated] The Blueprint for On-Screen Dialogues</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Nubia Red Magic 8S Pro | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/top-10-airplay-apps-in-google-pixel-fold-for-streaming-drfone-by-drfone-android/"><u>Top 10 AirPlay Apps in Google Pixel Fold for Streaming | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/ultimate-guide-to-choosing-high-quality-styli-for-ipads/"><u>Ultimate Guide to Choosing High-Quality Styli for iPads</u></a></li>
+</ul></div>
 

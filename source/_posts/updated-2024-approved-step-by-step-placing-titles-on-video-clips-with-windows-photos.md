@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step  Placing Titles on Video Clips with Windows Photos\""
-date: 2024-09-08T17:18:29.759Z
-updated: 2024-09-15T17:03:03.599Z
+date: 2024-10-01T09:30:49.098Z
+updated: 2024-10-07T05:54:58.924Z
 tags: 
   - screen-recording
   - ai video
@@ -56,6 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -67,6 +74,13 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
@@ -77,7 +91,21 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135361/19272" target="_top" id="2135361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135361" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135361/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2129043/19576" target="_top" id="2129043">
+  <img src="//a.impactradius-go.com/display-ad/19576-2129043" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2129043/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -108,12 +136,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130530/26400" target="_top" id="2130530">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130530/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-10-budget-friendly-jpeg-to-gif-conversion-tools-online/"><u>[New] 2024 Approved Top 10 Budget-Friendly JPEG to GIF Conversion Tools Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-cinematic-supreme-our-selection-of-top-7-4k-cameras/"><u>[New] In 2024, Cinematic Supreme Our Selection of Top 7 4K Cameras</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-iphones-alphabetical-album-setup-and-its-integration-with-icloud-services-for-2024/"><u>[New] IPhone's Alphabetical Album Setup and Its Integration with iCloud Services for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-optimal-placement-boosting-youtube-video-visibility-for-2024/"><u>[New] Optimal Placement Boosting YouTube Video Visibility for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-choose-wisely-top-10-expert-picked-gopro-housing/"><u>[Updated] 2024 Approved Choose Wisely Top 10 Expert-Picked GoPro Housing</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-beat-buzzers-up-and-coming-background-scores-for-yt-shorts-for-2024/"><u>[Updated] Beat Buzzers Up-and-Coming Background Scores For YT Shorts for 2024</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-unveiling-the-process-of-recording-in-adobe-presenter/"><u>[Updated] In 2024, Unveiling the Process of Recording in Adobe Presenter</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-how-to-do-a-poll-on-instagram-stories-a-complete-guide/"><u>2024 Approved How to Do a Poll on Instagram Stories - a Complete Guide</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/a-guide-to-elevating-your-obs-video-projects/"><u>A Guide to Elevating Your OBS Video Projects</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/ace-windows-10-tricks-to-save-time-and-energy/"><u>Ace Windows 10 Tricks to Save Time & Energy</u></a></li>
+<li><a href="https://article-tips.techidaily.com/essential-tips-for-incorporating-soundtracks-in-adobe-premiere-for-2024/"><u>Essential Tips for Incorporating Soundtracks in Adobe Premiere for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-realme-12-proplus-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Realme 12 Pro+ 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-ace-editing-essential-10-final-cut-pro-extensions/"><u>In 2024, Ace Editing Essential 10 Final Cut Pro Extensions</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-budgetclouds-vault-spaceful-large-data-sanctuary/"><u>In 2024, BudgetCloud's Vault Spaceful Large Data Sanctuary</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-ispoofer-is-not-working-on-apple-iphone-15-pro-fixed-drfone-by-drfone-virtual-ios/"><u>In 2024, iSpoofer is not working On Apple iPhone 15 Pro? Fixed | Dr.fone</u></a></li>
+<li><a href="https://fake-location.techidaily.com/what-is-geo-blocking-and-how-to-bypass-it-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>What is Geo-Blocking and How to Bypass it On Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
+</ul></div>
 

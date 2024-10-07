@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Guide to Deciphering YouTube's Comprehensive Feedback System"
-date: 2024-09-28T18:15:23.062Z
-updated: 2024-10-01T17:55:41.328Z
+date: 2024-10-03T17:49:51.741Z
+updated: 2024-10-07T02:05:11.964Z
 tags: 
   - screen-recording
   - ai video
@@ -41,6 +41,13 @@ Not only does it show your fans followers that you care about what they have to 
 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2052062/7443" target="_top" id="2052062">
+  <img src="//a.impactradius-go.com/display-ad/7443-2052062" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2052062/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Advantage of YouTube comments
 
 If you're wondering whether you really need to monitor your YouTube comments, here are three compelling reasons why you should:
@@ -62,10 +69,10 @@ Step1 Below the video itself, find the comment section.
 ![find the comment section youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-the-comment-section-youtube.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1815678/21290" target="_top" id="1815678">
-  <img src="//a.impactradius-go.com/display-ad/21290-1815678" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2012401/19272" target="_top" id="2012401">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012401" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815678/21290" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012401/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 Type your message in the add a comment field. (if you're writing on your phone you can tap the comment section to expand it.
@@ -86,16 +93,16 @@ Step1 Open your chosen browser, head to YouTube, then sign in to your Google/You
 
 ![sign in youtube account](https://images.wondershare.com/filmora/article-images/2022/11/sign-in-youtube-account.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1938677/19272" target="_top" id="1938677">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938677" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938677/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 On the YouTube homepage, click on the three horizontal parallel lines in the top-left corner. A drop down menu appears, including the trending videos of the day, your subscriptions and your settings.
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1880956/19272" target="_top" id="1880956">
-  <img src="//a.impactradius-go.com/display-ad/19272-1880956" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1880956/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 From the drop down menu, select “History”.
 
@@ -114,19 +121,6 @@ Among the comments you see on a video, you might notice some that YouTube has la
 For example, you might click on a notification, and YouTube takes you to a particular video. Then, when somebody else views and leaves a comment on that video, YouTube will often add the “Highlighted Comment” label on the comment to make it easy for you to spot it when you next go back to that video.
 
 Each time YouTube adds the “highlighted comment” or “highlighted reply” tags to a video, they create a unique URL. The version of the comment that you see uses this newly generated URL. Therefore, the only way to make these labels disappear (apart from reading the new comments) is to remove the addition to the URL.
-
-<!-- affiliate ads begin -->
-<span id="1834906">
-					<video width="864" height="864" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Why Deleting YouTube Comments?
 
@@ -147,16 +141,10 @@ Comments history also contains the link to the video where you've left the comme
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982461">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982461.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982461">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982461.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982461%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982461/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2151868/7443" target="_top" id="2151868">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151868" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151868/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -195,19 +183,15 @@ One way you can encourage people to leave comments on your videos is to finish t
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-exploring-the-future-of-social-sharing-with-tiktok-vs-snapchat/"><u>[New] 2024 Approved Exploring the Future of Social Sharing with TikTok vs Snapchat</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-redefining-the-sony-s3700-video-experience-for-2024/"><u>[New] Redefining the Sony S3700 Video Experience for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-vivid-palette-review-best-5-high-definition-displays-for-2024/"><u>[New] Vivid Palette Review Best 5 High-Definition Displays for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unleash-humor-kapwings-meme-crafting-app/"><u>[Updated] 2024 Approved Unleash Humor Kapwing's Meme Crafting App</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-fuse-sounds-with-slides-a-guide-to-mp3-integration/"><u>[Updated] Fuse Sounds with Slides A Guide to MP3 Integration</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/ed-in-2024-quick-cash-flow-on-youtube-maximizing-earnings-with-short-videos/"><u>[Updated] In 2024, Quick Cash Flow on YouTube Maximizing Earnings with Short Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-revitalize-your-reels-selecting-the-best-5-enhancers/"><u>[Updated] In 2024, Revitalize Your Reels Selecting the Best 5 Enhancers</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-master-meetings-the-ultimate-list-of-10-free-recorders-for-2024/"><u>[Updated] Master Meetings The Ultimate List of 10 Free Recorders for 2024</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-unlocking-video-potential-top-9-tips-for-vr-storytelling/"><u>2024 Approved Unlocking Video Potential Top 9 Tips for VR Storytelling</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-complete-biomechanical-study-2023/"><u>In 2024, Complete Biomechanical Study 2023</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/navigating-through-iphone-recovery-options-how-to-switch-onoff-with-ease/"><u>Navigating Through iPhone Recovery Options: How to Switch On/Off with Ease</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/the-ultimate-list-of-premium-youtube-news-networks/"><u>The Ultimate List of Premium YouTube News Networks</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/unlocking-advanced-functionalities-of-zoom-on-windows-10/"><u>Unlocking Advanced Functionalities of Zoom on Windows 10</u></a></li>
-<li><a href="https://discover-guides.techidaily.com/upgrade-your-gaming-experience-with-officially-licensed-winx-dvd-copy-pro-instant-free-upgrade-available-now/"><u>Upgrade Your Gaming Experience with Officially Licensed WinX DVD Copy Pro – Instant, Free Upgrade Available Now!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-seamlessly-post-pictures-your-youtube-visual-guide/"><u>[New] 2024 Approved Seamlessly Post Pictures Your YouTube Visual Guide</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-best-alternatives-to-microsofts-game-bar-recording-features/"><u>[New] In 2024, Best Alternatives to Microsoft's Game Bar Recording Features</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-ultimate-list-where-to-pull-off-ringtone-files-for-2024/"><u>[Updated] Ultimate List Where To Pull Off Ringtone Files for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/enhancing-videos-with-thoughtfully-chosen-music-for-2024/"><u>Enhancing Videos with Thoughtfully Chosen Music for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-mastering-gopro-advanced-cinematic-skills/"><u>In 2024, Mastering GoPro Advanced Cinematic Skills</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/in-2024-photographic-pastime-iphone-x-retro-clicks/"><u>In 2024, Photographic Pastime IPhone X Retro Clicks</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/is-fake-gps-location-spoofer-a-good-choice-on-oneplus-nord-ce-3-lite-5g-drfone-by-drfone-virtual-android/"><u>Is Fake GPS Location Spoofer a Good Choice On OnePlus Nord CE 3 Lite 5G? | Dr.fone</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/mapping-out-the-next-wave-of-social-media-graphs/"><u>Mapping Out the Next Wave of Social Media Graphs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/mpl-format-guide-how-to-access-enjoy-and-transform-videos/"><u>MPL Format Guide: How to Access, Enjoy, and Transform Videos</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/1726226909481-wavmp3-movavi/"><u>오늘날의 가장 최고의 온라인 WAV/MP3 전환 도구 - Movavi</u></a></li>
 </ul></div>
 

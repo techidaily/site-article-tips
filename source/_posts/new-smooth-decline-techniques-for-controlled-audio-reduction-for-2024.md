@@ -1,7 +1,7 @@
 ---
 title: "[New] Smooth Decline Techniques for Controlled Audio Reduction for 2024"
-date: 2024-10-06T16:03:35.109Z
-updated: 2024-10-07T16:03:14.924Z
+date: 2024-10-09T21:51:44.870Z
+updated: 2024-10-12T22:41:46.311Z
 tags: 
   - screen-recording
   - ai video
@@ -48,10 +48,10 @@ After selecting that, there will be an addition of a new automation clip to the 
 Step4 Due to the automation clip, you will be able to do a smooth transition in and out of that song or audio. Now, you can create a suitable volume for fading your sound. If you want to create another new automation, then click on the right. After that click on the left and drag it.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1885928/19272" target="_top" id="1885928">
+  <img src="//a.impactradius-go.com/display-ad/19272-1885928" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885928/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2\. FL Studio Alternative to Fade Audio
@@ -68,13 +68,6 @@ Step1 The first thing you have to do is successfully install the Filmora softwar
 
 ![install filmora software](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2012415/19272" target="_top" id="2012415">
-  <img src="//a.impactradius-go.com/display-ad/19272-2012415" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012415/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
@@ -82,6 +75,13 @@ Step2 To fade audio in, you have to go to the audio setting. Then drag the point
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068426/7443" target="_top" id="2068426">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068426" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068426/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Related FAQs of FL Studio Audio Editing
 
@@ -114,10 +114,10 @@ No matter which audio editing software, what matters is the learning outcome. Le
 ## Related FAQs of FL Studio Audio Editing
 
 <!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137218/26400" target="_top" id="2137218">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137218/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. How to fade out FL studio mobile?
@@ -125,10 +125,10 @@ No matter which audio editing software, what matters is the learning outcome. Le
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135411/19272" target="_top" id="2135411">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135411" border="0" alt="https://techidaily.com" width="180" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135411/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. How to crescendo in FL studio?
@@ -136,10 +136,10 @@ If you want to fade out your audio in FL on your mobile phone, tap on the wavefo
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105883/7443" target="_top" id="2105883">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105883" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105883/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. What is declicking mode FL studio?
@@ -170,22 +170,19 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-detecting-phony-instagram-connections-efficiently/"><u>[New] 2024 Approved Detecting Phony Instagram Connections Efficiently</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-free-to-learn-4-youtube-channels-unlocking-the-secrets-of-background-substitution-for-2024/"><u>[Updated] Free-to-Learn 4 YouTube Channels Unlocking the Secrets of Background Substitution for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/20-must-have-mp4-devices/"><u>20 Must-Have MP4 Devices</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-essential-guide-to-free-online-srt-translators-1-8-rankings/"><u>2024 Approved Essential Guide to Free Online SRT Translators – #1-#8 Rankings</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-evaluating-expenditure-on-turning-songs-into-visuals/"><u>2024 Approved Evaluating Expenditure on Turning Songs Into Visuals</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-exclusive-list-general-knowledge-quiz-channels-24/"><u>2024 Approved Exclusive List General Knowledge Quiz Channels '24</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-innovation-in-minimization-the-finest-selection-of-43-mobile-video-trimming-apps/"><u>2024 Approved Innovation in Minimization The Finest Selection of 43 Mobile Video Trimming Apps</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-streamlining-media-files-from-xmltxt-to-srt-mastery/"><u>2024 Approved Streamlining Media Files From XML/TXT to SRT Mastery</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-virtual-venues-redefining-entertainment-landscapes/"><u>2024 Approved Virtual Venues Redefining Entertainment Landscapes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-virtual-visions-versus-tangible-tools-in-streaming/"><u>2024 Approved Virtual Visions Versus Tangible Tools in Streaming</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/clear-guide-to-understanding-and-fixing-error-code-19-in-windows-environment/"><u>Clear Guide to Understanding and Fixing Error Code #19 in Windows Environment</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On Samsung Galaxy XCover 7? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-full-guide-to-unlock-your-tecno-pova-6-pro-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Tecno Pova 6 Pro 5G</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-sensational-headline-architect/"><u>In 2024, Sensational Headline Architect</u></a></li>
-<li><a href="https://techtrends.techidaily.com/premium-gadgets-for-less-discover-superior-tech-on-a-budget/"><u>Premium Gadgets for Less: Discover Superior Tech on a Budget</u></a></li>
-<li><a href="https://app-tips.techidaily.com/seamlessly-reduce-your-whatsapp-audio-files-with-these-proven-strategies/"><u>Seamlessly Reduce Your WhatsApp Audio Files with These Proven Strategies</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/top-12-prominent-itel-p40-fingerprint-not-working-solutions-by-drfone-android/"><u>Top 12 Prominent Itel P40 Fingerprint Not Working Solutions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-accelerate-your-sluggish-vids-to-speedy-shots-on-android/"><u>[New] In 2024, Accelerate Your Sluggish Vids to Speedy Shots on Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-enhancing-visual-storytelling-utilizing-luts-techniques/"><u>[New] In 2024, Enhancing Visual Storytelling Utilizing Luts Techniques</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-master-the-unboxing-game-strategies-for-more-viral-videos-and-likes/"><u>[New] Master the Unboxing Game Strategies for More Viral Videos and Likes</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-tinytake-screen-recorder-review-for-2024/"><u>[New] TinyTake Screen Recorder Review for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unrivaled-handwear-elevate-your-vr-world/"><u>[New] Unrivaled Handwear Elevate Your VR World</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-a-guide-to-navigating-vimeos-free-premium-and-pro-membership-levels/"><u>[Updated] A Guide to Navigating Vimeo’s Free, Premium & Pro Membership Levels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-average-playback-period-in-high-res-20mb-content/"><u>[Updated] Average Playback Period in High-Res 20MB Content</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/updated-best-zoom-webcams-top-picks-of-the-season/"><u>[Updated] Best Zoom Webcams – Top Picks of the Season</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-selecting-the-perfect-drone-stabilizer-a-guide/"><u>[Updated] In 2024, Selecting the Perfect Drone Stabilizer A Guide</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-iphones-artistry-for-time-extended-cinematography-for-2024/"><u>[Updated] IPhone's Artistry for Time-Extended Cinematography for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/expert-recommended-sub-to-srt-tools-top-8-guide-reviewed/"><u>Expert Recommended Sub to SRT Tools Top 8 Guide Reviewed</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-ultimate-guide-from-poco-c51-frp-bypass-by-drfone-android/"><u>In 2024, Ultimate Guide from Poco C51 FRP Bypass</u></a></li>
+<li><a href="https://article-tips.techidaily.com/syma-x5c-review-best-drone-for-beginner-for-2024/"><u>Syma X5C Review Best Drone for Beginner for 2024</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/transform-your-tech-skills-mastering-screen-capture-in-macos/"><u>Transform Your Tech Skills Mastering Screen Capture in macOS</u></a></li>
 </ul></div>
 

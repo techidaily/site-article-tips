@@ -1,7 +1,7 @@
 ---
 title: "\"The Ultimate 4K Aerial Photography Guide  MI Drone Review for 2024\""
-date: 2024-10-03T16:02:05.806Z
-updated: 2024-10-07T16:00:42.821Z
+date: 2024-10-12T07:57:39.166Z
+updated: 2024-10-13T05:54:57.695Z
 tags: 
   - screen-recording
   - ai video
@@ -57,22 +57,16 @@ Even with a reasonable price tag, this advanced drone unit has several features 
 
 Xiaomi Mi has impressive aesthetics and most of its features are comparable to DJI Phantom 4 Drone. The best part is that this drone unit is designed with light weight structure so you can easily carry it to your tour. Even, the propeller guards as well as the gimbal unit are detachable so that you can put this drone easily inside your backpack. The overall weight of Xiaomi Mi is only 149 grams due to carbon fiber and polycarbonate material.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1997722/19272" target="_top" id="1997722">
+  <img src="//a.impactradius-go.com/display-ad/19272-1997722" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997722/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Battery Life
 
 As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you. As already discussed, Xiaomi MI can spend 27 minutes in the air with one time full charging. But battery time can be depleted faster if you prefer to use the auto return to home and auto departure feature. The 17.4 Volt battery unit with 5199mAh capacity takes 3 ½ hours to full charge but if you want to extend battery life then prefer to carry a backup with you.
-
-<!-- affiliate ads begin -->
-<span id="1976998">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1976998.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1976998">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1976998.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1976998%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1976998/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Flight Performance
 
@@ -81,10 +75,10 @@ Like most of the advanced drone units, Xiaomi Mi also features autonomous flying
 The most amazing feature of Xiaomi Mi is its ability to communicate via mobile phone so that users can manage the recording focus of its camera. One more appreciable feature is its surrounded flight ability; you can make it circle around any specific object by sending commands from a smartphone. You will love to capture videos with its 360-degree motion ability that leads to incredible clicks. How can we forget to talk about the most advanced feature of this special drone unit that is Preset Rout following ability! Users can make pre adjustments for all flights and it will capture smooth shots every time. The automatic landing and takeoff feature helps in easy controls whereas if this drone goes far from 3meter range then it will switch back to its preset path. It is possible to bring this drone back with only one button and in order to improve its performance, you can access the calibration settings. Note that, if somehow your drone gets lost then it will take almost 30 to 45 minutes for coming back.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115937/19272" target="_top" id="2115937">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Control Range
@@ -92,10 +86,16 @@ The most amazing feature of Xiaomi Mi is its ability to communicate via mobile p
 As we have discussed earlier that Xiaomi Mi is designed to work on 2.4GHz transmitter frequency range. It has left-hand throttle ability along with the handy built-in type phone clamp. In order to operate this drone from remote distance you simply need to configure its flight settings to Mode 2\. Note that MI is able to fly at a maximum height of 800m and it can go as far as up to 3000 meters from the operator.
 
 <!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/947750/11832" target="_top" id="947750">
-  <img src="//a.impactradius-go.com/display-ad/11832-947750" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947750/11832" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1304648">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1304648.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1304648">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1304648.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1304648%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1304648/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Camera
@@ -109,10 +109,10 @@ The 1080p variant of Mi Drone is available with a price tag of $380 whereas for 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
-  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137208/26400" target="_top" id="2137208">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137208" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137208/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -140,18 +140,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/outube-music-blend-fundamentals-for-2024/"><u>[New] YouTube Music Blend Fundamentals for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-essential-game-streamers-for-your-watchlist-for-2024/"><u>[Updated] Essential Game Streamers for Your Watchlist for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/a-comprehensive-guide-to-apple-iphone-12-pro-blacklist-removal-tips-and-tools-drfone-by-drfone-ios/"><u>A Comprehensive Guide to Apple iPhone 12 Pro Blacklist Removal Tips and Tools | Dr.fone</u></a></li>
-<li><a href="https://android-frp.techidaily.com/a-quick-guide-to-motorola-edge-40-neo-frp-bypass-instantly-by-drfone-android/"><u>A Quick Guide to Motorola Edge 40 Neo FRP Bypass Instantly</u></a></li>
-<li><a href="https://article-tips.techidaily.com/blast-from-the-past-top-1980s-vhs-techniques-to-infect-your-edits-with-flair-for-2024/"><u>Blast From the Past Top 1980S VHS Techniques to Infect Your Edits with Flair for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/charting-the-financial-landscape-of-youtube-marketing-for-2024/"><u>Charting the Financial Landscape of YouTube Marketing for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/conquer-iphone-photography-by-perfecting-motion-capture-for-2024/"><u>Conquer iPhone Photography by Perfecting Motion Capture for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/deciphering-the-mechanics-of-whatsapp-calls-for-2024/"><u>Deciphering the Mechanics of WhatsApp Calls for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/differentiating-between-metaverse-and-multiplemetaverse-worlds/"><u>Differentiating Between Metaverse & MultipleMetaverse Worlds</u></a></li>
-<li><a href="https://article-tips.techidaily.com/elevate-your-aerial-craft-best-practices-in-choosing-lipods-for-2024/"><u>Elevate Your Aerial Craft Best Practices in Choosing LiPods for 2024</u></a></li>
-<li><a href="https://mondly-stories.techidaily.com/happy-easter-in-different-languages-and-easter-traditions/"><u>Happy Easter in Different Languages & Easter Traditions</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/how-to-bypass-frp-on-samsung-galaxy-a15-5g-by-drfone-android/"><u>How to Bypass FRP on Samsung Galaxy A15 5G?</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/unlocking-the-future-discover-apple-watches-ready-for-watchos-11-and-those-that-are-not-techinsights/"><u>Unlocking the Future: Discover Apple Watches Ready for WatchOS 11 & Those That Are Not! | TechInsights</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultimate-conversion-handbook-from-gif-to-sticker-across-messaging-services/"><u>[New] 2024 Approved The Ultimate Conversion Handbook From GIF to Sticker Across Messaging Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-activate-funimate-pro-with-a-simple-apk-click/"><u>[New] Activate Funimate Pro with a Simple APK Click</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-enriched-narratives-with-these-top-video-text-treatments/"><u>[New] In 2024, Enriched Narratives with These Top Video Text Treatments</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-premium-portables-laptops-to-supercharge-your-creative-work/"><u>[New] In 2024, Premium Portables Laptops to Supercharge Your Creative Work</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-proven-methods-to-record-flawlessly-using-nvidia/"><u>[New] Proven Methods to Record Flawlessly Using NVIDIA</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-unlimited-savvy-instagrams-infinite-save-tool/"><u>[New] Unlimited Savvy Instagram's Infinite Save Tool</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-zooming-up-triad-of-effective-video-enhancement-practices/"><u>[Updated] 2024 Approved Zooming Up Triad of Effective Video Enhancement Practices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-boost-your-snaps-techniques-for-enhanced-snapchat-zoom/"><u>[Updated] Boost Your Snaps Techniques for Enhanced Snapchat Zoom</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-design-humor-in-pixels-adobe-edition-for-2024/"><u>[Updated] Design Humor in Pixels Adobe Edition for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-music-enhanced-whatsapp-expressions/"><u>[Updated] In 2024, Music-Enhanced WhatsApp Expressions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-secret-sauce-for-a-viral-tiktok-unboxer-masterpiece-for-2024/"><u>[Updated] The Secret Sauce for a Viral TikTok Unboxer Masterpiece for 2024</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/about-infinix-gt-10-pro-frp-bypass-by-drfone-android/"><u>About Infinix GT 10 Pro FRP Bypass</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/empowering-your-websites-performance-with-the-cookiebot-solution-for-search-engines/"><u>Empowering Your Website's Performance with the Cookiebot Solution for Search Engines</u></a></li>
+<li><a href="https://extra-information.techidaily.com/enthralling-narratives-discover-the-top-8-story-centric-universities/"><u>Enthralling Narratives Discover the Top 8 Story-Centric Universities</u></a></li>
+<li><a href="https://extra-information.techidaily.com/how-to-add-and-record-audio-to-powerpoint/"><u>How to Add & Record Audio to PowerPoint</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-dive-into-hp-envy-27-monitors-usb-c-innovation/"><u>In 2024, Dive Into HP Envy 27 Monitor's USB-C Innovation</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unlocking-the-potential-a-thorough-review-of-high-quality-microsoft-surface-keyboard-designs/"><u>Unlocking the Potential: A Thorough Review of High-Quality Microsoft Surface Keyboard Designs</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/windows-compatibility-epson-scanner-problems/"><u>Windows Compatibility: Epson Scanner Problems</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/zoom-video-perfection-repairing-cameras-of-today-and-tomorrow/"><u>Zoom Video Perfection: Repairing Cameras of Today & Tomorrow</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Seizing Photographic Segments From Videos in Windows 11"
-date: 2024-10-02T16:00:02.290Z
-updated: 2024-10-07T16:02:13.104Z
+date: 2024-10-08T18:25:50.367Z
+updated: 2024-10-13T08:05:17.005Z
 tags: 
   - screen-recording
   - ai video
@@ -63,26 +63,52 @@ These photos are stored in the ‘Pictures’ folder of your computer having ‘
 
 * This image will be saved as ‘LI\_Moment’ file in your Pictures folder by default.
 
+<!-- affiliate ads begin -->
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: Why I can’t save photo from video
 
 In case, you are not able to save photos from video on Windows 10 Photos App. There might be issues with an outdated [Microsoft OS patch update](https://support.microsoft.com/en-us/help/311047/how-to-keep-your-windows-computer-up-to-date) or the Microsoft account is having any problem. But, you don’t have to worry about the same.
 
 We are explaining the solutions here –
 
+<!-- affiliate ads begin -->
+<span id="1770776">
+					<video width="240" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. Check the update
 
 Click on ‘Start’ > ‘Settings’ > ‘Update & Security’ > ‘Windows Updates’ > ‘Check for Updates’ > ‘Update Available’. When update is available, go ahead and follow the prompts to get the update.
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1006793/11832" target="_top" id="1006793">
-  <img src="//a.impactradius-go.com/display-ad/11832-1006793" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1006793/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. Sign in a different account in Microsoft Store
 
 You got to login with another Microsoft account to access Microsoft Store. It might be your existing Microsoft Store account undergoing some issues. This in turn might be affecting the Photos app from acting properly. Therefore, signing in a different account will help.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012429/19272" target="_top" id="2012429">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012429" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012429/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Alternative way to save photo from video
 
@@ -96,27 +122,14 @@ Here comes the guide –
 
 ![save photo from video windows 10 photos](https://images.wondershare.com/filmora/article-images/screenshot-take-photo.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * Once the image is captured, the editing tool bar is visible. It allows you to enhance the image to great extent.
 * Now, hit the ‘Save’ icon and get the image saved on your computer.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886003/19272" target="_top" id="1886003">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886003" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886003/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -124,13 +137,6 @@ Here comes the guide –
 We provided you some knowledge on how to save a photo from video Windows 10 Photos. Out of the multiple ways to save photos from videos, you can try what suits you best. If you want to go for a desktop based application, then Windows Photos serves you best. But, when you want to get things done online, you can pick ScreenShot for that matter. Hope you liked our efforts!
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -157,18 +163,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://extra-hints.techidaily.com/new-building-bridges-encouraging-dialogue-in-the-youtube-community/"><u>[New] Building Bridges Encouraging Dialogue in the YouTube Community</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/new-explore-10-cost-effective-video-players-on-linuxwindowsmac/"><u>[New] Explore 10 Cost-Effective Video Players on Linux/Windows/Mac</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-perfect-your-streamline-setup-unleashing-the-full-potential-of-floating-window-feature/"><u>[Updated] Perfect Your Streamline Setup Unleashing the Full Potential of Floating Window Feature</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-step-by-step-guide-to-music-insertion-in-youtube-editing-tools/"><u>[Updated] Step-by-Step Guide to Music Insertion in YouTube Editing Tools</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/1-top-ranked-manycam-ultimate-live-streaming-and-remote-webcam-solution/"><u>1. Top-Ranked ManyCam: Ultimate Live Streaming and Remote Webcam Solution</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-boost-podcast-visibility-through-strategic-seo-tactics/"><u>2024 Approved Boost Podcast Visibility Through Strategic SEO Tactics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-projector-or-tv-optimal-choice-for-excellent-4k-display-experience/"><u>2024 Approved Projector or TV Optimal Choice for Excellent 4K Display Experience</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-seamlessly-accessing-vids-the-top-5-free-online-video-extractors/"><u>2024 Approved Seamlessly Accessing Vids The Top 5 Free Online Video Extractors</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/2024-approved-the-art-of-leading-lines-crafting-images-on-iphones/"><u>2024 Approved The Art of Leading Lines Crafting Images on iPhones</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-time-efficient-a-comprehensive-guide-to-srt-to-txt-switching/"><u>2024 Approved Time Efficient A Comprehensive Guide to SRT to TXT Switching</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-unleash-creativity-a-comprehensive-guide-to-movie-maker-on-windows-11/"><u>2024 Approved Unleash Creativity A Comprehensive Guide to Movie Maker on Windows 11</u></a></li>
-<li><a href="https://location-fake.techidaily.com/4-methods-to-turn-off-life-360-on-infinix-hot-40-pro-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>4 Methods to Turn off Life 360 On Infinix Hot 40 Pro without Anyone Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/forming-your-vlog-video-structure-with-jump-cuts/"><u>Transforming Your Vlog Video Structure with Jump Cuts</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-elevate-your-video-game-top-tips-for-perfect-live-thumbnails/"><u>[New] 2024 Approved Elevate Your Video Game Top Tips for Perfect Live Thumbnails</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-pinnacle-vision-studio-review-yearly-update/"><u>[New] Pinnacle Vision Studio Review Yearly Update</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-innovative-approaches-to-video-voiceover-integration-for-2024/"><u>[Updated] Innovative Approaches to Video Voiceover Integration for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-kid-friendly-drone-guide-for-first-flyers/"><u>[Updated] The Ultimate Kid-Friendly Drone Guide for First Flyers</u></a></li>
+<li><a href="https://article-files.techidaily.com/2024-approved-compendium-of-different-photographic-gadgets/"><u>2024 Approved Compendium of Different Photographic Gadgets</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-craft-engaging-videos-insights-into-youtube-movie-maker/"><u>2024 Approved Craft Engaging Videos Insights Into YouTube Movie Maker</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-oppo-a18-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Oppo A18? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-luminous-transitions-crafting-dynamic-colors/"><u>In 2024, Luminous Transitions Crafting Dynamic Colors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/integrate-soundtracks-with-ppt-visuals/"><u>Integrate Soundtracks with PPT Visuals</u></a></li>
+<li><a href="https://games-able.techidaily.com/navigating-your-way-through-choosing-handheld-gaming-devices/"><u>Navigating Your Way Through Choosing Handheld Gaming Devices</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-in-2024-easily-cut-large-videos-faster-on-mac/"><u>New In 2024, Easily Cut Large Videos Faster on Mac</u></a></li>
 </ul></div>
 

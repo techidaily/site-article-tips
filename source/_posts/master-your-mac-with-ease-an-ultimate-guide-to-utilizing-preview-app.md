@@ -1,7 +1,7 @@
 ---
 title: "\"Master Your Mac with Ease  An Ultimate Guide to Utilizing Preview App\""
-date: 2024-09-13T16:53:51.402Z
-updated: 2024-09-15T17:45:34.057Z
+date: 2024-10-10T17:55:50.863Z
+updated: 2024-10-13T01:22:23.724Z
 tags: 
   - screen-recording
   - ai video
@@ -86,10 +86,10 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Rotate Image in Preview
@@ -103,6 +103,19 @@ Use the method explained above to open the photo in Preview.
 **Step 2: Rotate the Image**
 
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
+
+<!-- affiliate ads begin -->
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### How to Add Text to Image in Preview
 
@@ -119,13 +132,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 **Step 3: Format the Text**
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134489/18498" target="_top" id="2134489">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134489" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134489/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Remove Background in Preview
 
@@ -159,6 +165,13 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -172,16 +185,10 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<span id="1993647">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993647.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993647">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993647.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993647%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
@@ -241,5 +248,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-web.techidaily.com/024-approved-rank-your-videos-right-top-tools-uncovered-for-youtube-success/"><u>[New] 2024 Approved Rank Your Videos Right - Top Tools Uncovered for YouTube Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-compiling-top-iphone-video-apps/"><u>[New] In 2024, Compiling Top iPhone Video Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-renaming-your-podcast-leading-ai-generators-explored/"><u>[New] In 2024, Renaming Your Podcast Leading AI Generators Explored</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-gif-genius-unleashed-the-best-tools-and-methods-of-memetic-artistry/"><u>[Updated] 2024 Approved GIF Genius Unleashed The Best Tools and Methods of Memetic Artistry</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-navigating-the-world-of-advanced-lut-design/"><u>[Updated] In 2024, Navigating the World of Advanced LUT Design</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-seamlessly-shift-focus-with-picart-clear-borders/"><u>[Updated] In 2024, Seamlessly Shift Focus with PicArt Clear Borders</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-in-2024-videos-that-vibe-a-novices-roadmap-on-a-mac-and-youtube/"><u>[Updated] In 2024, Videos That Vibe A Novice's Roadmap on a Mac and YouTube</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-secrets-to-successfully-obtain-windows-movie-maker-6/"><u>[Updated] Secrets to Successfully Obtain Windows Movie Maker 6</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-skullduggery-scribblers-den-for-2024/"><u>[Updated] Skullduggery Scribbler's Den for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-must-have-gear-for-luxury-sedan-sj4000-enthusiasts/"><u>2024 Approved Must-Have Gear for Luxury Sedan SJ4000 Enthusiasts</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/chatgpts-role-in-refining-home-task-management/"><u>ChatGPT's Role in Refining Home Task Management</u></a></li>
+<li><a href="https://fake-location.techidaily.com/does-life360-notify-when-you-log-out-on-motorola-moto-g04-drfone-by-drfone-virtual-android/"><u>Does Life360 Notify When You Log Out On Motorola Moto G04? | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/google-play-services-wont-update-12-fixes-are-here-on-honor-90-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Google Play Services Wont Update? 12 Fixes are Here on Honor 90 Lite | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-quintessential-scene-composers-haven/"><u>In 2024, Quintessential Scene Composer's Haven</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/seamlessly-integrate-android-experience-into-your-windows-10-desktop/"><u>Seamlessly Integrate Android Experience Into Your Windows 10 Desktop</u></a></li>
+</ul></div>
 

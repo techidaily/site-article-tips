@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Crafting the Future's Past  Digital Conversion for Timeless Images\""
-date: 2024-10-04T16:00:26.525Z
-updated: 2024-10-07T16:03:32.072Z
+date: 2024-10-10T05:51:18.703Z
+updated: 2024-10-12T19:35:35.151Z
 tags: 
   - screen-recording
   - ai video
@@ -91,37 +91,24 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139112/17108" target="_top" id="2139112">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139112" border="0" alt="https://techidaily.com" width="250" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139112/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1155462">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1155462.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1155462">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1155462.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1155462%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1155462/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134497/18498" target="_top" id="2134497">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134497" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134497/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -139,20 +126,27 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 5\. Export your video
 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484945/16446" target="_top" id="1484945">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484945" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484945/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Find more fancy ways to make the best photo and video slideshow with Filmora!
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## More Editing Tips for Creating Memorable Videos
 
@@ -182,16 +176,16 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2144287/7443" target="_top" id="2144287">
+  <img src="//a.impactradius-go.com/display-ad/7443-2144287" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144287/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1528696/16446" target="_top" id="1528696">
-  <img src="//a.impactradius-go.com/display-ad/16446-1528696" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528696/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -218,16 +212,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-knowledge.techidaily.com/new-in-2024-best-12-websites-to-download-free-stock-photos/"><u>[New] In 2024, Best 12 Websites to Download Free Stock Photos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-mastering-the-art-of-gesture-tracking/"><u>[Updated] 2024 Approved Mastering the Art of Gesture Tracking</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-best-websites-to-download-a-youtube-ringtone/"><u>2024 Approved Best Websites To Download A YouTube Ringtone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-dji-aerial-innovation-packs-starter-pro-upgrade-high-definition-ultra/"><u>2024 Approved DJI Aerial Innovation Packs Starter, Pro Upgrade, High-Definition Ultra</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-evaluating-m1s-capabilities-for-heavy-duty-media-editing/"><u>2024 Approved Evaluating M1's Capabilities for Heavy-Duty Media Editing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-filmoras-pathway-to-convert-video-avi-files-into-image-gif/"><u>2024 Approved Filmora’s Pathway to Convert Video (AVI) Files Into Image (GIF)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-proven-approaches-to-amass-elite-copyright-free-imagery/"><u>2024 Approved Proven Approaches to Amass Elite, Copyright-Free Imagery</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-remove-device-supervision-from-your-iphone-15-pro-max-by-drfone-ios/"><u>In 2024, Remove Device Supervision From your iPhone 15 Pro Max</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-turning-off-two-factor-authentication-from-iphone-15-pro-max-5-tips-you-must-know-by-drfone-ios/"><u>In 2024, Turning Off Two Factor Authentication From iPhone 15 Pro Max? 5 Tips You Must Know</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/no-more-wi-fi-struggles-easy-tips-for-restoring-ipad-internet-connection/"><u>No More Wi-Fi Struggles: Easy Tips for Restoring iPad Internet Connection</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/1723199750884-troubleshooting-the-poor-connection-quality-message-in-windows-11-resolved/"><u>Troubleshooting the 'Poor Connection Quality' Message in Windows 11 – Resolved!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-hours-to-gigabytes-a-guide-for-filmmakers/"><u>[New] 2024 Approved Hours to Gigabytes A Guide for Filmmakers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlock-potential-with-free-premiere-pro-plans/"><u>[New] 2024 Approved Unlock Potential with Free Premiere Pro Plans</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-cutting-wait-times-for-iphone-time-lapse-videos/"><u>[New] Cutting Wait Times for iPhone Time-Lapse Videos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/levate-engagement-posting-youtube-video-on-fb-for-2024/"><u>[New] Elevate Engagement Posting YouTube Video on FB for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-embracing-the-night-sky-with-iphone-lengthy-exposures/"><u>[New] In 2024, Embracing the Night Sky with iPhone Lengthy Exposures</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-salty-sessions-captured-best-cams-for-surfers/"><u>[New] Salty Sessions Captured - Best Cams for Surfers</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-exploring-the-functionalities-in-free2x-cam-tech/"><u>[Updated] 2024 Approved Exploring the Functionalities in Free2X Cam Tech</u></a></li>
+<li><a href="https://windows11.techidaily.com/decreasing-cpu-and-ram-usage-tackling-unrealcefsubprocess-issues/"><u>Decreasing CPU and RAM Usage: Tackling UnrealCEFSubprocess Issues</u></a></li>
+<li><a href="https://discover-awesome.techidaily.com/evaluating-the-kindle-voyage-top-benefits-vs-drawbacks-before-buying/"><u>Evaluating the Kindle Voyage – Top Benefits vs Drawbacks Before Buying</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-essentials-of-quality-tvs-top-5-with-peak-colors/"><u>The Essentials of Quality TVs Top 5 with Peak Colors</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/tp-link-av2cuity-2000-reviewed-speedy-wireless-alternative-that-could-use-a-makeover/"><u>TP-Link AV2cuity 2000 Reviewed: Speedy Wireless Alternative that Could Use a Makeover</u></a></li>
 </ul></div>
 

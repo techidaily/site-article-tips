@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Create an Affordable, Customizable Virtual Reality Gear\""
-date: 2024-10-01T16:00:31.055Z
-updated: 2024-10-07T16:00:19.532Z
+date: 2024-10-08T18:52:32.960Z
+updated: 2024-10-12T17:05:44.536Z
 tags: 
   - screen-recording
   - ai video
@@ -38,16 +38,10 @@ thumbnail: https://thmb.techidaily.com/b1a9c7a0993599ed99b0e206dce7f79b24d1d4811
  In not more than 3 hours, people were able to construct their own virtual reality viewer. Do you also want to successfully make your own? Here’s what you will need, together with some important tips and tools to properly do it.
 
 <!-- affiliate ads begin -->
-<span id="1993651">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137206/26400" target="_top" id="2137206">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137206" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137206/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1.The accessories you will need
@@ -65,10 +59,10 @@ thumbnail: https://thmb.techidaily.com/b1a9c7a0993599ed99b0e206dce7f79b24d1d4811
  It is recommended to use the right type of cardboard, with the same thickness as that of a durable shoe box. You can use a pizza box, but make sure it offers enough flat surfaced material to work with. Of course, you want something durable, yet slim to work with. In some cases, a couple of additional items might be needed such as ceramic disc magnet, neodymium magnet, some pieces of Velcro, big rubber band and at least 45 mm lenses.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1918698/19272" target="_top" id="1918698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1918698" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1938745/19272" target="_top" id="1938745">
+  <img src="//a.impactradius-go.com/display-ad/19272-1938745" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1938745/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2.How to assemble accessories
@@ -84,10 +78,16 @@ thumbnail: https://thmb.techidaily.com/b1a9c7a0993599ed99b0e206dce7f79b24d1d4811
 * If necessary, affix the NFC tag to the cardboard.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144298/7443" target="_top" id="2144298">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144298" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144298/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Pros and cons of DYI Google cardboard
@@ -110,10 +110,10 @@ thumbnail: https://thmb.techidaily.com/b1a9c7a0993599ed99b0e206dce7f79b24d1d4811
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2080342/19272" target="_top" id="2080342">
-  <img src="//a.impactradius-go.com/display-ad/19272-2080342" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2080342/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -141,19 +141,18 @@ Follow @Benjamin Arango
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://video-screen-grab.techidaily.com/new-in-2024-professional-video-recorder-for-windows-pcs/"><u>[New] In 2024, Professional Video Recorder for Windows PCs</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-insta-popularity-on-youtube-jake-pauls-story-unfolded/"><u>[Updated] Insta-Popularity on Youtube Jake Paul’s Story Unfolded</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-budgeting-essentials-for-your-music-video/"><u>2024 Approved Budgeting Essentials for Your Music Video</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-djis-minis-and-airs-no-cost-luts-for-mixing-pros/"><u>2024 Approved DJI's Minis & Airs No Cost LUTS for Mixing Pros</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-social-media-savvy-quick-fire-tips-for-aspiring-online-marketers/"><u>2024 Approved Social Media Savvy Quick-Fire Tips for Aspiring Online Marketers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-streamlined-method-acquire-free-secure-version-of-vlc-on-mac/"><u>2024 Approved Streamlined Method Acquire Free, Secure Version of VLC on MAC</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-utilizing-multiframe-view-an-in-depth-look-at-edges-pip/"><u>2024 Approved Utilizing Multiframe View An In-Depth Look at Edge’s PIP</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-xplits-competitors-for-seamless-streaming/"><u>2024 Approved Xplit's Competitors for Seamless Streaming</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-bypass-iphone-11-passcode-easily-video-inside-by-drfone-ios/"><u>How to Bypass iPhone 11 Passcode Easily Video Inside</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-3-ways-to-erase-iphone-12-when-its-locked-within-seconds-by-drfone-ios/"><u>In 2024, 3 Ways to Erase iPhone 12 When Its Locked Within Seconds</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/in-2024-how-to-bypass-xiaomi-civi-3-frp-in-3-different-ways-by-drfone-android/"><u>In 2024, How To Bypass Xiaomi Civi 3 FRP In 3 Different Ways</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-iphone-6-plus-lock-screen-with-notifications-drfone-by-drfone-ios/"><u>In 2024, How to Make the Most of Your iPhone 6 Plus Lock Screen with Notifications? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-oneplus-nord-n30-se-drfone-by-drfone-virtual-android/"><u>In 2024, Read This Guide to Find a Reliable Alternative to Fake GPS On OnePlus Nord N30 SE | Dr.fone</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/mastering-macos-a-comprehensive-walkthrough-to-refresh-your-wifi-and-bluetooth/"><u>Mastering macOS: A Comprehensive Walkthrough to Refresh Your WiFi & Bluetooth 🏆💻</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-transform-your-photographic-vision-with-iphone-burst-shooting/"><u>[New] 2024 Approved Transform Your Photographic Vision with iPhone Burst Shooting</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-how-to-amplify-in-game-voices-naturally-step-by-step-process-for-free-fire-players-for-2024/"><u>[New] How to Amplify In-Game Voices Naturally Step-by-Step Process for Free Fire Players for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-skyrocketing-growth-top-strategies-to-increase-views-in-freefire-tagging/"><u>[New] Skyrocketing Growth Top Strategies to Increase Views in FreeFire Tagging</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-superior-extra-memory-solution-for-sony-a7c/"><u>[New] Superior Extra Memory Solution for Sony A7C</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-clear-video-ultimate-guide-to-good-cams-mics-for-2024/"><u>[Updated] Clear Video Ultimate Guide to Good Cams' Mics for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-essential-recording-strategies-how-to-capture-the-unrecorded-moments-on-discord-for-2024/"><u>[Updated] Essential Recording Strategies How to Capture the Unrecorded Moments on Discord for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-from-sub-to-srt-with-ease-uncover-our-top-8-software-picks-for-desktop-systems/"><u>[Updated] From SUB to SRT with Ease! Uncover Our Top 8 Software Picks for Desktop Systems</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-integrating-b-roll-effectively-without-distraction/"><u>[Updated] In 2024, Integrating B Roll Effectively Without Distraction</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-ultimate-guide-to-manipulating-image-shapes/"><u>[Updated] In 2024, The Ultimate Guide to Manipulating Image Shapes</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-solutions-to-find-your-xiaomi-redmi-13c-5g-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Solutions to Find Your Xiaomi Redmi 13C 5G Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/step-by-step-instructions-for-activating-high-dynamic-range-in-windows-11-for-2024/"><u>Step-by-Step Instructions for Activating High Dynamic Range in Windows 11 for 2024</u></a></li>
+<li><a href="https://fox-that.techidaily.com/troubleshoot-and-fix-autopopulated-emoji-problems-in-ios-devices-swiftly/"><u>Troubleshoot and Fix Autopopulated Emoji Problems in iOS Devices Swiftly</u></a></li>
+<li><a href="https://apple-account.techidaily.com/your-account-has-been-disabled-in-the-app-store-and-itunes-on-apple-iphone-11-by-drfone-ios/"><u>Your Account Has Been Disabled in the App Store and iTunes On Apple iPhone 11?</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Sculpt Visual Jokes  Adobe Memes Guide\""
-date: 2024-09-08T16:23:01.540Z
-updated: 2024-09-15T16:53:38.827Z
+date: 2024-10-14T05:56:59.835Z
+updated: 2024-10-18T19:01:34.704Z
 tags: 
   - screen-recording
   - ai video
@@ -64,9 +64,23 @@ Step2 Download the image you want to use and drag it onto the Photoshop workspac
 
 ![drag image to workplace ps](https://images.wondershare.com/filmora/article-images/2022/07/drag-image-to-workplace-ps.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135405/19272" target="_top" id="2135405">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135405" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135405/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 The meme can then be enhanced by applying different actions after selection. Any layer can be accessed. By double clicking on a specific layer, you can select blending parameters like outer glow, stroke, drop shadow, etc.
 
 Step4 Finally, save the meme. Go to file and choose "save". Select any extension you want and save.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094477/7443" target="_top" id="2094477">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094477" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094477/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3: Create Meme with After Effects
 
@@ -79,6 +93,13 @@ Adobe After Effects is normally used for staging of a film, video game, and tele
 Step1 Open a brand-new After Effects document. And set your image's dimensions to any suitable size, preferably 700 by 700 pixels (for memes), to have enough space. In the image below, the file has been selected.
 
 ![set image after effects](https://images.wondershare.com/filmora/article-images/2022/07/set-image-after-effects.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step2 If you want to adjust the size of the background layer, you can unlock it by clicking twice. Drag the desired image onto the After Effects workspace, after uploading it.
 
@@ -105,10 +126,10 @@ Step1 By clicking on ‘project’, launch a new Premiere Pro project Set the di
 ![launch new project pr](https://images.wondershare.com/filmora/article-images/2022/07/launch-new-project-pr.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014848/22899" target="_top" id="2014848">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014848" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014848/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2 After downloading the selected image, drag it onto the Premiere pro workspace. After choosing your image in the layer panel, adjust its size to make it fit in the designated area.
@@ -120,17 +141,10 @@ Step3 Create the project by clicking on ‘create’ which will complete the wor
 ![start creating meme premiere](https://images.wondershare.com/filmora/article-images/2022/07/start-creating-meme-premiere.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118322/7443" target="_top" id="2118322">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118322" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118322/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 5: Adobe Alternative to Create Memes - [Filmora](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -155,6 +169,13 @@ Step2 Add your desired text and put it in the right position.
 
 ![add desired text](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948909/19272" target="_top" id="1948909">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948909" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948909/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Complete your meme and download it.
 
 ![complete meme and download it](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
@@ -173,26 +194,26 @@ Step1 Open the Filmora meme maker on your browser. Drag or upload your file on t
 
 ![open filmora meme maker](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557743/17382" target="_top" id="1557743">
+  <img src="//a.impactradius-go.com/display-ad/17382-1557743" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557743/17382" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 Add your desired text and put it in the right position.
 
 ![add desired text](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137204/26400" target="_top" id="2137204">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137204" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137204/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Complete your meme and download it.
 
 ![complete meme and download it](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137412/7443" target="_top" id="2137412">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## The Bottom Line
@@ -221,5 +242,22 @@ There are a number of different tools available on internet for meme making. And
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-glue.techidaily.com/new-in-2024-elevate-your-xbox-gameplay-a-comprehensive-screen-guide/"><u>[New] In 2024, Elevate Your Xbox Gameplay A Comprehensive Screen Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-essential-microphones-for-dynamic-cams/"><u>[New] In 2024, Essential Microphones for Dynamic Cams</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-smart-setup-for-your-windows-11-journey-for-2024/"><u>[New] Smart Setup for Your Windows 11 Journey for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-speeding-up-your-periscope-streams-effortlessly/"><u>[Updated] 2024 Approved Speeding Up Your Periscope Streams Effortlessly</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-adobes-jestful-journey-to-meme-making-for-2024/"><u>[Updated] Adobe's Jestful Journey to Meme-Making for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-dji-drones-entry-plus-and-4k-visionaries/"><u>[Updated] DJI Drones Entry, Plus, and 4K Visionaries</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-becoming-a-pro-at-using-a-tripod-for-clear-high-quality-vlogs/"><u>[Updated] In 2024, Becoming a Pro at Using a Tripod for Clear, High-Quality Vlogs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-preeminent-6-social-channels-for-commercial-expansion/"><u>[Updated] In 2024, Preeminent 6 Social Channels for Commercial Expansion</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/best-7-first-person-shooters-of-the-year-for-2024/"><u>Best 7 First-Person Shooters of the Year for 2024</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/comprehensive-assessment-of-the-superior-dji-air-2s-quadcopter-model/"><u>Comprehensive Assessment of the Superior DJI Air 2S Quadcopter Model</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/how-to-manage-and-prevent-discomfort-in-your-mice-operating-hand-tips-shared-by-zdnet/"><u>How to Manage and Prevent Discomfort in Your Mice-Operating Hand – Tips Shared by ZDNet</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-remove-icloud-on-iphone-13-pro-smoothly-by-drfone-ios/"><u>In 2024, How To Remove iCloud On iPhone 13 Pro Smoothly</u></a></li>
+<li><a href="https://article-tips.techidaily.com/revolutionize-your-augmented-reality-graphics-using-custom-luts-for-2024/"><u>Revolutionize Your Augmented Reality Graphics Using Custom LUTs for 2024</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/secrets-of-selecting-the-best-nba-live-feed-for-2024/"><u>Secrets of Selecting the Best NBA Live Feed for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-breaking-down-your-footage-how-to-split-videos-into-smaller-clips-in-windows-live-movie-maker/"><u>Updated Breaking Down Your Footage How to Split Videos Into Smaller Clips in Windows Live Movie Maker</u></a></li>
+</ul></div>
 

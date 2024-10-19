@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Unleashing Visual Impact  Techniques for AI Text Depth\""
-date: 2024-09-08T16:27:01.254Z
-updated: 2024-09-15T16:52:30.531Z
+date: 2024-10-15T19:18:15.222Z
+updated: 2024-10-18T19:26:09.696Z
 tags: 
   - screen-recording
   - ai video
@@ -61,6 +61,13 @@ Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137220/26400" target="_top" id="2137220">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137220" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137220/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
 ![turn text into three d](https://images.wondershare.com/filmora/article-images/adobe-illustrator-panel.png)
@@ -69,7 +76,21 @@ Step8 Now, all left to do is experiment with the settings in this panel and adju
 
 ![three d illustrator settings](https://images.wondershare.com/filmora/article-images/adobe-illustrator-settings.png)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step9 Finally, it's time to export the image, and you're all done.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151873/7443" target="_top" id="2151873">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151873" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151873/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Best Alternative Way to Create 3D Text Animation
 
@@ -92,15 +113,22 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123748/7443" target="_top" id="2123748">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123748" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123736/7443" target="_top" id="2123736">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123736" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123748/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123736/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148639/16836" target="_top" id="2148639">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148639" border="0" alt="https://techidaily.com" width="180" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148639/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
@@ -125,22 +153,15 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135360/19272" target="_top" id="2135360">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135360" border="0" alt="https://techidaily.com" width="468" height="60"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135415/19272" target="_top" id="2135415">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135415" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135360/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135415/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115914/19272" target="_top" id="2115914">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115914" border="0" alt="https://techidaily.com" width="250" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115914/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
@@ -172,5 +193,18 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-focal-flares-amplifying-your-footage-visually-for-2024/"><u>[New] Focal Flares Amplifying Your Footage Visually for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-ultimate-list-of-browser-recording-software-2023-edition/"><u>[New] The Ultimate List of Browser Recording Software, 2023 Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-cropped-frames-in-media-pro-whats-the-cause/"><u>[Updated] 2024 Approved Cropped Frames in Media Pro What's the Cause?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-achieve-peak-performance-prime-methods-for-zoom-conversion-mastery/"><u>[Updated] In 2024, Achieve Peak Performance Prime Methods for Zoom Conversion Mastery</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-pioneering-prospects-cutting-edge-strategies-in-telegram-advertising/"><u>[Updated] Pioneering Prospects Cutting-Edge Strategies in Telegram Advertising</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-the-reaction-gurus-playbook-crafting-unforgettable-videos-in-under-5-minutes-each/"><u>[Updated] The Reaction Guru's Playbook Crafting Unforgettable Videos in Under 5 Minutes Each</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/expert-picks-the-10-most-affordable-video-conferencing-for-ios-and-android-for-2024/"><u>Expert Picks The 10 Most Affordable Video Conferencing for iOS & Android for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-fake-snapchat-location-without-jailbreak-on-infinix-smart-7-drfone-by-drfone-virtual-android/"><u>How to Fake Snapchat Location without Jailbreak On Infinix Smart 7 | Dr.fone</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/innovative-ways-to-remove-ssgnature-backdrops-fast-for-2024/"><u>Innovative Ways to Remove Ssgnature Backdrops Fast for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-gamer-era-starts-djis-mavic-air-versus-spark-battle-for-2024/"><u>New Gamer Era Starts DJI’s Mavic Air Versus Spark Battle for 2024</u></a></li>
+<li><a href="https://buynow-help.techidaily.com/why-fitbit-sense-is-the-preferred-alternative-to-apple-watch-for-holistic-health/"><u>Why Fitbit Sense Is the Preferred Alternative to Apple Watch for Holistic Health</u></a></li>
+</ul></div>
 

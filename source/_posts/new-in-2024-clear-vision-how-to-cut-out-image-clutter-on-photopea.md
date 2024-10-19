@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Clear Vision  How to Cut Out Image Clutter on Photopea\""
-date: 2024-10-10T06:38:49.612Z
-updated: 2024-10-13T07:38:43.193Z
+date: 2024-10-13T21:02:15.861Z
+updated: 2024-10-19T06:24:09.435Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,13 @@ Photopea offers three options for removing the images' background, i.e., Magic W
 Magic Wand tool is responsible for instantly removing the background of an image with solid colors. In comparison, the Magic Cut tool lets you erase complicated backgrounds.  
 However, if the image is detailed, you have to select the object and remove the background manually. Below we've provided step-by-step guides to show you how you can use the Magic Wand and Magic Cut tools:
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1934288/19272" target="_top" id="1934288">
+  <img src="//a.impactradius-go.com/display-ad/19272-1934288" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934288/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 1\. How To Use The Magic Wand Tool To Remove The Image's Background
 
 Here's how to use the Magic Wand tool to **remove the image's background with Photopea**:
@@ -49,18 +56,25 @@ Step3 Now, simply press the **"Delete"** button on your keyboard to remove the b
 
 ![removing the image background using magic wand in photopea](https://images.wondershare.com/filmora/article-images/2023/03/removing-the-image-background-using-magic-wand-in-photopea.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868571/19272" target="_top" id="1868571">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868571" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868571/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step4 Next, find the **"Tolerance"** option in the top toolbar and increase its value until you get the appropriate number.
 
 ![adjusting the magic wand settings](https://images.wondershare.com/filmora/article-images/2023/03/adjusting-the-magic-wand-settings.png)
 
-Step5 Alternatively, you can reduce the value to deselect the parts of your image. Once you change the value, click on the background and press the **"Delete"** button to remove it.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Step5 Alternatively, you can reduce the value to deselect the parts of your image. Once you change the value, click on the background and press the **"Delete"** button to remove it.
 
 ### 2\. How To Use Magic Cut To Remove The Image's Background
 
@@ -76,14 +90,20 @@ You can modify the brush size using the drop-down icon at the top-right of the w
 
 ![using magic cut to remove image background in photopea](https://images.wondershare.com/filmora/article-images/2023/03/using-magic-cut-to-remove-image-background-in-photopea.png)
 
-Step4 Once satisfied with your changes, click **"OK"** to save your settings and remove the background.
-
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082539/7443" target="_top" id="2082539">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082539" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082539/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977032">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Step4 Once satisfied with your changes, click **"OK"** to save your settings and remove the background.
 
 ### 3\. Select the Subject Manually When The Image Is Detailed
 
@@ -97,16 +117,16 @@ Step2 Now, choose the selection tool you need from the drop-down menu. For this 
 
 ![manually removing the image background in photopea](https://images.wondershare.com/filmora/article-images/2023/03/manually-removing-the-image-background-in-photopea.png)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettius.sjv.io/c/5597632/2139111/17108" target="_top" id="2139111">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139111" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139111/17108" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 In the next step, select your object as precisely as possible. Now, right-click on your selection, and click **"Inverse"** from the drop-down menu.
 
 Step4 Finally, hit the **"Delete"** button to remove the background.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068433/7443" target="_top" id="2068433">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068433" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068433/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## A Bonus Tip: How To Add The New Background After Removing The Image's Background
 
@@ -124,28 +144,40 @@ Step3 Now, click the **"Edit"** option from the top menu and select **"Transform
 
 ![scaling the new background image](https://images.wondershare.com/filmora/article-images/2023/03/scaling-the-new-background-image.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130889/7443" target="_top" id="2130889">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130889" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130889/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step4 Under the **"Layers"** header in the right panel, drag the new image layer below the object layer, and the background will be applied to your object.
 
 ## The Best Photopea's Alternative To Remove The Image's Background
 
 If you want to remove the BG of an image with just one click or of images in bulk, then Wondershare [PixCut](https://pixcut.wondershare.com/) is the best alternative option to Photopea, as it meets all these criteria. Below we've provided the reasons why this tool is the right option:
 
+<!-- affiliate ads begin -->
+<span id="1834903">
+					<video width="864" height="1536" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834903.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834903">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834903.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834903%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834903/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### AI-Based Background Remover
 
 PixCut's Artificial Intelligence-based background remover can erase the background of your images in just a few clicks. You can also use the **"Bulk Remove BG"** feature to erase the background of pictures in bulk.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2016170/19272" target="_top" id="2016170">
-  <img src="//a.impactradius-go.com/display-ad/19272-2016170" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016170/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982596">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982596.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982596">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982596.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982596%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982596/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### Image Resizer
@@ -160,23 +192,9 @@ PixCut also offers the "Erase & Restore" tool to help you remove or restore cert
 
 PixCut gives you the option to change the removed background to something more unique using the presets available on the platform or by adding your own templates/images.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902309/19272" target="_top" id="1902309">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902309" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902309/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### Add Shadow
 
 Once you've erased the background from your objects in PixCut, you can also add shadows by clicking on the **"Add Shadow"** option and checking the **"Shadow"** box. Then, set the Margin, Blur, Opacity, and Angle to your liking!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130874/7443" target="_top" id="2130874">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130874" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130874/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Watermark Remover
 
@@ -185,10 +203,10 @@ PixCut also removes watermarks from your pictures, allowing you to bypass copyri
 ![wondershare pixcut](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948895/19272" target="_top" id="1948895">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948895" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
+  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948895/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## You May Be Interested In: How To Get Free Images
@@ -239,22 +257,24 @@ Additionally, we recommended using Wondershare PixCut as the best alternative to
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-bestow-photographic-frames-with-outer-radial-smearing/"><u>[New] In 2024, Bestow Photographic Frames with Outer Radial Smearing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-depth-appraisal-does-inshot-rule-in-video-edits-in-2024/"><u>[New] In-Depth Appraisal Does InShot Rule in Video Edits, In 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-a-compreranium-of-hand-tracking-systems/"><u>[Updated] 2024 Approved A Compreranium of Hand Tracking Systems</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-capturing-clarity-selecting-10-superior-lenses-for-2024/"><u>[Updated] Capturing Clarity Selecting 10 Superior Lenses for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-essential-list-7-cost-free-video-tags-extractors-on-youtube/"><u>[Updated] In 2024, Essential List 7 Cost-Free Video Tags Extractors on YouTube</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/in-2024-future-proof-files-and-folders-at-zero-price-point-top-20-cloud-service-picks-1tbplus/"><u>In 2024, Future-Proof Files & Folders at Zero Price Point Top 20 Cloud Service Picks (1TB+)</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-gimbal-guide-industrys-favorites/"><u>In 2024, Gimbal Guide Industry's Favorites</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-the-verdict-on-toolwiz-top-notch-mobile-photo-editor/"><u>In 2024, The Verdict on Toolwiz Top-Notch Mobile Photo Editor?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-watermark-wisdom-for-every-photographers-toolkit/"><u>In 2024, Watermark Wisdom for Every Photographer's Toolkit</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-depth-training-on-googles-automatic-transcription-tool/"><u>In-Depth Training on Google's Automatic Transcription Tool</u></a></li>
-<li><a href="https://article-tips.techidaily.com/jest-juggler-mummified-memers/"><u>Jest Juggler Mummified Memers</u></a></li>
-<li><a href="https://common-error.techidaily.com/mastering-the-trick-a-step-by-step-guide-to-fixing-windows-update-error-0x8007001f/"><u>Mastering the Trick: A Step-by-Step Guide to Fixing Windows Update Error 0X8007001F</u></a></li>
-<li><a href="https://howto.techidaily.com/my-videos-arent-playing-on-tecno-spark-10-5g-what-can-i-do-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>My Videos Arent Playing on Tecno Spark 10 5G – What Can I Do? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/reset-pattern-lock-tutorial-for-infinix-by-drfone-android-unlock-android-unlock/"><u>Reset pattern lock Tutorial for Infinix</u></a></li>
-<li><a href="https://win-dash.techidaily.com/solved-access-high-performance-wireless-drivers-for-free/"><u>Solved! Access High-Performance Wireless Drivers for FREE!</u></a></li>
-<li><a href="https://driver-error.techidaily.com/successfully-stopping-recurring-uninstall-of-nvidia-driver/"><u>Successfully Stopping Recurring Uninstall of Nvidia Driver</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/ultimate-workstations-your-tech-dreams-realized/"><u>Ultimate Workstations - Your Tech Dreams Realized</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-10-preferred-online-photo-background-swappers/"><u>[New] 2024 Approved 10 Preferred Online Photo Background Swappers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-extreme-expeditions-the-hero5-black-vs-hero5-session-showdown/"><u>[New] 2024 Approved Extreme Expeditions The Hero5 Black Vs Hero5 Session Showdown</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-seamless-inshot-video-cuts/"><u>[New] 2024 Approved Mastering Seamless Inshot Video Cuts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-best-economical-choice-high-performance-asmr-mic-picks/"><u>[New] Best Economical Choice High-Performance ASMR Mic Picks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-enhancing-digital-art-with-layered-imagery-for-2024/"><u>[New] Enhancing Digital Art with Layered Imagery for 2024</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-top-tier-srt-transformations-for-mac-and-windows-pcs/"><u>[New] In 2024, Top-Tier SRT Transformations for Mac & Windows PCs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-tactics-and-techniques-for-thriving-in-spotifys-adverse/"><u>[New] Tactics and Techniques for Thriving in Spotify's Adverse</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-2024-approved-incorporating-custom-visuals-in-youtube-videos-easily/"><u>[Updated] 2024 Approved Incorporating Custom Visuals in YouTube Videos Easily</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-deeper-look-into-magix-visual-processing/"><u>[Updated] A Deeper Look Into MAGIX Visual Processing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-engineering-eye-catching-podcast-sizzle-reels-for-2024/"><u>[Updated] Engineering Eye-Catching Podcast Sizzle Reels for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-mastering-the-craft-of-epic-gopro-time-lapse-video/"><u>[Updated] In 2024, Mastering the Craft of Epic GoPro Time Lapse Video</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-mastery-in-motion-transform-youtube-videos-into-expressive-gifs-for-2024/"><u>[Updated] Mastery in Motion Transform YouTube Videos Into Expressive GIFs for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-tips-for-applying-luts-in-film-color-grading-for-2024/"><u>[Updated] Tips for Applying LUTs in Film Color Grading for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-understanding-video-duration-20mb-example-for-2024/"><u>[Updated] Understanding Video Duration 20MB Example for 2024</u></a></li>
+<li><a href="https://techtrends.techidaily.com/1-solve-your-iphone-x-xs-and-xr-wireless-charge-issues-effective-fixes-for-non-responsive-inductive-charging/"><u>1. Solve Your iPhone X, XS, and XR Wireless Charge Issues: Effective Fixes for Non-Responsive Inductive Charging</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/how-to-access-your-apple-iphone-13-mini-when-you-forget-the-passcode-drfone-by-drfone-ios/"><u>How to Access Your Apple iPhone 13 mini When You Forget the Passcode? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/solve-your-battlefield-4-silence-ultimate-audio-troubleshooting-guide/"><u>Solve Your Battlefield 4 Silence: Ultimate Audio Troubleshooting Guide</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-ultimate-guide-to-inshot-on-pcs-and-laptops-for-2024/"><u>The Ultimate Guide to Inshot on PCs and Laptops for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/top-rated-smartwatches-the-ultimate-guide/"><u>Top-Rated Smartwatches : The Ultimate Guide</u></a></li>
 </ul></div>
 

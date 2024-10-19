@@ -1,7 +1,7 @@
 ---
 title: "\"The Perfect Blur  Techniques for Smoother Photo Edits\""
-date: 2024-09-09T17:18:54.241Z
-updated: 2024-09-15T16:29:36.338Z
+date: 2024-10-16T18:38:31.323Z
+updated: 2024-10-18T23:08:28.519Z
 tags: 
   - screen-recording
   - ai video
@@ -100,6 +100,13 @@ Right-click on the background layer and choose "Convert to Smart Object." Head o
 
 ![confirm blur settings](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-9.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluetties.sjv.io/c/5597632/2141687/17094" target="_top" id="2141687">
+  <img src="//a.impactradius-go.com/display-ad/17094-2141687" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluetties.sjv.io/i/5597632/2141687/17094" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 3: How to Remove Photo Background?
 
 Want to remove the background from your image? Photoshop offers a photo-cut background solution for that. You can try that by following the steps below:
@@ -115,6 +122,13 @@ Step 2: Refine Outline
 To fix any mistake in your selection, go to the "Select" tab and click "Select and Mask." From the toolbar, choose the "Quick Selection" tool. You can use the minus sign to get rid of the extra background or the plus sign to bring back the background. Click on “OK” and save your image.
 
 ![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
 
@@ -201,10 +215,10 @@ Tick the “Neutralize” box and adjust the “Luminance” and “Intensity”
 ![fix the image colors](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-6.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528688/16446" target="_top" id="1528688">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528688" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528688/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 2: How to Blur Photo Background?
@@ -258,10 +272,10 @@ Unsplash is one of the biggest online storage sites for royalty-free images. You
 ![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2136536/16384" target="_top" id="2136536">
-  <img src="//a.impactradius-go.com/display-ad/16384-2136536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
+  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136536/16384" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. [Pexels](https://www.pexels.com/search/background/)
@@ -336,6 +350,13 @@ Tick the “Neutralize” box and adjust the “Luminance” and “Intensity”
 
 ![fix the image colors](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-6.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137212/26400" target="_top" id="2137212">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137212" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137212/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2: How to Blur Photo Background?
 
 A blurred background helps bring your image into focus. If you want a photo editor to blur background of your image, you can try Photoshop. Here are the steps for that:
@@ -374,13 +395,6 @@ To fix any mistake in your selection, go to the "Select" tab and click "Select a
 
 ![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134235/18498" target="_top" id="2134235">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134235" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134235/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
 
 Looking for a suitable background for your image? You can now download images and swap them for your original backgrounds easily. The following sites offer free background pictures for your every need.
@@ -394,10 +408,16 @@ Unsplash is one of the biggest online storage sites for royalty-free images. You
 ![unsplash background website](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-12.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
-  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1983473">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983473.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983473">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983473.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983473%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983473/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. [Pexels](https://www.pexels.com/search/background/)
@@ -439,6 +459,13 @@ Step 1: Select your Subject
 Add your image to the interface of the program. From the toolbar on the left, tap the “Quick Selection” tool. Now drag the area of the image you want to select using the brush. You can hold the “Alt” key and drag the unwanted areas to remove them from the selection.
 
 ![use quick selection tool](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-1.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step 2: Mask your Selection
 
@@ -488,13 +515,6 @@ Hold the “CTRL” key and select your layer mask. Go to the "Select" tab, find
 
 ![expand selection by pixels](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-8.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135399/19272" target="_top" id="2135399">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135399" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135399/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step 3: Apply Photo Blur
 
 Right-click on the background layer and choose "Convert to Smart Object." Head over to the "Filter" tab, expand "Blur Gallery," and choose "Tilt-Shift." You can change the field lines to adjust the depth of field for your image and create a smooth transition. You can also control the intensity of the blur from the slider present on the right. Click “OK” and save your image.
@@ -516,6 +536,13 @@ Step 2: Refine Outline
 To fix any mistake in your selection, go to the "Select" tab and click "Select and Mask." From the toolbar, choose the "Quick Selection" tool. You can use the minus sign to get rid of the extra background or the plus sign to bring back the background. Click on “OK” and save your image.
 
 ![remove remaining backgroud](https://images.wondershare.com/filmora/article-images/2022/edit-blur-or-remove-photo-background-11.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
+  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 4: 3 Best Websites to Download Stunning Photo Editing Background Images
 
@@ -571,5 +598,24 @@ With a wide range of editing tools available today, you can change any aspect of
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-montages-made-easy-androidios-apps-for-creative-minds/"><u>[New] 2024 Approved Top Montages Made Easy Android/iOS Apps for Creative Minds</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigating-kinemasters-zoom-features-for-professional-results-for-2024/"><u>[New] Navigating Kinemaster's Zoom Features for Professional Results for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-top-vr-game-engines/"><u>[New] Top VR Game Engines</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-expert-tips-reversed-color-effects-in-pictures-for-2024/"><u>[Updated] Expert Tips Reversed Color Effects in Pictures for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-image-enhancement-made-simple-how-to-inject-text-into-pictures-on-windowsmacos-for-2024/"><u>[Updated] Image Enhancement Made Simple How to Inject Text Into Pictures on Windows/MacOS for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-innovative-flight-stability-best-gimbals/"><u>[Updated] In 2024, Innovative Flight Stability Best Gimbals</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-smart-strategies-to-procure-photo-and-video-borders-for-2024/"><u>[Updated] Smart Strategies to Procure Photo & Video Borders for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-a-compre-written-in-code-deciphering-youtube-backlink-building-techniques/"><u>2024 Approved A Compre Written in Code Deciphering YouTube Backlink Building Techniques</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-perfecting-tiktok-videos-efficient-techniques-for-numerical-edits/"><u>2024 Approved Perfecting TikTok Videos Efficient Techniques for Numerical Edits</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-iphone-11-pro-max-data-from-ios-icloud-drfone-by-drfone-ios-data-recovery-ios-data-recovery/"><u>How to Recover iPhone 11 Pro Max Data From iOS iCloud? | Dr.fone</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/iastorasys-blue-screen-of-death-solved/"><u>iaStorA.sys Blue Screen of Death [SOLVED]</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-enhance-your-smile-complimentary-photo-enrichment-app/"><u>In 2024, Enhance Your Smile Complimentary Photo Enrichment App</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/in-2024-premier-free-audio-to-image-software-for-iphones-and-tablets/"><u>In 2024, Premier Free Audio-To-Image Software for iPhones and Tablets</u></a></li>
+<li><a href="https://smart-video-editing.techidaily.com/new-2024-approved-split-your-videos-with-ease-top-5-free-mpeg-splitters/"><u>New 2024 Approved Split Your Videos with Ease Top 5 Free MPEG Splitters</u></a></li>
+<li><a href="https://fake-location.techidaily.com/thinking-about-changing-your-netflix-region-without-a-vpn-on-vivo-t2-pro-5g-drfone-by-drfone-virtual-android/"><u>Thinking About Changing Your Netflix Region Without a VPN On Vivo T2 Pro 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/tips-for-optimizing-virtual-meetings-through-gmail-and-zoom-for-2024/"><u>Tips for Optimizing Virtual Meetings Through Gmail & Zoom for 2024</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/troubleshoot-unresponsive-android-videos/"><u>Troubleshoot Unresponsive Android Videos</u></a></li>
+</ul></div>
 

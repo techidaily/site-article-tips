@@ -1,7 +1,7 @@
 ---
 title: "\"Four-K Faceoff  SJ6 Legend Versus Xiaomi's Yi Prototype\""
-date: 2024-10-07T02:02:49.396Z
-updated: 2024-10-12T17:47:06.805Z
+date: 2024-10-13T03:54:35.960Z
+updated: 2024-10-18T22:00:48.438Z
 tags: 
   - screen-recording
   - ai video
@@ -61,10 +61,10 @@ thumbnail: https://thmb.techidaily.com/14e8ddcfb81fc424c37a798e2f4fac450a83bd3f6
 | Waterproof                     | 40 m (with case)                    | 30 m (with case)          |
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136623/26400" target="_top" id="2136623">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136623" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://laganoo.pxf.io/c/5597632/1528689/16446" target="_top" id="1528689">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528689" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136623/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528689/16446" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Hardware Comparison
@@ -90,16 +90,10 @@ thumbnail: https://thmb.techidaily.com/14e8ddcfb81fc424c37a798e2f4fac450a83bd3f6
  If you are a underwater adventure lover then Yi 4K cannot provide your more satisfactory service because it can go underwater up to 40 meters and this dive is not possible without protective case. The sad part is that the camera box doesn’t include case so you have to make additional payment to buy it. SJ6 legend is designed to offer impressive underwater performance with its ability to go underwater up to 30 meters with ease and a sturdy, sleek, well designed waterproof case is included in its package.
 
 <!-- affiliate ads begin -->
-<span id="1977032">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977032.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977032">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977032.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977032%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977032/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2135374/19272" target="_top" id="2135374">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135374" border="0" alt="https://techidaily.com" width="468" height="60"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135374/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Features and Performance Comparison
@@ -117,16 +111,10 @@ thumbnail: https://thmb.techidaily.com/14e8ddcfb81fc424c37a798e2f4fac450a83bd3f6
  If you are found of recording videos on the go then SJ6 Gyro Stabilizer feature can serve you with better results. Simply turn on Gyro mode during your recordings and it will adjust all ups and downs during motion recordings. No matter whether you are going to attach your camera to handlebar or wish to place it on helmet; this camera with ensure quality results in all cases. In case of Yi 4K you will be able to avail electronic image stabilization for 2.7K resolution level. It is designed using 3 axis type gyroscope and also includes 3-axis accelerometer to ensure smooth recording on the go. The cross border compensation feature makes videos more stable.
 
 <!-- affiliate ads begin -->
-<span id="1770776">
-					<video width="240" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1770776.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20702-1770776">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1770776.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Ftokenmetrics.sjv.io%2Fc%2F5597632%2F1770776%2F20702'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1770776/20702" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/2006941/19272" target="_top" id="2006941">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006941" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006941/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -140,10 +128,10 @@ thumbnail: https://thmb.techidaily.com/14e8ddcfb81fc424c37a798e2f4fac450a83bd3f6
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
+  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -171,18 +159,17 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-master-the-art-of-tokenization-with-these-7-nft-creation-apps-for-2024/"><u>[New] Master the Art of Tokenization with These 7 NFT Creation Apps for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-snap-smart-the-best-iphone-and-android-apps-for-photo-stickers/"><u>[New] Snap Smart - The Best iPhone and Android Apps for Photo Stickers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-humorhexagon-snappysatirespace/"><u>[Updated] 2024 Approved HumorHexagon SnappySatireSpace</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/demystifying-patch-tuesday-a-closer-look-at-cybersecurity-practices/"><u>Demystifying Patch Tuesday: A Closer Look at Cybersecurity Practices</u></a></li>
-<li><a href="https://win-top.techidaily.com/expert-tips-securely-rebooting-your-windows-1n-dell-notebook-the-top-4-techniques-you-need-to-know/"><u>Expert Tips: Securely Rebooting Your Windows 1N Dell Notebook - The Top 4 Techniques You Need to Know!</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-apply-these-techniques-to-improve-how-to-detect-fake-gps-location-on-apple-iphone-12-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Apply These Techniques to Improve How to Detect Fake GPS Location On Apple iPhone 12 mini | Dr.fone</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/24-best-practices-in-selecting-youtube-video-extractor-apps-for-android/"><u>In 2024, Best Practices in Selecting YouTube Video Extractor Apps for Android</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-joke-jingles-guide-best-ringtones-online/"><u>In 2024, Joke Jingles Guide Best Ringtones Online</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/master-the-art-of-cost-free-discord-video-extraction-for-desktopmobile-for-2024/"><u>Master the Art of Cost-Free Discord Video Extraction for Desktop/Mobile for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/professionals-palette-prowess-color-command-secrets-for-2024/"><u>Professionals' Palette Prowess - Color Command Secrets for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-ultimate-guide-to-profiting-off-reddit-13-ways-here/"><u>The Ultimate Guide to Profiting Off Reddit - 13 Ways Here</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/understanding-cable-vs-streaming-services-key-distinctions-unveiled/"><u>Understanding Cable Vs. Streaming Services: Key Distinctions Unveiled</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/zero-cost-artificinas-top-6-substitutes-for-sora/"><u>Zero-Cost Artificinas: Top 6 Substitutes for Sora</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-best-bargains-comparing-cloud-storage-prices/"><u>[New] 2024 Approved Best Bargains Comparing Cloud Storage Prices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-first-rate-6-software-for-visual-text-conversion/"><u>[New] In 2024, First-Rate 6 Software for Visual Text Conversion</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-streamlining-zoom-dates-into-iosandroid-and-desktop-plans/"><u>[New] Streamlining Zoom Dates Into iOS/Android and Desktop Plans</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-groundbreaking-gear-for-virtual-reality-players-for-2024/"><u>[Updated] Groundbreaking Gear for Virtual Reality Players for 2024</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/updated-in-2024-a-critical-look-at-the-latest-camera-recording-systems/"><u>[Updated] In 2024, A Critical Look at the Latest Camera Recording Systems</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-best-youtube-to-gif-makers-you-should-use-online-and-desktop/"><u>[Updated] In 2024, Best YouTube To GIF Makers You Should Use (Online & Desktop)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-calculating-costs-music-video-filming/"><u>[Updated] In 2024, Calculating Costs Music Video Filming</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-unlocking-the-potential-of-youtube-partnerships-tips-for-successful-collabs/"><u>[Updated] In 2024, Unlocking the Potential of YouTube Partnerships Tips for Successful Collabs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-exploring-the-upside-down-world-of-instagram-videos/"><u>2024 Approved Exploring the Upside-Down World of Instagram Videos</u></a></li>
+<li><a href="https://win-answers.techidaily.com/fixing-screen-flicker-in-call-of-duty-warzone/"><u>Fixing Screen Flicker in Call of Duty: Warzone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgot-pattern-lock-heres-how-you-can-unlock-samsung-galaxy-a15-5g-pattern-lock-screen-by-drfone-android/"><u>Forgot Pattern Lock? Heres How You Can Unlock Samsung Galaxy A15 5G Pattern Lock Screen</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-the-ultimate-list-of-8-powerful-daw-options-revolutionize-your-music-production-process/"><u>New In 2024, The Ultimate List of 8 Powerful DAW Options Revolutionize Your Music Production Process</u></a></li>
 </ul></div>
 

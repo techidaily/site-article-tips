@@ -1,7 +1,7 @@
 ---
 title: "\"Hasty Steps  IOS Photos & Videos on Windows\""
-date: 2024-10-10T16:55:03.131Z
-updated: 2024-10-13T00:26:41.734Z
+date: 2024-10-15T02:41:25.779Z
+updated: 2024-10-19T08:26:27.036Z
 tags: 
   - screen-recording
   - ai video
@@ -46,22 +46,15 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
 ![](https://images.wondershare.com/filmora/article-images/transfer-iphone-photo-to-pc-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1896527/19272" target="_top" id="1896527">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896527" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896527/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Click on the My Computer icon on your desktop and locate your iPhone in the Portable Devices section. Double click on the icon to access the contents of your phone, and locate the DCIM folder in the Internal Storage folder where all photos are stored.
 
 ![](https://images.wondershare.com/filmora/article-images/transfer-iphone-photo-to-pc-2.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
  In the next step, you should select all the images you want to transfer to your PC and then use the right-click to copy them to a location on your PC where you want to store them.
 
@@ -85,9 +78,29 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
 
 ![](https://images.wondershare.com/filmora/article-images/transfer-photo-from-iphone-to-pc.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1484963">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1484963.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16446-1484963">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1484963.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1484963%2F16446'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1484963/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Open the software on your PC and click on the iPhone icon in the menu located in the upper left corner of the iTunes. The Settings menu will appear on the left side of your screen and you should click on the Photo tab. At the top of the screen, you'll be able to see the Sync Photo checkbox, click on it and then select the folder from the drop-down menu.
 
  Locate the folder on your iPhone in which images you want to sync are located and select them. Once you've selected all pictures you want to transfer click on the Apply button located at the lower right corner of your screen. The duration of the transfer depends on the version of the Windows you have, and the transfer may be slow on some older versions of the OS.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082527/7443" target="_top" id="2082527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082527" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082527/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Method 3: Transferring iPhone photos via iCloud to a PC
 
@@ -95,22 +108,21 @@ thumbnail: https://thmb.techidaily.com/b57bdcbb41c7763c82190be25c28d361f666df503
 
 ![](https://images.wondershare.com/filmora/article-images/icloud-photo-from-iphone-to-pc.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
-  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
  You need to enable iCloud service on your iPhone in your phone's Settings menu and enable the Photo Stream option in order to start backing up your photos on a PC. Afterwards, you should install the iCloud Control Panel on your computer and two devices should be synced-in. However, transferring your videos with iCloud is not an option, and photos taken before this service was activated will not be automatically transferred. Despite this iCloud is an extremely simple and efficient way to back up all of your photos, and make sure that you can always have enough free space on your iPhone to take amazing photos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997717/19272" target="_top" id="1997717">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997717" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997717/19272" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328683">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328683.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328683">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328683.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328683%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328683/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -138,24 +150,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-evaluating-second-count-for-a-20mb-visual-file/"><u>[New] 2024 Approved Evaluating Second Count for a 20MB Visual File</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/new-2024-approved-ultimate-video-mastery-for-professional-vimeo-users/"><u>[New] 2024 Approved Ultimate Video Mastery for Professional Vimeo Users</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-screens-sole-contender-software-or-hardware-triumph/"><u>[New] In 2024, The Screen's Sole Contender Software or Hardware Triumph?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-iphone-meme-magic/"><u>[New] IPhone Meme Magic</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-digital-diagnostics-vll-app-examination/"><u>[Updated] 2024 Approved Digital Diagnostics VLL App Examination</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-creative-collage-companions-the-top-8-smartphone-apps-for-2024/"><u>[Updated] Creative Collage Companions The Top 8 Smartphone Apps for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-discover-the-leading-mobile-movie-units/"><u>[Updated] Discover the Leading Mobile Movie Units</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-quick-video-recorder-download-and-record-video-for-2024/"><u>[Updated] Quick Video Recorder Download and Record Video for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-complete-drone-equipment-collection-guide/"><u>[Updated] The Complete Drone Equipment Collection Guide</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-oneplus-11-5g-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset OnePlus 11 5G Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-spotify-location-after-moving-to-another-country-on-samsung-galaxy-s23-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Spotify Location After Moving to Another Country On Samsung Galaxy S23 Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-13-apples-new-iphone-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 13, Apples New iPhone | Dr.fone</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-iphone-14-plus-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for iPhone 14 Plus</u></a></li>
-<li><a href="https://video-capture.techidaily.com/splitcam-review/"><u>SplitCam Review</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/tips-and-tricks-for-joining-friends-live-on-tiktok-for-2024/"><u>Tips & Tricks for Joining Friends' LIVE on TikTok for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/top-online-sources-for-3d-glitter-text-designs-for-2024/"><u>Top Online Sources for 3D Glitter Text Designs for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/transforming-viewers-into-active-participants-for-2024/"><u>Transforming Viewers Into Active Participants for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/ultimate-vr-clarity-achieved/"><u>Ultimate VR Clarity Achieved</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unlock-the-power-of-chatbot-conversations-5-essential-tips-for-writing-high-impact-gpt-prompts/"><u>Unlock the Power of Chatbot Conversations: 5 Essential Tips for Writing High-Impact GPT Prompts</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-link-up-titles-video-upload-to-twittertumblr/"><u>[New] 2024 Approved Link-Up Titles Video Upload to Twitter/Tumblr</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-affordable-4k-lens-and-recorders/"><u>[New] Affordable 4K Lens & Recorders</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-ideal-strategies-for-noiseless-filming/"><u>[New] In 2024, Ideal Strategies for Noiseless Filming</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-pioneering-video-tech-s-camera-race/"><u>[New] In 2024, Pioneering Video Tech 'S Camera Race</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-storyboard-suite-for-windows-for-2024/"><u>[New] Storyboard Suite for Windows for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-2024-approved-how-to-craft-engaging-trailers-that-drive-channels-sales/"><u>[Updated] 2024 Approved How to Craft Engaging Trailers that Drive Channels' Sales</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-best-practices-for-seamless-transitions-using-b-roll/"><u>[Updated] Best Practices for Seamless Transitions Using B Roll</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-building-a-successful-facebook-charity-competition-for-2024/"><u>[Updated] Building a Successful Facebook Charity Competition for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-fcp-without-spending-practical-guide/"><u>[Updated] FCP Without Spending – Practical Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-pioneering-sci-fi-escapades-10-movies-into-uncharted-realms/"><u>[Updated] In 2024, Pioneering Sci-Fi Escapades 10 Movies Into Uncharted Realms</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-utilizing-alternate-shots-to-elevate-film-quality/"><u>2024 Approved Utilizing Alternate Shots to Elevate Film Quality</u></a></li>
+<li><a href="https://article-tips.techidaily.com/get-the-best-deal-high-performance-msi-aegis-r2-rtx-nvidia-4070-super-intel-core-i7-14700kf-under-1600-premium-prebuilt-gaming-pc-sale/"><u>Get the Best Deal: High-Performance MSI Aegis R2 (RTX nVidia 4070 Super, Intel Core I7-14700KF) Under $1,600 - Premium Prebuilt Gaming PC Sale!</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/m4p-mp3/"><u>M4P から MP3 への変換：専用ソフトウェアを使った最適な手順</u></a></li>
+<li><a href="https://article-tips.techidaily.com/master-your-photos-the-prime-selection-of-no-cost-editors/"><u>Master Your Photos The Prime Selection of No-Cost Editors</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unlock-israels-charms-invaluable-travel-tips-and-phrases/"><u>Unlock Israel's Charms: Invaluable Travel Tips & Phrases</u></a></li>
 </ul></div>
 

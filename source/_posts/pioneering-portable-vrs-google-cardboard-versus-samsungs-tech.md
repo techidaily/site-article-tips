@@ -1,7 +1,7 @@
 ---
 title: "\"Pioneering Portable VRs  Google Cardboard Versus Samsung's Tech\""
-date: 2024-09-14T16:37:53.547Z
-updated: 2024-09-15T17:06:39.079Z
+date: 2024-10-17T04:10:31.424Z
+updated: 2024-10-18T21:34:46.973Z
 tags: 
   - screen-recording
   - ai video
@@ -32,11 +32,25 @@ thumbnail: https://thmb.techidaily.com/a3895cce3360de5913e31306b1dac3362ecfc87f8
 
  The Samsung Gear VR is the product that comes when you combine the expertise of the best Virtual Reality Company and the best smart phone brand in the world. Samsung Gear VR is a combined collaboration between Samsung and Oculus. This Virtual reality headset is made for only Samsung phones and retails around 100$ which is almost 5 times more than the Google cardboard. Gear VR is packed with functionality it has a very firm phone stand inside of which you can easily put any phone. It connects to your phone through the charging port and as soon as you connect the phone it starts the VR software in it. You can also control the volume and the zoom through this headset. You can also play many games on it through the Oculus app which is present on the app store for Gear VR only.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2036486/19272" target="_top" id="2036486">
+  <img src="//a.impactradius-go.com/display-ad/19272-2036486" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036486/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### Samsung Gear VR
 
  Samsung just partnered with Oculus to bring you the Samsung Gear VR headset in 2014 and now the new Samsung Gear VR introduced with the Galaxy S7 is jam packed with new features that are ready to blow your mind. The new Gear is 19 percent lighter than the previous model so it doesn’t feel like a brick tied to your head. The straps are more elastic and give a better fit than the previous model, the padding around the eyes and nose gives a very comfortable grip. The new VR has a USB type c port you can also switch it micro USB to make it compatible with the older versions of Samsung phones.
 
  The best part about the new Samsung Gear is the new lens that is clearer and gives a glare free view of the screen. Along with the new lens there are some more features in the Samsung Gear VR, You can plug in headphones in your phone and enjoy the whole VR experience with sound Samsung ahs specially made ports in the headset for it. Samsung has also introduced some buttons to change the volume of the device from the Gear itself. The previous versions had a problem that the lenses tend to mist up thus making you unable to see clearly but in this version the issue has been resolved.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012406/19272" target="_top" id="2012406">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012406" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012406/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### Google Cardboard
 
@@ -45,6 +59,13 @@ thumbnail: https://thmb.techidaily.com/a3895cce3360de5913e31306b1dac3362ecfc87f8
  Google cardboard does not have any volume control options no flaps straps to attach the device directly on your head, the build quality is as poor as it can get. There are many downsides to the Google cardboard but if you look at its price you realize it is a pretty good deal for 20$ you are getting a VR headset who would’ve thought this was possible?
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037338/7443" target="_top" id="2037338">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037338" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037338/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -69,12 +90,20 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137214/26400" target="_top" id="2137214">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137214" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137214/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-optimal-owing-uavs-heavy-load-drone-rankings/"><u>[New] In 2024, Optimal Owing UAVs Heavy Load Drone Rankings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-uncomplicated-podcast-live-master-the-art-of-livestreaming-for-2024/"><u>[New] Uncomplicated Podcast Live Master the Art of Livestreaming for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-navigating-the-virtual-landscape-of-xbox-zoom/"><u>[Updated] 2024 Approved Navigating the Virtual Landscape of Xbox Zoom</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-2024-approved-visionupgrade-pro-universal-platform-edition/"><u>[Updated] 2024 Approved VisionUpgrade Pro – Universal Platform Edition</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-acquiring-vivid-clipart-without-investment/"><u>[Updated] In 2024, Acquiring Vivid Clipart Without Investment</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-catching-life-in-motion-iphones-burst-capability/"><u>[Updated] In 2024, Catching Life in Motion IPhone's Burst Capability</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-engaging-spectacle-top-6-video-strategies-that-work/"><u>[Updated] In 2024, Engaging Spectacle Top 6 Video Strategies That Work</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-major-listing-of-affordable-visual-content-sites/"><u>[Updated] Major Listing of Affordable Visual Content Sites</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-exit-android-factory-mode-on-honor-80-pro-straight-screen-edition-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Exit Android Factory Mode On Honor 80 Pro Straight Screen Edition? | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-use-phone-clone-to-migrate-your-oppo-find-n3-data-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Use Phone Clone to Migrate Your Oppo Find N3 Data? | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/in-2024-supreme-4k-display-selection-the-best-of-ten/"><u>In 2024, Supreme 4K Display Selection The Best of Ten</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/seamless-stories-from-the-past-accessing-older-fb-content-on-pcmobile-for-2024/"><u>Seamless Stories From The Past Accessing Older FB Content on PC/Mobile for 2024</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/stepping-into-the-field-a-guide-to-starting-your-journey-as-a-prompt-engineer/"><u>Stepping Into the Field: A Guide to Starting Your Journey as a Prompt Engineer</u></a></li>
+</ul></div>
 

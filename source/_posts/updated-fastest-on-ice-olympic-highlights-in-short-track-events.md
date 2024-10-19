@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Fastest on Ice  Olympic Highlights in Short Track Events\""
-date: 2024-10-11T05:16:03.832Z
-updated: 2024-10-13T09:01:21.003Z
+date: 2024-10-14T09:01:21.680Z
+updated: 2024-10-18T18:01:51.942Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,13 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528700/16446" target="_top" id="1528700">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528700" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528700/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
@@ -53,45 +60,37 @@ Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian na
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151854/7443" target="_top" id="2151854">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151854" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151854/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1977004">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1977004.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1977004">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977004.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977004%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977004/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896541/19272" target="_top" id="1896541">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896541" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896541/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902289/19272" target="_top" id="1902289">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902289" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902289/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082542/7443" target="_top" id="2082542">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082542" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082542/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -126,10 +125,10 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137227/26400" target="_top" id="2137227">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137227" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006919/19272" target="_top" id="2006919">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006919" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137227/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006919/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -141,6 +140,13 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2047366/19272" target="_top" id="2047366">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047366" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047366/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -165,18 +171,19 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-voice-your-thoughts-encouraging-commentary-on-your-content/"><u>[New] Voice Your Thoughts Encouraging Commentary on Your Content</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-vr-action-cams-face-off-hero5-black-vs-yis-new-release-for-2024/"><u>[New] VR Action Cams Face-Off Hero5 Black Vs. Yi's New Release for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastering-movies-with-yi-4k-hero/"><u>[Updated] 2024 Approved Mastering Movies with YI 4K HERO</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-guide-to-downgrade-from-sierra-to-el-capitan-on-macs/"><u>[Updated] Guide to Downgrade From Sierra to El Capitan on Macs</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-interactive-cosmos-explored-metaverse-versus-omniverse-discussed-for-2024/"><u>[Updated] Interactive Cosmos Explored Metaverse Versus Omniverse Discussed for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-tomorrows-reflection-varied-solutions-for-2024/"><u>[Updated] Tomorrow’s Reflection Varied Solutions for 2024</u></a></li>
-<li><a href="https://discover-helper.techidaily.com/handbrake-and-av1-is-it-compatible-for-encoding/"><u>HandBrake and AV1: Is It Compatible for Encoding?</u></a></li>
-<li><a href="https://video-capture.techidaily.com/the-hidden-pathway-to-logging-in-depth-whatsapp-chats-for-2024/"><u>The Hidden Pathway to Logging In-Depth WhatsApp Chats for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/troubleshooting-not-found-or-missing-msstdfmtdll-errors-efficiently/"><u>Troubleshooting Not Found or Missing Msstdfmt.dll Errors Efficiently</u></a></li>
-<li><a href="https://discover-alternatives.techidaily.com/windows-10-dvd-tv/"><u>Windows 10 用 DVD 最終化ガイド: TV や別ディスク再生機に対応</u></a></li>
-<li><a href="https://discover-exceptional.techidaily.com/1728465222029-windows-server-2022/"><u>Windows Server 2022的快速恢复区创建工具 - 性能顶尖，保安度最高</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/your-step-by-step-journey-to-buying-an-ideal-tv-making-informed-decisions-at-every-stage/"><u>Your Step-by-Step Journey to Buying an Ideal TV: Making Informed Decisions at Every Stage</u></a></li>
-<li><a href="https://article-tips.techidaily.com/zenmotion-hd-comparing-paid-and-free-editors-for-2024/"><u>Zenmotion HD Comparing Paid & Free Editors for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-2024-approved-replay-redux-mastering-iphones-videography-backwards/"><u>[New] 2024 Approved Replay Redux Mastering iPhone's Videography Backwards</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-master-iphone-podcast-downloads-a-comprehensible-approach/"><u>[New] Master iPhone Podcast Downloads A Comprehensible Approach</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-video-streamers-essentials-ultimate-hd-camera-guide/"><u>[New] Video Streamers' Essentials – Ultimate HD Camera Guide</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-ideal-screen-recorder-picks-for-digital-educators/"><u>[Updated] 2024 Approved Ideal Screen Recorder Picks for Digital Educators</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-broadcast-brilliance-with-cost-effective-templates-for-2024/"><u>[Updated] Broadcast Brilliance with Cost-Effective Templates for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-elevating-video-quality-with-captivating-soundtracks-for-2024/"><u>[Updated] Elevating Video Quality with Captivating Soundtracks for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-engaging-spectacle-top-6-video-strategies-that-work/"><u>2024 Approved Engaging Spectacle Top 6 Video Strategies That Work</u></a></li>
+<li><a href="https://howto.techidaily.com/7-solutions-to-fix-chrome-crashes-or-wont-open-on-vivo-y100i-power-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Chrome Crashes or Wont Open on Vivo Y100i Power 5G | Dr.fone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/adopt-amd-for-blockchain-gaming-and-transactions-windows/"><u>Adopt AMD for Blockchain Gaming and Transactions (Windows)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discover-best-watermarking-apps-for-images-for-2024/"><u>Discover Best WaterMarking Apps for Images for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-reset-the-security-questions-of-your-apple-id-on-your-iphone-15-by-drfone-ios/"><u>How To Reset the Security Questions of Your Apple ID On Your iPhone 15</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-beyond-the-screen-vrs-creative-applications/"><u>In 2024, Beyond the Screen VR's Creative Applications</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-the-complete-guide-to-oneplus-12r-frp-bypass-everything-you-need-to-know-by-drfone-android/"><u>In 2024, The Complete Guide to OnePlus 12R FRP Bypass Everything You Need to Know</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-pinnacle-guide-to-choosing-top-after-effects-plugins/"><u>In 2024, The Pinnacle Guide to Choosing Top After Effects Plugins</u></a></li>
 </ul></div>
 

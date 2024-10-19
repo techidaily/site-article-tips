@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Unveiling the Syma X5C  A Beginner’s Prime Drone Choice\""
-date: 2024-09-13T17:24:48.323Z
-updated: 2024-09-15T17:16:50.302Z
+date: 2024-10-16T17:54:14.794Z
+updated: 2024-10-19T03:07:24.845Z
 tags: 
   - screen-recording
   - ai video
@@ -91,19 +91,47 @@ thumbnail: https://thmb.techidaily.com/f7008ec86977e694421ef724a35a33c6fec32d457
 
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
+  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
 
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2087262/19272" target="_top" id="2087262">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087262" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087262/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389">
+  <img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Conclusion
 
  Syma's X5C can be included in the list of must buy product for beginners due to its all incredible features. If you are a beginner and are just going to learn about flight basics then this advanced camera unit can serve you best with all impressive controls. Its sleek design along with feature rich platform offers lots of things to explore in air. You will definitely love to enjoy its regular and expert mode settings with unique flight experiences.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://unicoeye.pxf.io/c/5597632/2134229/18498" target="_top" id="2134229">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134229/18498" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -128,12 +156,21 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
-
-
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123473/16836" target="_top" id="2123473">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123473" border="0" alt="https://techidaily.com" width="254" height="90"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123473/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-creating-a-memorable-podcast-niche-top-ai-name-generators/"><u>[New] 2024 Approved Creating a Memorable Podcast Niche – Top AI Name Generators</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-cutting-edge-ai-photo-enhancement-suite/"><u>[New] 2024 Approved Cutting-Edge AI Photo Enhancement Suite</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-pushing-boundaries-with-advanced-audacity-recording/"><u>[New] 2024 Approved Pushing Boundaries with Advanced Audacity Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-best-practice-animation-series/"><u>[New] In 2024, Best Practice Animation Series</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/new-leading-android-moba-games-unveiled-for-2024/"><u>[New] Leading Android MOBA Games Unveiled for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-color-perfection-interface/"><u>[Updated] Color Perfection Interface</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-premiered-patterns-for-panzoid-creation/"><u>[Updated] Premiered Patterns for Panzoid Creation</u></a></li>
+<li><a href="https://extra-information.techidaily.com/crafting-spectacular-time-lapses-with-gopro-hero5-black-for-2024/"><u>Crafting Spectacular Time-Lapses with GoPro Hero5 Black for 2024</u></a></li>
+<li><a href="https://facebook.techidaily.com/how-to-activate-subdued-visuals-for-facebook/"><u>How to Activate Subdued Visuals for Facebook</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/how-to-fix-unresponsive-phone-touchscreen-of-honor-x7b-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Fix Unresponsive Phone Touchscreen Of Honor X7b | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-how-to-restore-windows-photo-viewer-in-windows-10/"><u>In 2024, How to Restore Windows Photo Viewer in Windows 10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-pro-tips-for-shooting-quality-gopro-time-lapse-videos/"><u>In 2024, Pro Tips for Shooting Quality GoPro Time-Lapse Videos</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/mastering-lock-screen-settings-how-to-enable-and-disable-on-vivo-y27-5g-by-drfone-android/"><u>Mastering Lock Screen Settings How to Enable and Disable on Vivo Y27 5G</u></a></li>
+<li><a href="https://ai-video-tools.techidaily.com/updated-adobe-premiere-rush-vs-the-competition-top-4-alternatives-for-2024/"><u>Updated Adobe Premiere Rush Vs. The Competition Top 4 Alternatives for 2024</u></a></li>
+</ul></div>
 

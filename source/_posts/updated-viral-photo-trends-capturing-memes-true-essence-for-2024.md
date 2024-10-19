@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Viral Photo Trends  Capturing Memes' True Essence for 2024\""
-date: 2024-10-08T22:52:28.583Z
-updated: 2024-10-13T08:58:08.435Z
+date: 2024-10-14T16:13:10.377Z
+updated: 2024-10-18T20:15:53.974Z
 tags: 
   - screen-recording
   - ai video
@@ -49,16 +49,16 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
 <!-- affiliate ads begin -->
-<span id="1983539">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+<span id="1975636">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1975636.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1975636">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1975636.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1975636%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1975636/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part2: Distracted Boyfriend
@@ -67,16 +67,16 @@ Another popular stock image meme is Distracted Boyfriend. It features the stock 
 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135371/19272" target="_top" id="2135371">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135371" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135371/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
@@ -91,14 +91,14 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i357552.net/c/5597632/1001453/11832" target="_top" id="1001453">
-  <img src="//a.impactradius-go.com/display-ad/11832-1001453" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i357552.net/i/5597632/1001453/11832" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068432/7443" target="_top" id="2068432">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068432" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068432/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part3: I Bet He's Thinking About Other Women
 
@@ -111,10 +111,10 @@ However, subsequent memes feature satirical themes. Here are some of the most po
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1975807/19272" target="_top" id="1975807">
-  <img src="//a.impactradius-go.com/display-ad/19272-1975807" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2047361/19272" target="_top" id="2047361">
+  <img src="//a.impactradius-go.com/display-ad/19272-2047361" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975807/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2047361/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
@@ -131,14 +131,14 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
 
-Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
-
 <!-- affiliate ads begin -->
-<a href="https://homestyler.sjv.io/c/5597632/1943647/22993" target="_top" id="1943647">
-  <img src="//a.impactradius-go.com/display-ad/22993-1943647" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
+  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://homestyler.sjv.io/i/5597632/1943647/22993" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
 ## Part4: Bonjour Bear
 
@@ -159,14 +159,14 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
-## Part5: FAQs
-
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135359/19272" target="_top" id="2135359">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135359" border="0" alt="https://techidaily.com" width="392" height="72"/>
+<a href="https://bluettius.sjv.io/c/5597632/2139120/17108" target="_top" id="2139120">
+  <img src="//a.impactradius-go.com/display-ad/17108-2139120" border="0" alt="https://techidaily.com" width="250" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135359/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139120/17108" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
+## Part5: FAQs
 
 ### 1\. Can you use stock photos for memes?
 
@@ -214,22 +214,17 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-footage.techidaily.com/new-comprehensive-directory-extracting-yt-template-videos-online-for-2024/"><u>[New] Comprehensive Directory Extracting YT Template Videos Online for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-from-basic-to-expert-mastering-the-art-of-adobe-ps-background-removal-for-2024/"><u>[New] From Basic to Expert Mastering the Art of Adobe PS Background Removal for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-elite-selection-of-text-motion-packages/"><u>[New] In 2024, Elite Selection of Text Motion Packages</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-motion-animating-stories-on-instagram/"><u>[New] In 2024, Mastering Motion Animating Stories on Instagram</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/n-2024-strategies-for-full-time-workers-who-create-videos/"><u>[New] In 2024, Strategies for Full-Time Workers Who Create Videos</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-2024-approved-never-a-cap-on-saved-instagram-stories/"><u>[Updated] 2024 Approved Never a Cap on Saved Instagram Stories</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-elite-efficiency-enhancement-codes/"><u>[Updated] In 2024, Elite Efficiency Enhancement Codes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-enhancing-your-podcast-experience-the-art-of-editing-in-garageband/"><u>[Updated] In 2024, Enhancing Your Podcast Experience The Art of Editing in GarageBand</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-master-the-art-of-captivating-audiences-in-tiktok-unpack-videos/"><u>[Updated] In 2024, Master the Art of Captivating Audiences in TikTok Unpack Videos</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/updated-step-up-your-gaming-with-advanced-ps4-capture-techniques-for-2024/"><u>[Updated] Step Up Your Gaming with Advanced PS4 Capture Techniques for 2024</u></a></li>
-<li><a href="https://twitter-clips.techidaily.com/updated-streamline-the-spectacle-exploring-hd-video-on-twitter/"><u>[Updated] Streamline the Spectacle Exploring HD Video on Twitter</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-venturing-into-virtual-steps-top-treadmill-analysis-for-2024/"><u>[Updated] Venturing Into Virtual Steps Top Treadmill Analysis for 2024</u></a></li>
-<li><a href="https://win-tutorials.techidaily.com/1-effortless-methods-moving-your-tunes-from-iphone-to-dell-desktop/"><u>1. Effortless Methods: Moving Your Tunes From iPhone to Dell Desktop</u></a></li>
-<li><a href="https://win-community.techidaily.com/easy-tutorial-on-creating-and-installing-custom-ringtones-m4r-on-ios-devices/"><u>Easy Tutorial on Creating and Installing Custom Ringtones (M4R) on iOS Devices</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-the-error-of-unfortunately-the-processcomandroidphone-has-stopped-on-samsung-galaxy-f54-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix the Error of Unfortunately the Process.com.android.phone Has Stopped on Samsung Galaxy F54 5G | Dr.fone</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/professional-iphone-cinematography-learn-and-apply-top-8-insights/"><u>Professional iPhone Cinematography Learn and Apply Top 8 Insights</u></a></li>
-<li><a href="https://article-tips.techidaily.com/revolutionize-your-humor-learn-through-kinemaster-for-2024/"><u>Revolutionize Your Humor Learn Through KineMaster for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultimate-breakdown-xstudio-video-production-mastery/"><u>[New] 2024 Approved The Ultimate Breakdown XStudio Video Production Mastery</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-perfect-resolution-for-immersive-vr/"><u>[New] In 2024, The Perfect Resolution for Immersive VR</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-professional-strategies-for-inshot-edits/"><u>[Updated] 2024 Approved Professional Strategies for Inshot Edits</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-top-2023-no-cost-live-stream-tools-cross-platform-edition/"><u>[Updated] In 2024, Top 2023 No-Cost Live Stream Tools Cross-Platform Edition</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/crucial-aspects-to-weigh-when-investing-in-a-dash-camera/"><u>Crucial Aspects to Weigh When Investing in a Dash Camera</u></a></li>
+<li><a href="https://fox-where.techidaily.com/easy-guide-to-expanding-a-basic-ssd-on-a-larger-ssd-in-windows-11/"><u>Easy Guide to Expanding a Basic SSD on a Larger SSD in Windows 11</u></a></li>
+<li><a href="https://fake-location.techidaily.com/full-guide-to-fix-itoolab-anygo-not-working-on-apple-iphone-12-drfone-by-drfone-virtual-ios/"><u>Full Guide to Fix iToolab AnyGO Not Working On Apple iPhone 12 | Dr.fone</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/google-tv-and-chromecast-combined-a-complete-guide/"><u>Google TV and Chromecast Combined: A Complete Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/price-scale-for-shooting-tunes-in-visual-narratives-for-2024/"><u>Price Scale for Shooting Tunes in Visual Narratives for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/sculpting-soundtracks-for-animation-using-movie-maker-tools/"><u>Sculpting Soundtracks for Animation Using Movie Maker Tools</u></a></li>
+<li><a href="https://win-cheats.techidaily.com/step-by-step-guide-retrieving-removed-images-from-your-google-hangouts-conversations/"><u>Step-by-Step Guide: Retrieving Removed Images From Your Google Hangouts Conversations</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-5-from-oneplus-12-to-iphone-contacts-transfer-apps-and-software-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 5 from OnePlus 12 to iPhone Contacts Transfer Apps and Software | Dr.fone</u></a></li>
 </ul></div>
 

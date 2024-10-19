@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Essence of Sound Diminishment  A Lumafusion Insight\""
-date: 2024-10-07T03:24:38.697Z
-updated: 2024-10-13T09:40:19.088Z
+date: 2024-10-16T09:28:53.600Z
+updated: 2024-10-19T05:05:24.971Z
 tags: 
   - screen-recording
   - ai video
@@ -45,19 +45,6 @@ Step3 From the choices, choose the Cross Dissolve (Fade) transition. The transit
 
 Beyond simple editing, LumaFusion excels in enhancing projects with a wide variety of built-in effects, transitions, titles, and color correction. It also has a limited (but excellent) collection of royalty-free music. Finally, LumaFusion Project Packages are a terrific solution to regularly backup a project for security or to complete altering it. After choosing Export, choose the Project Package from the list.
 
-<!-- affiliate ads begin -->
-<span id="1983471">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1983471.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1983471">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983471.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983471%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983471/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2\. LumaFusion Alternative Way to Fade Audio in Video
 
 A multi-track video editor made specifically for mobile devices is called LumaFusion. Journalists, filmmakers, and expert video producers often utilize it to create engrossing video narratives. But if you have a toolkit with everything you need already built in so you can use it as needed, fading is unexpectedly made simple. [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) does this task faster than ever because to its user-friendly interface, which makes audio editing in Filmora a breeze.
@@ -80,6 +67,19 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
+<!-- affiliate ads begin -->
+<span id="1982485">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982485.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982485">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982485.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982485%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982485/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -93,10 +93,10 @@ After finishing the method for editing audio in Filmora, click the Export button
 In that window, you can select the MP3 format in the format customization box to continue with storing your file to your system. After making any necessary adjustments to the audio file, click the Export button below, which will ultimately direct you to the area on your PC where you want to store the audio.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2037318/7443" target="_top" id="2037318">
-  <img src="//a.impactradius-go.com/display-ad/7443-2037318" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037318/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3\. Related FAQs about LumaFusion
@@ -108,6 +108,13 @@ Go to Clip Defaults to do that. You may change the Title and Transition lengths 
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/947746/11832" target="_top" id="947746">
+  <img src="//a.impactradius-go.com/display-ad/11832-947746" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/947746/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
 
@@ -127,13 +134,6 @@ Drag and drop your sound recordings from the media library to the timeline at th
 
 ![import audios to fade](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997630/19272" target="_top" id="1997630">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997630" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997630/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step3 Apply Fade Effects
 
 The fade-in audio button inside your audio file may be seen when you just hover over the audio file within the timeline and look for the white circle filled with pink hue at the beginning and finish of your audio file. On the other hand, to choose the fade-out audio, click and drag the pink circle that appears on the opposite end of the audio file in the timeline that you have chosen to fade out the music file.
@@ -148,26 +148,26 @@ In that window, you can select the MP3 format in the format customization box to
 
 ## Part 3\. Related FAQs about LumaFusion
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135365/19272" target="_top" id="2135365">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135365" border="0" alt="https://techidaily.com" width="125" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135365/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. How do you fade in a title LumaFusion?
 
 Go to Clip Defaults to do that. You may change the Title and Transition lengths here. Check to check whether the updated defaults have been implemented by adding a new title or transition after making the necessary modifications. By cursorily browsing the title in the browser, you can get a preview.
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 2\. How do you do transitions in LumaFusion?
 
 There are several eye-catching transitions included with LumaFusion. The transition may simply be dragged into the timeline and placed between the two pertinent segments. You may modify the duration of it after it's on the timeline in the same way that you would any other clip. Simply choose Transitions from the Sources box, that's it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094414/7443" target="_top" id="2094414">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094414" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100534/7443" target="_top" id="2100534">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100534" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094414/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100534/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 3\. How to you split audio and video in LumaFusion?
@@ -198,18 +198,20 @@ Within the timeline, tap anywhere and move the mouse left or right to divide a c
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-tempo-a-guide-to-instagram-story-adjustments/"><u>[New] In 2024, Mastering Tempo A Guide to Instagram Story Adjustments</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-meme-magic-perfect-10-design-tips-and-tricks/"><u>[New] In 2024, Meme Magic Perfect 10 Design Tips & Tricks</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-proven-methods-to-secure-costless-illustrations-for-2024/"><u>[New] Proven Methods to Secure Costless Illustrations for 2024</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-troubleshoot-and-eliminate-green-screen-issues-on-mac/"><u>[New] Troubleshoot and Eliminate Green Screen Issues on Mac</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-enhancing-media-creation-skills-with-windows-movie-maker-windows-8-edition-for-2024/"><u>[Updated] Enhancing Media Creation Skills with Windows Movie Maker (Windows 8 Edition) for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-social-media-savvy-the-art-of-timing-in-instagram-reels-for-2024/"><u>[Updated] Social Media Savvy The Art of Timing in Instagram Reels for 2024</u></a></li>
-<li><a href="https://fake-location.techidaily.com/a-detailed-vpna-fake-gps-location-free-review-on-xiaomi-redmi-a2-drfone-by-drfone-virtual-android/"><u>A Detailed VPNa Fake GPS Location Free Review On Xiaomi Redmi A2 | Dr.fone</u></a></li>
-<li><a href="https://video-creation-software.techidaily.com/download-and-setup-mpccp-ultimate-guide-for-enhanced-media-playback/"><u>Download & Setup: MPCCP Ultimate Guide for Enhanced Media Playback</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-vivo-s17-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Vivo S17 Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-5-easy-ways-to-change-location-on-youtube-tv-on-oppo-reno-9a-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Easy Ways to Change Location on YouTube TV On Oppo Reno 9A | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-perfect-your-pictures-the-ultimate-guide-to-photo-text-editing/"><u>In 2024, Perfect Your Pictures The Ultimate Guide to Photo Text Editing</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/professional-screenshot-and-video-recorder-win10/"><u>Professional Screenshot & Video Recorder, Win10</u></a></li>
-<li><a href="https://win-blog.techidaily.com/simple-solutions-repairing-a-steam-game-with-a-corrupted-installation-disc/"><u>Simple Solutions: Repairing a Steam Game with a Corrupted Installation Disc</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-expert-recommendations-for-full-rotation-shots/"><u>[New] Expert Recommendations for Full Rotation Shots</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-building-captivating-instagram-feed-layouts/"><u>[New] In 2024, Building Captivating Instagram Feed Layouts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-jokejigsaw-crafting-comedy-graphics/"><u>[New] JokeJigsaw Crafting Comedy Graphics</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/kyrocket-your-channel-navigating-through-youtube-stats-for-2024/"><u>[New] Skyrocket Your Channel Navigating Through YouTube Stats for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-essential-price-matrix-top-cloud-storage-firms-for-2024/"><u>[New] The Essential Price Matrix Top Cloud Storage Firms for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/he-ultimate-how-to-for-your-youtube-music-collection-for-2024/"><u>[New] The Ultimate How-To for Your YouTube Music Collection for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-crafting-compelling-media-with-narrative-overlays-for-2024/"><u>[Updated] Crafting Compelling Media with Narrative Overlays for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-how-to-take-portrait-photo-with-old-iphone-x8-plus7-plus-for-2024/"><u>[Updated] How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-a-beginners-blueprint-for-bolstering-youtube-believers/"><u>[Updated] In 2024, A Beginner's Blueprint for Bolstering YouTube Believers</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-instagram-optimization-top-techniques-for-businesses-and-brands/"><u>2024 Approved Instagram Optimization Top Techniques for Businesses and Brands</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/forgotten-the-voicemail-password-of-samsung-galaxy-a05-try-these-fixes-by-drfone-android/"><u>Forgotten The Voicemail Password Of Samsung Galaxy A05? Try These Fixes</u></a></li>
+<li><a href="https://fox-info.techidaily.com/high-ranking-12-cameras-onboard-gps-for-motion-capture-for-2024/"><u>High-Ranking 12 Cameras Onboard GPS for Motion Capture for 2024</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-everything-to-know-about-apple-id-password-requirements-for-apple-iphone-12-pro-by-drfone-ios/"><u>In 2024, Everything To Know About Apple ID Password Requirements For Apple iPhone 12 Pro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-navigating-the-intricacies-of-morphvox-evolution/"><u>In 2024, Navigating the Intricacies of MorphVOX Evolution</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-top-tier-rankings-for-podcasts-a-seo-masterclass/"><u>In 2024, Top-Tier Rankings for Podcasts A Seo Masterclass</u></a></li>
 </ul></div>
 

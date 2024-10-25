@@ -1,7 +1,7 @@
 ---
 title: "In-Depth Review of the Razer Portal: Top Choice Wireless Router for Gamers"
-date: 2024-10-11T16:33:52.940Z
-updated: 2024-10-19T03:30:10.446Z
+date: 2024-10-23T02:36:31.498Z
+updated: 2024-10-25T00:12:13.210Z
 categories:
   - BestProducts
 description: "This Article Describes In-Depth Review of the Razer Portal: Top Choice Wireless Router for Gamers"
@@ -70,6 +70,19 @@ _Our reviewer already owned this product._
 
  A couple gaming sessions later, and I realized I needed a[laptop cooling pad](https://www.lifewire.com/best-laptop-cooling-pads-4149823) . After taking a look at various models, I decided to try out the HAVIT 5 Gaming Laptop Cooling Pad. It boasts five fans and an adjustable rollout switch to customize my cooling experience. And it offers anti-slip baffles so my curious cat can't knock it off my laptop. After over a year of use, I still use this almost every day for my gaming needs. Read on for our final verdict, as well as thoughts on its specs.
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Design: Looks like a gamer’s cooling pad
 
  HAVIT offers this laptop cooling pad in two different colors: red and blue. I personally felt that the red would be too bright and opted for the blue; when I pulled it out of the box, I was surprised at how heavy its 1.8 pounds felt in my hand.
@@ -77,13 +90,6 @@ _Our reviewer already owned this product._
  On top of the pad itself, it comes with a braided USB cord for protection. It could plug into one of two ports, of which I used the spare to add USB charging for USB compatible items like my[Amazon Kindle](https://www.lifewire.com/amazon-kindle-2019-review-4688850) and[Java Bluetooth headset](https://www.lifewire.com/jabra-talk-45-review-5070286) .
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/J6RTKS-ZdzNqPyF_Tm9lloOF1iM=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_04-5a7071fefb884ba19eb68638fdbf1b2b.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134493/18498" target="_top" id="2134493">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134493" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134493/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
 
@@ -102,10 +108,10 @@ Lifewire / Rebecca Isaacs
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/l2nDOOm1dGSmniJBqJPn708DnK8=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_03-71babed64c14425184604e4825680aac.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2105867/7443" target="_top" id="2105867">
-  <img src="//a.impactradius-go.com/display-ad/7443-2105867" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2105882/7443" target="_top" id="2105882">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105882" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105867/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105882/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Lifewire / Rebecca Isaacs
@@ -122,13 +128,6 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/hXjExslBR5KBA1RSMPFlkkvF1uQ=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_02-f065f40118184391b6f1ba1bffa763bd.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aidotcom.pxf.io/c/5597632/2134503/19576" target="_top" id="2134503">
-  <img src="//a.impactradius-go.com/display-ad/19576-2134503" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134503/19576" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Lifewire / Rebecca Isaacs
 
  And, if you’re on-the-go and travelling, the HAVIT 5 also packs quite nicely into a suitcase. Be sure to play it safe like I did and pack it around clothes. But if you need to go across country and want to take your gaming laptop with you, this is a good one that will hold up well in luggage.
@@ -139,7 +138,21 @@ Lifewire / Rebecca Isaacs
 
 ![HAVIT 5 Gaming Laptop Cooling Pad](https://www.lifewire.com/thmb/lItC7F6Ja8RbBfTaNXh5l9ufFqY=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/HAVIT_5_Laptop_Pad_05-07577b69f7d04de5a7904e798681ba02-6b3615a38d584594b89077eaf51228b2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137225/26400" target="_top" id="2137225">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137225" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137225/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Lifewire / Rebecca Isaacs
+
+<!-- affiliate ads begin -->
+<a href="https://coinrule.sjv.io/c/5597632/1958378/18409" target="_top" id="1958378">
+  <img src="//a.impactradius-go.com/display-ad/18409-1958378" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://coinrule.sjv.io/i/5597632/1958378/18409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## HAVIT 5 vs. Kootak Laptop Cooling Pad
 
@@ -165,13 +178,6 @@ Lifewire / Rebecca Isaacs
 * [Flexispot Theodore Standing Desk](https://www.lifewire.com/flexispot-theodore-standing-desk-review-5183806)
 * [Urban Armor Gear MacBook Pro 13-inch Laptop Case](https://www.lifewire.com/urban-armor-gear-macbook-pro-case-review-4689954)
 * [ProCase MacBook Pro 13 Case](https://www.lifewire.com/procase-macbook-pro-13-case-review-4689945)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1885932/19272" target="_top" id="1885932">
-  <img src="//a.impactradius-go.com/display-ad/19272-1885932" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1885932/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Specs
 
@@ -202,15 +208,21 @@ Lifewire / Rebecca Isaacs
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-enhance-your-media-with-top-free-android-editing-tools/"><u>[New] 2024 Approved Enhance Your Media with Top Free Android Editing Tools</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-the-6-best-digital-canvases-ideal-nft-services-for-artists/"><u>[New] The 6 Best Digital Canvases Ideal NFT Services For Artists</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-chucklecanvas-jokesinframes/"><u>[Updated] 2024 Approved ChuckleCanvas JokesInFrames</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-rectifying-gopro-video-warping-a-step-by-step-guide/"><u>[Updated] Rectifying GoPro Video Warping A Step-by-Step Guide</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-infinite-visual-fidelity-premium-hdmi-21-gaming-displays-ps5/"><u>2024 Approved Infinite Visual Fidelity Premium HDMI 2.1 Gaming Displays (PS5)</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guide-to-erase-personal-info-from-sign-in-window/"><u>Guide to Erase Personal Info From Sign-In Window</u></a></li>
-<li><a href="https://howto.techidaily.com/proven-ways-to-fix-there-was-a-problem-parsing-the-package-on-samsung-galaxy-s24-ultra-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Proven Ways to Fix There Was A Problem Parsing the Package on Samsung Galaxy S24 Ultra | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/tips-for-staying-positive-in-the-face-of-critical-youtube-comments-for-2024/"><u>Tips for Staying Positive in the Face of Critical YouTube Comments for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/understanding-and-complying-with-instagrams-audio-ownership-laws/"><u>Understanding and Complying with Instagram's Audio Ownership Laws</u></a></li>
-<li><a href="https://ai-video-tools.techidaily.com/updated-get-lumafusion-for-mac-explore-the-best-video-editing-alternatives-for-2024/"><u>Updated Get Lumafusion for Mac Explore the Best Video Editing Alternatives for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-a-fresh-perspective-on-sony-blu-ray-s6500-features-for-2024/"><u>[New] A Fresh Perspective on Sony Blu-Ray S6500 Features for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-macrofocusadvance-magnify-and-resize-pristine-pics/"><u>[New] MacroFocusAdvance Magnify & Resize Pristine Pics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-prototypical-360-rotation-camera-study/"><u>[New] Prototypical 360° Rotation Camera Study</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-significance-of-video-in-client-promotional-power/"><u>[New] The Significance of Video in Client Promotional Power</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-audiovisual-decision-making-is-podcast-or-youtube-more-appealing/"><u>[Updated] 2024 Approved Audiovisual Decision-Making Is Podcast or YouTube More Appealing?</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-2024-approved-dividedimage-synopsis/"><u>[Updated] 2024 Approved DividedImage Synopsis</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-anonymizing-videos-tips-for-keeping-personal-data-hidden-for-2024/"><u>[Updated] Anonymizing Videos Tips for Keeping Personal Data Hidden for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-behind-the-scenes-how-to-flip-your-snaps/"><u>[Updated] Behind-the-Scenes How to Flip Your Snaps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-excellent-collection-advanced-webcam-supports/"><u>[Updated] Excellent Collection Advanced Webcam Supports</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-next-level-splitting-tools-beyond-xsplit-for-2024/"><u>[Updated] Next-Level Splitting Tools Beyond Xsplit for 2024</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/a-perfect-guide-to-remove-or-disable-google-smart-lock-on-realme-note-50-by-drfone-android/"><u>A Perfect Guide To Remove or Disable Google Smart Lock On Realme Note 50</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/advanced-techniques-for-embedding-srt-into-mp4-files-for-2024/"><u>Advanced Techniques for Embedding SRT Into MP4 Files for 2024</u></a></li>
+<li><a href="https://win-web3.techidaily.com/dealing-with-deletion-difficulties-a-guide-for-removing-unwanted-iphone-photographs-easily/"><u>Dealing with Deletion Difficulties: A Guide for Removing Unwanted iPhone Photographs Easily</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ways-to-trade-pokemon-go-from-far-away-on-realme-gt-5-240w-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to trade pokemon go from far away On Realme GT 5 (240W)? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-music-back-from-itel-a60-by-fonelab-android-recover-music/"><u>Simple ways to get lost music back from Itel A60</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/the-role-of-tech-savvy-staff-in-accelerating-business-transformation/"><u>The Role of Tech-Savvy Staff in Accelerating Business Transformation</u></a></li>
 </ul></div>
 

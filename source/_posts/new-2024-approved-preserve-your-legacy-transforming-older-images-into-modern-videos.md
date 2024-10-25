@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Preserve Your Legacy  Transforming Older Images Into Modern Videos\""
-date: 2024-10-13T17:40:24.282Z
-updated: 2024-10-18T17:44:18.977Z
+date: 2024-10-22T22:46:01.397Z
+updated: 2024-10-24T20:02:36.104Z
 tags: 
   - screen-recording
   - ai video
@@ -70,10 +70,10 @@ Some popular photo scanners that you can consider using are Scanner Pro, PhotoSc
 In case you have a lot of pictures that you wish to scan and little time, then you can also get in touch with some professionals. There are tons of photo digitization services that you can explore in almost every major city to get dedicated assistance.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959773/19272" target="_top" id="1959773">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959773" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2118315/7443" target="_top" id="2118315">
+  <img src="//a.impactradius-go.com/display-ad/7443-2118315" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959773/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118315/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## How to Convert Old Photos into a Video Effortlessly?
@@ -90,13 +90,6 @@ To convert your old photos into stunning videos, you can take the assistance of 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141676/17091" target="_top" id="2141676">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141676" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141676/17091" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 To learn how to come up with an impressive video collage using Filmora, just follow these steps:
 
 #### 1\.  Import your digitized photos
@@ -111,13 +104,6 @@ Once you have imported your photos, you can include them in the timeline. To do 
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
@@ -125,10 +111,10 @@ Just above the timeline, you can find all kinds of tools to edit your video. For
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094480/7443" target="_top" id="2094480">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094480" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://jalbum-affiliate-program.sjv.io/c/5597632/1838960/17916" target="_top" id="1838960">
+  <img src="//a.impactradius-go.com/display-ad/17916-1838960" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094480/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://jalbum-affiliate-program.sjv.io/i/5597632/1838960/17916" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
@@ -152,6 +138,13 @@ Besides that, you can also add a track to the video by visiting the “Audio” 
 That’s it! After making all the changes, you can preview your video on the right side. If you are satisfied with the results, then click on the “Export” button from the top. This will open a dedicated window, letting you select a preferred format to export your file. You can also select a resolution for your video to adjust its size as well.
 
 ![Export Book Trailer File](https://images.wondershare.com/filmora/article-images/book-trailer-export-file.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886015/19272" target="_top" id="1886015">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886015" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886015/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Find more fancy ways to make the best photo and video slideshow with Filmora!
 
@@ -183,6 +176,13 @@ Most importantly, pick a user-friendly and effective video editor like Filmora. 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1896532/19272" target="_top" id="1896532">
+  <img src="//a.impactradius-go.com/display-ad/19272-1896532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896532/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 There you go! I’m sure that after reading this guide, you would be able to digitize photos pretty easily. Not just that, you can also come up with memorable videos using your old photographs with a tool like Filmora. The resourceful application offers a wide range of video editing tools that will certainly come handy to you on numerous occasions.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
@@ -212,20 +212,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-best-8-free-4k-uhd-video-player-software-for-windows-pcandmac/"><u>[New] 2024 Approved Best 8 Free 4K UHD Video Player Software for Windows PC&Mac</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-enhance-filmmaking-on-iphone-top-camera-extensions-listed/"><u>[Updated] 2024 Approved Enhance Filmmaking on iPhone Top Camera Extensions Listed</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-essential-fast-control-tools-for-gaming-enthusiasts/"><u>[Updated] 2024 Approved Essential Fast-Control Tools for Gaming Enthusiasts</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-beginners-guide-top-10-youtube-editing-tricks-for-2024/"><u>[Updated] Beginner's Guide Top 10 YouTube Editing Tricks for 2024</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-blueprinting-breathtaking-cinematic-sketches/"><u>[Updated] Blueprinting Breathtaking Cinematic Sketches</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-from-dissonance-to-harmony-crafting-audio-transitions-in-audacity/"><u>[Updated] In 2024, From Dissonance to Harmony Crafting Audio Transitions in Audacity</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-next-gen-cloud-vaults-ultimate-pick-list/"><u>[Updated] Next-Gen Cloud Vaults Ultimate Pick List</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-photography-perks-fast-and-fun-edits-using-windows-paint-app-for-2024/"><u>[Updated] Photography Perks Fast & Fun Edits Using Windows Paint App for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-visually-dominating-podcast-identities-via-logo-designs/"><u>[Updated] Visually Dominating Podcast Identities via Logo Designs</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/2024-approved-androids-premier-tools-for-fast-fixing-vid/"><u>2024 Approved Android's Premier Tools for Fast-Fixing Vid</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-restore-missing-contacts-files-from-nokia-c12-by-fonelab-android-recover-contacts/"><u>How To Restore Missing Contacts Files from Nokia C12.</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-5-ways-to-track-nokia-c02-without-app-drfone-by-drfone-virtual-android/"><u>In 2024, 5 Ways to Track Nokia C02 without App | Dr.fone</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/install-usb-camera-drivers-easily-secure-and-immediate-access-downloads/"><u>Install USB Camera Drivers Easily - Secure and Immediate Access Downloads</u></a></li>
-<li><a href="https://review-topics.techidaily.com/put-and-play-mkv-movies-on-galaxy-z-fold-5-by-aiseesoft-video-converter-play-mkv-on-android/"><u>Put and play MKV movies on Galaxy Z Fold 5</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/updated-hearing-colors-and-movements-a-comprehensive-list-of-top-notch-music-visualizers-both-free-and-paid/"><u>Updated Hearing Colors and Movements A Comprehensive List of Top-Notch Music Visualizers (Both Free & Paid)</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-a-comprehensive-guide-to-achieving-smooth-color-keying/"><u>[New] In 2024, A Comprehensive Guide to Achieving Smooth Color-Keying</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-snap-it-up-15-powerful-posting-techniques-revealed-for-2024/"><u>[New] Snap It Up! 15 Powerful Posting Techniques Revealed for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-capture-and-compress-swift-iphone-time-lapse-tactics/"><u>[Updated] 2024 Approved Capture and Compress Swift iPhone Time-Lapse Tactics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-explore-the-spectrum-of-light-with-windows-hdr-video-capabilities/"><u>[Updated] 2024 Approved Explore the Spectrum of Light with Windows' HDR Video Capabilities</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-evolution-samsung-ubd-k8500-2023-edition/"><u>[Updated] 2024 Approved The Evolution Samsung UBD-K8500 2023 Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-ultimate-vr-buying-guide-mobile-liberty-or-tethered-unity/"><u>[Updated] 2024 Approved The Ultimate VR Buying Guide Mobile Liberty or Tethered Unity?</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-ultimate-toolkit-for-precision-mobile-screen-recording-using-mobizen/"><u>[Updated] 2024 Approved Ultimate Toolkit for Precision Mobile Screen Recording Using Mobizen</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-fusing-images-online-and-desktop-harmoniously-for-2024/"><u>[Updated] Fusing Images Online & Desktop Harmoniously for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-innovative-8-image-collections-for-macbook-screens/"><u>[Updated] In 2024, Innovative 8 Image Collections for MacBook Screens</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-nocturnal-nexus-versus-daylight-dominion/"><u>[Updated] Nocturnal Nexus Versus Daylight Dominion</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-insights-on-lg-bp350-user-perspectives-and-ratings/"><u>2024 Approved Insights on LG BP350 - User Perspectives and Ratings</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-remove-the-activation-lock-on-your-ipad-and-iphone-11-pro-max-without-apple-account-by-drfone-ios/"><u>How to Remove the Activation Lock On your iPad and iPhone 11 Pro Max without Apple Account</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-harnessing-royalty-free-graphics-a-compreeved-guide/"><u>In 2024, Harnessing Royalty-Free Graphics A Compreeved Guide</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/24-mastering-youtube-shorts-a-guide-to-music-videos/"><u>In 2024, Mastering YouTube Shorts A Guide to Music Videos</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-infinix-hot-40i-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Infinix Hot 40i | Dr.fone</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-the-ultimate-avidemux-tutorial-how-to-crop-resize-and-enhance-your-videos/"><u>In 2024, The Ultimate Avidemux Tutorial How to Crop, Resize, and Enhance Your Videos</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/in-depth-analysis-of-the-anker-roav-dash-cam-c1-the-ideal-road-safety-partner/"><u>In-Depth Analysis of the Anker Roav Dash Cam C1 – The Ideal Road Safety Partner</u></a></li>
 </ul></div>
 

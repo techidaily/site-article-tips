@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Navigating Windows 10  Must-Have Techniques\""
-date: 2024-09-09T10:15:04.816Z
-updated: 2024-09-10T10:15:04.816Z
+date: 2024-10-20T01:55:54.797Z
+updated: 2024-10-24T21:39:13.228Z
 tags: 
   - screen-recording
   - ai video
@@ -16,24 +16,12 @@ keywords: "Win10 Navigation Tips,Essential Win10 Tricks,Mastering Win10 Features
 thumbnail: https://thmb.techidaily.com/243178c138d6204ad2bbeb47ec4cfcdba020958c11cab04cb22d5f5327eef01b.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123738/7443" target="_top" id="2123738">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123738" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123738/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Navigating Windows 10: Must-Have Techniques
 
 # Must-Know Windows 10 Tips and Tricks
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2123475/16836" target="_top" id="2123475">
-  <img src="//a.impactradius-go.com/display-ad/16836-2123475" border="0" alt="https://techidaily.com" width="300" height="75"/>
-</a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2123475/16836" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Max Wales
 
  Mar 27, 2024• Proven solutions
@@ -44,24 +32,12 @@ Windows is nowhere to rock the world! If you are so excited about updating your 
 
 ![a8](https://images.wondershare.com/windows10/a8.png)
 
-<!-- affiliate ads begin -->
-<a href="https://smilemakers.pxf.io/c/5597632/2123899/26106" target="_top" id="2123899">
-  <img src="//a.impactradius-go.com/display-ad/26106-2123899" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://smilemakers.pxf.io/i/5597632/2123899/26106" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 The start menu of Windows 10 is now resizable. It can be quote odd for many but it is really surprising to know that with Windows 10, you can now customize the start menu and change its size to the extent you want. You now have the option to make it taller or wider as you like. If you wish to have the start menu taking up the whole left portion of the screen of your laptop or you want a thin strip transversely the taskbar, well that is now possible with Windows 10\. The taskbar is also resizable and that means you have the ability to some weird and pretty cool stuff with your device. You will surely find that having a resizable Start Menu is cool.
 
 #### 2. Using Cortana in Windows 10
 
 ![update win10 13](https://images.wondershare.com/windows10/update-win10-13.png)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2123512/26400" target="_top" id="2123512">
-  <img src="//a.impactradius-go.com/display-ad/26400-2123512" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2123512/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Cortana is finally here in Windows 10, taking control of the search functions as well as dishing out as much sass of the operating system in the same way with Windows Phone edition. On the other hand, by default, it will never listen and follow your commands.
 
 If you would like to have the ability to simply bark commands at your personal computer, you launch Cortana through hitting the search field within the taskbar and then choose the Notebook icon in the left side choices pane. You choose “settings” from the list and have the “Let Cortana respond when you say ‘Hey Cortana’” choice. You will have an active and working microphone for it to work.
@@ -88,12 +64,6 @@ Windows Key-Tab open and leaves open the new task view to show all the running a
 
 ![taskview](https://images.wondershare.com/filmora/article-images/taskview.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132162/7443" target="_top" id="2132162">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132162" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132162/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Virtual desktops are among the most favorites of most Windows users and it is one of the coolest features of the new Windows 10\. You could move programs between a virtual desktop & another. To make it happen, when you are running different desktops, you proceed to Task View through pressing the Windows Key-Tab combo. You right click the app you want to transfer from a virtual desktop to the other, choose “Move To” and then you move the app to the desktop where it should go.
 
 With Windows 10, it is now easy to create several desktops as well as run applications from each, so every desktop is showing only those apps that are running in a particular virtual desktop. In case that you do not want to make use of this feature, you may simply remove the “Task View” button.
@@ -112,18 +82,6 @@ Most users were tired and sick of the Internet Explorer’s incompatibility with
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1977020">
-					<video width="128" height="480" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1977020.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1977020">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1977020.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1977020%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1977020/22993" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -147,4 +105,28 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-turning-tales-upside-down-iphone-video-guide/"><u>[New] In 2024, Turning Tales Upside Down IPhone Video Guide</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-in-2024-ultimate-list-most-captivating-phone-based-idlers/"><u>[New] In 2024, Ultimate List Most Captivating Phone-Based Idlers</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-jumpstart-your-photo-editing-essential-pixlr-wisdoms/"><u>[New] Jumpstart Your Photo Editing Essential Pixlr Wisdoms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-power-of-pixels-a-review-of-the-4k-cg318-4k-monitor-for-2024/"><u>[New] The Power of Pixels A Review of the 4K CG318-4K Monitor for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mac-enthusiasts-selection-of-premier-editing-suites/"><u>[Updated] 2024 Approved Mac Enthusiasts' Selection of Premier Editing Suites</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-best-8-concealed-video-downloading-software-of-2023/"><u>[Updated] Best 8 Concealed Video Downloading Software of 2023</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-bring-the-beat-home-add-songs-to-your-inshot-app/"><u>[Updated] In 2024, Bring the Beat Home Add Songs to Your InShot App</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/approved-watch-youtube-green-screen-videos-and-get-your-green-screen-ideas/"><u>2024 Approved Watch Youtube Green Screen Videos and Get Your Green Screen Ideas</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/capture-every-day-in-the-life-of-your-sims-with-pro-tips-for-gameplay-recordings-for-2024/"><u>Capture Every Day in the Life of Your Sims with Pro Tips for Gameplay Recordings for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-rhythm-on-rings-creating-tamil-ringtone-playlists/"><u>In 2024, Rhythm on Rings Creating Tamil Ringtone Playlists</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-the-best-methods-to-unlock-the-iphone-locked-to-owner-for-apple-iphone-x-drfone-by-drfone-ios/"><u>In 2024, The Best Methods to Unlock the iPhone Locked to Owner for Apple iPhone X | Dr.fone</u></a></li>
+<li><a href="https://ios-location-track.techidaily.com/in-2024-top-5-tracking-apps-to-track-apple-iphone-6-without-them-knowing-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 5 Tracking Apps to Track Apple iPhone 6 without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/live-large-the-top-5-mac-streaming-applications-for-2024/"><u>Live, Large The Top 5 Mac Streaming Applications for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/sync-across-platforms-downloading-and-storing-gifs-from-facebook/"><u>Sync Across Platforms Downloading and Storing GIFs From Facebook</u></a></li>
+</ul></div>
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115932/19272" target="_top" id="2115932">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115932" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115932/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Quick Curving Techniques for Modern Photoshop Artists\""
-date: 2024-09-09T10:15:07.575Z
-updated: 2024-09-10T10:15:07.575Z
+date: 2024-10-19T20:44:51.142Z
+updated: 2024-10-24T19:55:41.741Z
 tags: 
   - screen-recording
   - ai video
@@ -16,24 +16,12 @@ keywords: "PhotoCurvesTechniques,PHDartArtCurving,QuickPhotoshopArts,CurveModern
 thumbnail: https://thmb.techidaily.com/1c03d365cac6fcf7e3665fd76e7449b8b7d6ebbb04e310ccec37ca23ea922ee4.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Quick Curving Techniques for Modern Photoshop Artists
 
 In this Photoshop tutorial, we're going to carve an image using four simple steps. Curving an image can be a great way to add some extra visual interest and dimension, and it's a technique that can be used with a wide range of images. So, let's get started!
 
 ![curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/curve-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2128842/7443" target="_top" id="2128842">
-  <img src="//a.impactradius-go.com/display-ad/7443-2128842" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2128842/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Simple Steps to Curve an Image in Photoshop
 
 ##### Step1Create a New Document
@@ -58,22 +46,10 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118325/7443" target="_top" id="2118325">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118325" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118325/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
@@ -86,12 +62,6 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2139322/26400" target="_top" id="2139322">
-  <img src="//a.impactradius-go.com/display-ad/26400-2139322" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2139322/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Step4Save the Image
 
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
@@ -99,11 +69,12 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2130532/26400" target="_top" id="2130532">
-  <img src="//a.impactradius-go.com/display-ad/26400-2130532" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aidotcom.pxf.io/c/5597632/2134499/19576" target="_top" id="2134499">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134499" border="0" alt="https://techidaily.com" width="600" height="90"/>
 </a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130532/26400" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134499/19576" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 We hope this post has helped you learn how to curve an image in Photoshop. The best part about it? It's easy to do, and you can do it quickly. So, don't wait another minute! Get out there and start curving your images today (we know we are).
@@ -136,4 +107,22 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-optimal-cameras-for-puppet-film-projects/"><u>[New] 2024 Approved Optimal Cameras for Puppet Film Projects</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-cropped-frames-in-media-pro-whats-the-cause/"><u>[New] Cropped Frames in Media Pro What's the Cause?</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2023-facebook-video-downloader-application-for-mobilewinmac-for-2024/"><u>[Updated] 2023 | Facebook Video Downloader Application for Mobile/Win/Mac for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-reel-motivation-a-curated-list-of-top-10-film-titles/"><u>[Updated] 2024 Approved Reel Motivation A Curated List of Top 10 Film Titles</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-tiktoks-best-practices-for-stellar-edits/"><u>[Updated] 2024 Approved TikTok's Best Practices for Stellar Edits</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-financial-forecast-shooting-a-music-video-for-2024/"><u>[Updated] Financial Forecast Shooting a Music Video for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/updated-in-2024-flip-and-float-instagrams-guide-to-crafting-versatile-visual-content/"><u>[Updated] In 2024, Flip and Float Instagram's Guide to Crafting Versatile Visual Content</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-spectacular-video-connections-quest-for-2024/"><u>[Updated] Spectacular Video Connections Quest for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/endless-visual-streaming-services-for-2024/"><u>Endless Visual Streaming Services for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/exclusive-streaming-access-12-top-video-content-hours-for-2024/"><u>Exclusive Streaming Access 12 Top Video Content Hours for 2024</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/how-can-i-catch-the-regional-pokemon-without-traveling-on-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>How Can I Catch the Regional Pokémon without Traveling On Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-ultimate-guide-to-picking-prime-stream-services/"><u>In 2024, The Ultimate Guide to Picking Prime Stream Services</u></a></li>
+<li><a href="https://win-fantastic.techidaily.com/seamless-transition-mastering-the-art-of-dual-booting-windows-10-and-11/"><u>Seamless Transition: Mastering the Art of Dual Booting Windows 10 & 11</u></a></li>
+<li><a href="https://some-tips.techidaily.com/the-art-of-dramatic-hdr-portraits-explained-for-2024/"><u>The Art of Dramatic HDR Portraits Explained for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-future-unfolds-analyzing-the-shift-from-m1-pro-to-m1-max-for-2024/"><u>The Future Unfolds Analyzing The Shift From M1 Pro To M1 Max for 2024</u></a></li>
+</ul></div>
 

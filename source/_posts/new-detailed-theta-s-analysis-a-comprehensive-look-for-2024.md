@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Detailed Theta S Analysis  A Comprehensive Look for 2024\""
-date: 2024-09-14T16:30:10.848Z
-updated: 2024-09-15T18:02:12.375Z
+date: 2024-10-21T18:51:49.727Z
+updated: 2024-10-24T19:30:14.835Z
 tags: 
   - screen-recording
   - ai video
@@ -70,6 +70,13 @@ The picture quality is simply outstanding and is rated to be much better than al
 
 As this device provides easy connectivity to other iOS, Android devices as well as to PCs so it becomes much easier to transfer captured images and videos for further editing. Theta App allows users to create wonders out of spherical imaging where panning and zooming features are commonly used. The desktop version of Theta app limits users to just view and share their data without any editing feature whereas the third app known as Theta+ Video is capable enough to work for editing on iOS devices.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## Part 2 Pros and Cons at a glance
 
 | Pros                                                                                   | Cons                                                                  |
@@ -82,6 +89,13 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | Great still image quality                                                              |                                                                       |
 | Cloud service for image sharing                                                        |                                                                       |
 | Remote control (via App)                                                               |                                                                       |
+
+<!-- affiliate ads begin -->
+<a href="https://review-au.sjv.io/c/5597632/2135315/14409" target="_top" id="2135315">
+  <img src="//a.impactradius-go.com/display-ad/14409-2135315" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2135315/14409" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Part 3 Basic specs of Ricoh Theta S
 
@@ -100,16 +114,10 @@ As this device provides easy connectivity to other iOS, Android devices as well 
 | **Image format**         | JPEG (EXIF 2.3)- The most commonly used format.           | **Video File Format** | Live streaming via HDMI supported (L:1920x1080/30fps M: 1280x720/30fps S: 720x480/30fps); Live streaming (USB): MP4 (video: MPEG-4 AVC); Motion JPEG (1280x720/15fps) |
 
 <!-- affiliate ads begin -->
-<span id="1498635">
-					<video width="320" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1498635.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/17326-1498635">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1498635.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:200px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fancheer.sjv.io%2Fc%2F5597632%2F1498635%2F17326'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1498635/17326" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137229/26400" target="_top" id="2137229">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137229" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137229/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4 Should I buy Ricoh Theta S
@@ -121,10 +129,10 @@ Theta S is one of the most useful products for photography lovers whether they a
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134244/18498" target="_top" id="2134244">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134244" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2094418/7443" target="_top" id="2094418">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094418" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134244/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094418/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -150,5 +158,19 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-appreciative-adjacencies-templates-for-any-spend-plan-for-2024/"><u>[New] Appreciative Adjacencies Templates for Any Spend Plan for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-designers-delight-incorporating-fonts-into-ae-projects-for-2024/"><u>[New] Designer's Delight Incorporating Fonts Into AE Projects for 2024</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-unlock-iphone-video-potential-mastering-8-essential-filmmaking-skills/"><u>[New] In 2024, Unlock iPhone Video Potential Mastering 8 Essential Filmmaking Skills</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-2024-approved-crafting-your-personalbusiness-youtube-mobile-hub/"><u>[Updated] 2024 Approved Crafting Your Personal/Business YouTube Mobile Hub</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-interactive-therapy-in-the-virtual-world-for-2024/"><u>[Updated] Interactive Therapy in the Virtual World for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/2024-approved-the-veil-vs-the-beam-shadowheroes-vs-luminaryfighters/"><u>2024 Approved The Veil vs the Beam Shadowheroes Vs Luminaryfighters</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/1723175652746-heavenly-computer-components-await-embrace-the-pleasant-surprise-of-flower-scented-thermal-paste/"><u>Heavenly Computer Components Await: Embrace the Pleasant Surprise of Flower-Scented Thermal Paste</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-meizu-21-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Meizu 21 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premier-picks-essential-mp4-lists-for-2024/"><u>Premier Picks Essential MP4 Lists for 2024</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/0-best-flvto-alternatives-youtube-converter-you-can-try-for-2024/"><u>Top 10 Best Flvto Alternatives YouTube Converter You Can Try for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/website-pre-upload-review-strategies-for-an-flawless-online-presence/"><u>Website Pre-Upload Review Strategies for an Flawless Online Presence</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/windows-10-compatibility-with-directx-12-download-instructions-simplified/"><u>Windows 10 Compatibility with DirectX 12: Download Instructions Simplified</u></a></li>
+</ul></div>
 

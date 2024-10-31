@@ -1,7 +1,7 @@
 ---
 title: "Leading External HDDs and DVD Drives: 2024 Edition"
-date: 2024-09-09T10:10:26.001Z
-updated: 2024-09-10T10:10:26.001Z
+date: 2024-10-27T22:30:17.009Z
+updated: 2024-10-30T19:51:12.293Z
 categories:
   - BestProducts
 description: "This Article Describes Leading External HDDs and DVD Drives: 2024 Edition"
@@ -51,12 +51,6 @@ thumbnail: https://thmb.techidaily.com/91120e952f9d1d6546a20efeacf0c17a6bf03fb18
 
 [Jump to Review](https://www.lifewire.com/#toc-compact-alternative-asus-zendrive)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137203/26400" target="_top" id="2137203">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137203" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137203/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Best Overall
 
 [ASUS BW-16D1X-U Blu-ray Drive](https://www.amazon.com/dp/B071WB35MH?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB071WB35MH)
@@ -87,18 +81,6 @@ PHOTO: Amazon
 
 [Asus BW-16D1X-U Powerful Blu-ray Drive Review](https://www.lifewire.com/asus-bw-16d1x-u-blu-ray-drive-review-4774686)
 
-<!-- affiliate ads begin -->
-<span id="1444782">
-					<video width="1024" height="576" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1444782.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/14559-1444782">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1444782.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:640px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fpropmoneyinc.pxf.io%2Fc%2F5597632%2F1444782%2F14559'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1444782/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Budget Buy
 
 [LG GP65NB60 External Drive](https://www.amazon.com/dp/B00ODDE33U?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB00ODDE33U)
@@ -127,17 +109,12 @@ PHOTO: Amazon
  The LG GP65NB60 needs a single USB connection for all its power and data transfer needs. Further rounding out the package, the LG GP65NB60 supports Windows and Mac, can burn archival-quality M-Disc, and comes in various colors, with black, gold, white, and silver on offer.
 
 <!-- affiliate ads begin -->
-<span id="1912746">
-					<video width="240" height="200" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1912746.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/20231-1912746">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1912746.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmindmanager.sjv.io%2Fc%2F5597632%2F1912746%2F20231'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1912746/20231" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136625/26400" target="_top" id="2136625">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136625" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136625/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Most Compact
 
 [Verbatim External Slimline Blu-ray Writer](https://www.amazon.com/dp/B09PY6SC9Y?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB09PY6SC9Y)
@@ -167,17 +144,12 @@ PHOTO: Amazon
  It can write CDs at 24x, DVDs at 8x, and Blu-rays at 6x — even supporting M-Disc. It’s a CD/DVD/BD drive weighing less than half a pound. The Verbatim 70102 is a mobility champion, with power and data transfer over USB, so you’ll only need one cable.
 
 <!-- affiliate ads begin -->
-<span id="1531879">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531879.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531879">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531879.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531879%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531879/16446" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1918703/19272" target="_top" id="1918703">
+  <img src="//a.impactradius-go.com/display-ad/19272-1918703" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1918703/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Budget Alternative
 
 [Dell DW316 External USB Slim DVD Drive](https://www.amazon.com/dp/B00VWVZ0V0?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB00VWVZ0V0)
@@ -206,11 +178,12 @@ PHOTO: Amazon
  The Dell DW316 performs in line with what most of the competition offers. It boasts maximum read speeds of 24x for CDs and 8x for DVDs, and it can provide those same speeds for writing as well.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2137378/7443" target="_top" id="2137378">
-  <img src="//a.impactradius-go.com/display-ad/7443-2137378" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
+  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2137378/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## Compact Alternative
 
 [ASUS ZenDrive](https://www.amazon.com/dp/B01A27IUUM?tag=lifewire-onsite-prod-20&ascsubtag=4584282%7Cn9fb481254e8d4bb28df89d8e8fa48e0421%7CB01A27IUUM)
@@ -239,11 +212,12 @@ PHOTO: Amazon
  The Asus ZenDrive supports Windows and Mac, and it includes CyberLink software to help you get started storing content on physical media. The drive also comes with six months of free cloud storage from ASUS, so you can rip content from your CDs and DVDs and move it there as needed.
 
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/2139557/4704" target="_top" id="2139557">
-  <img src="//a.impactradius-go.com/display-ad/4704-2139557" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068412/7443" target="_top" id="2068412">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068412" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139557/4704" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068412/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What to Look For
 
  For people who own and consume lots of media, an indispensable external optical drive is one of your best bets. External optical drives allow you to store massive amounts of data, including photos, videos, and software from CDs and DVDs, with easy access whenever and wherever you need it.
@@ -311,8 +285,6 @@ Tell us why!
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
 
-
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-client="ca-pub-7571918770474297"
@@ -320,4 +292,22 @@ Tell us why!
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-creating-captivating-narratives-for-video-blogs/"><u>[New] 2024 Approved Creating Captivating Narratives for Video Blogs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-one-device-one-storage-transferring-files-smoothly/"><u>[New] 2024 Approved One Device, One Storage Transferring Files Smoothly</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-metaverse-makeover-easy-avatar-construction/"><u>[New] In 2024, The Metaverse Makeover Easy Avatar Construction</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-top-ten-blueprints-for-meme-mastery/"><u>[New] In 2024, Top Ten Blueprints for Meme Mastery</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/new-skilled-uav-operation-tips-for-filmmakers/"><u>[New] Skilled UAV Operation Tips for Filmmakers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-top-ranked-action-cameras-for-extreme-sports/"><u>[Updated] 2024 Approved Top-Ranked Action Cameras for Extreme Sports</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-top-tier-gopro-cases-unveiled-1-10-ranking/"><u>[Updated] 2024 Approved Top-Tier GoPro Cases Unveiled - #1-10 Ranking</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-becoming-a-master-at-the-art-of-engaging-thumbnails-for-2024/"><u>[Updated] Becoming a Master at the Art of Engaging Thumbnails for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-tailoring-content-for-snapchats-luminaries/"><u>[Updated] In 2024, Tailoring Content for Snapchat's Luminaries</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-the-insiders-guide-to-professional-vsco-usage/"><u>[Updated] The Insider's Guide to Professional VSCO Usage</u></a></li>
+<li><a href="https://howto.techidaily.com/android-safe-mode-how-to-turn-off-safe-mode-on-vivo-y55s-5g-2023-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Android Safe Mode - How to Turn off Safe Mode on Vivo Y55s 5G (2023)? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/from-hobbyist-to-pro-the-audacity-journey-for-2024/"><u>From Hobbyist to Pro The Audacity Journey for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-12-pro-without-passcode-or-face-id-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 12 Pro without Passcode or Face ID | Dr.fone</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-is-gsm-flasher-adb-legit-full-review-to-bypass-your-xiaomi-redmi-k70-profrp-lock-by-drfone-android/"><u>In 2024, Is GSM Flasher ADB Legit? Full Review To Bypass Your Xiaomi Redmi K70 ProFRP Lock</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-10-password-cracking-tools-for-samsung-galaxy-a25-5g-by-drfone-android/"><u>In 2024, Top 10 Password Cracking Tools For Samsung Galaxy A25 5G</u></a></li>
+</ul></div>
 

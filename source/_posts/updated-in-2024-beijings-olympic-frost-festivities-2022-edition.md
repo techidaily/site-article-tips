@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Beijing's Olympic Frost Festivities, 2022 Edition"
-date: 2024-10-17T23:43:58.482Z
-updated: 2024-10-25T01:47:20.168Z
+date: 2024-10-26T22:42:39.301Z
+updated: 2024-10-30T16:49:46.586Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,13 @@ American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowb
 
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2130533/26400" target="_top" id="2130533">
+  <img src="//a.impactradius-go.com/display-ad/26400-2130533" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2130533/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## 2\. Nathan Chen Breaks World Record
 
 Nathan Chen of the United States set a world-record score in men's figure skating short program held at Beijing Olympics. Chen scored 113.97 at Capital Indoor Stadium in Beijing. Four years after his dreams were shattered, Chen has not only come back stronger in his performance but managed to break the world record.
@@ -45,25 +52,11 @@ Nathan Chen of the United States set a world-record score in men's figure skatin
 
 Chen won the gold medal in men's figure skating with a combined score of 332.60 in the short program and free skate competitions. The defending champion Yuzuru Hanyu was not even in the top three and did not manage to win any medal which is naturally a major disappointment. On the contrary, Chen was elated and said that his performance is close to his best and that we could see even better performance going ahead.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267">
-  <img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## 3\. Nina O'Brien Suffered a Terrifying Crash
 
 Injuries are part of sports events but some injuries are gruesome and are results of terrifying crashes. Team USA alpine racer Nina O'Brien was the victim of a terrifying crash this year at Winter Olympics. During her second run at the women's giant slalom event, she suffered a gruesome leg injury.
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1959712/19272" target="_top" id="1959712">
-  <img src="//a.impactradius-go.com/display-ad/19272-1959712" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1959712/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
@@ -74,19 +67,19 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148650/16836" target="_top" id="2148650">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148650" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111964/7443" target="_top" id="2111964">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111964" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148650/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111964/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2130871/7443" target="_top" id="2130871">
-  <img src="//a.impactradius-go.com/display-ad/7443-2130871" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://versadesk.pxf.io/c/5597632/1815679/21290" target="_top" id="1815679">
+  <img src="//a.impactradius-go.com/display-ad/21290-1815679" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2130871/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1815679/21290" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 5\. Van der Poel Breaks the World Record
@@ -120,13 +113,20 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 ![ukrainian athlete](https://images.wondershare.com/filmora/article-images/ukrainian-athlete.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1868590/19272" target="_top" id="1868590">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868590" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868590/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135409/19272" target="_top" id="2135409">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135409" border="0" alt="https://techidaily.com" width="125" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135409/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## 9\. American Favorite Out of the Tournament
 
@@ -135,19 +135,25 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2049388/7443" target="_top" id="2049388">
-  <img src="//a.impactradius-go.com/display-ad/7443-2049388" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148773/18498" target="_top" id="2148773">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148773" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049388/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148773/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2118311/7443" target="_top" id="2118311">
-  <img src="//a.impactradius-go.com/display-ad/7443-2118311" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2118311/7443" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1328679">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1328679.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1328679">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1328679.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1328679%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1328679/15852" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
@@ -177,16 +183,24 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-chuckle-craft-ranking-the-top-10-memes-by-wow-factor/"><u>[New] In 2024, Chuckle Craft Ranking the Top 10 Memes by Wow Factor</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-masterful-method-smart-watch-to-access-mac-for-2024/"><u>[New] Masterful Method Smart Watch to Access Mac for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-top-phones-that-seamlessly-integrate-with-the-latest-gear-vr-for-2024/"><u>[New] Top Phones That Seamlessly Integrate with the Latest Gear VR for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-is-image-stabilization-a-feature-worth-your-time-in-2024/"><u>[Updated] Is Image Stabilization a Feature Worth Your Time, In 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-cinematic-mastery-starts-here-the-best-cameras-of-all-levels/"><u>In 2024, Cinematic Mastery Starts Here The Best Cameras of All Levels</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-picture-in-progressive-screen-mastery-for-chrome-users-across-platforms/"><u>In 2024, Picture in Progressive Screen Mastery for Chrome Users Across Platforms</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-depth-analysis-the-smart-steady-performance-of-twelve-souths-compass-pro/"><u>In-Depth Analysis: The Smart, Steady Performance of Twelve South’s Compass Pro</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/revolutionizing-the-road-a-comprehensive-review-of-the-learning-capable-escort-ix-radar-detector/"><u>Revolutionizing the Road: A Comprehensive Review of the Learning-Capable Escort iX Radar Detector</u></a></li>
-<li><a href="https://driver-download.techidaily.com/seamless-update-tutorial-for-your-asus-maximus-x-heros-drivers/"><u>Seamless Update Tutorial for Your ASUS Maximus X Hero's Drivers</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/the-ultimate-method-for-recorded-instagram-stories/"><u>The Ultimate Method for Recorded Instagram Stories</u></a></li>
-<li><a href="https://data-safeguard.techidaily.com/ultimate-guide-to-removing-confidential-content-on-iphones/"><u>Ultimate Guide to Removing Confidential Content on iPhones ✨</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-effortless-opening-of-srt-on-computers/"><u>[New] In 2024, Effortless Opening of SRT on Computers</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-navigating-iphone-camera-not-auto-focusing-woes/"><u>[New] Navigating iPhone Camera Not Auto-Focusing Woes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-reel-in-the-future-top-5-ps-vr-games-on-the-brink-of-launch-for-2024/"><u>[New] Reel in the Future Top 5 PS VR Games on The Brink of Launch for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-ultimate-list-of-xsplits-equals-for-2024/"><u>[New] The Ultimate List of Xsplit's Equals for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-unmarked-manual-for-instagrams-livestream-privacy-for-2024/"><u>[New] The Unmarked Manual for Instagram's Livestream Privacy for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-engineer-meme-creation-in-adobe/"><u>[Updated] 2024 Approved Engineer Meme Creation in Adobe</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-enhance-your-captures-online-a-compact-guide-to-best-photo-fixers/"><u>[Updated] 2024 Approved Enhance Your Captures Online A Compact Guide to Best Photo Fixers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-demystifying-srt-to-sub-clear-practical-solutions/"><u>[Updated] Demystifying SRT to SUB Clear, Practical Solutions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-exclusive-hub-free-images-galore-across-the-web-for-2024/"><u>[Updated] Exclusive Hub Free Images Galore Across the Web for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-expertly-convert-your-content-to-stellar-hd-with-top-tools/"><u>[Updated] Expertly Convert Your Content to Stellar HD with Top Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-ultimate-panzoid-framework-assemblage-for-2024/"><u>[Updated] Ultimate Panzoid Framework Assemblage for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/astro-a40-microphone-malfunction-heres-how-you-can-fix-it-now/"><u>Astro A40 Microphone Malfunction? Here’s How You Can Fix It Now</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/effortless-setup-of-brother-hl-l2380dw-printer-windows-compatible-drivers-and-download-resources/"><u>Effortless Setup of Brother HL-L2380DW Printer: Windows Compatible Drivers & Download Resources</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/elevate-website-engagement-through-cookiebot-solutions/"><u>Elevate Website Engagement Through Cookiebot Solutions</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/eyesharp-record-chromeos-native-cam/"><u>EyeSharp Record ChromeOS Native Cam</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-fix-it-itel-p40plus-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix It Itel P40+ Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-life360-from-tracking-you-on-oppo-reno-8t-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop Life360 from Tracking You On Oppo Reno 8T? | Dr.fone</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-optimizing-profile-visibility-in-snapchats-focus/"><u>In 2024, Optimizing Profile Visibility in Snapchat's Focus</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-what-is-geo-blocking-and-how-to-bypass-it-on-realme-gt-5-drfone-by-drfone-virtual-android/"><u>In 2024, What is Geo-Blocking and How to Bypass it On Realme GT 5? | Dr.fone</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Social Media Best Practices  Uploading and Displaying Subtitles\""
-date: 2024-10-26T17:51:49.383Z
-updated: 2024-10-30T20:20:50.167Z
+date: 2024-10-29T16:30:41.787Z
+updated: 2024-11-05T16:50:47.849Z
 tags: 
   - screen-recording
   - ai video
@@ -65,19 +65,6 @@ Step2Select the Video that you want to add SRT to. Then click 'Add Language' and
 
 Step3Click Add under the Subtitle section and upload your SRT file through the pop-up that appears on your screen.
 
-<!-- affiliate ads begin -->
-<span id="1531882">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1531882.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1531882">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1531882.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1531882%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1531882/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: Upload SRT Files to Tweets
 
 Before now, Twitter users can only upload SRT files to video via the 'Media Studio', but this feature was not available to all users, making it difficult for some users to add subtitles to their videos.
@@ -89,13 +76,6 @@ Step1Open Twitter on your device and click the relevant button to compose a new 
 Step2Upload the video you want to add the SRT file to. Then select 'Upload Caption File' (.srt) below the video.
 
 ![upload caption file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-1.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2139117/17108" target="_top" id="2139117">
-  <img src="//a.impactradius-go.com/display-ad/17108-2139117" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettius.sjv.io/i/5597632/2139117/17108" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3Click on 'Upload Caption' from the pop-up that appears on your screen. Then choose the SRT file that you want to upload.
 
@@ -118,6 +98,19 @@ Step2Choose the video that you want to add the SRT file to and click on 'Setting
 Step3Click 'Advanced' from the Settings page. Then navigate to "Add Caption & Subtitles" > click on "Choose File" to upload your SRT file.
 
 ![choose file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-vimeo-videos-1.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1834906">
+					<video width="864" height="864" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1834906.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/16836-1834906">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1834906.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2F25home.pxf.io%2Fc%2F5597632%2F1834906%2F16836'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1834906/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4Once you've successfully uploaded the SRT file, it'll show up under "Enable Captions & Subtitles". Then verify that 'Status' is turned ON and select your file language and file type is SRT.
 
@@ -158,15 +151,22 @@ Step1Launch the Filmora software on your PC and use the Import button to upload 
 ![upload the srt file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://imp.i110150.net/c/5597632/924297/11305" target="_top" id="924297">
+  <img src="//a.impactradius-go.com/display-ad/11305-924297" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.i110150.net/i/5597632/924297/11305" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step2Move the uploaded SRT file to the timeline and right-click on it, then select "Advanced Edit" from the pop-up list.
 
 ![advanced edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aidotcom.pxf.io/c/5597632/2134500/19576" target="_top" id="2134500">
+  <img src="//a.impactradius-go.com/display-ad/19576-2134500" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://aidotcom.pxf.io/i/5597632/2134500/19576" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3Edit different aspects of the SRT subtitle ranging from its time code, text, etc., and changing subtitle styles, like text color, shadow, fonts, etc.
 
@@ -175,13 +175,6 @@ Step3Edit different aspects of the SRT subtitle ranging from its time code, text
 Step4Once editing is completed, navigate to the timeline of the SRT file and right-click on it, then choose "Export Subtitle file" to complete the action.
 
 ![navigate to the timeline](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1484939/16446" target="_top" id="1484939">
-  <img src="//a.impactradius-go.com/display-ad/16446-1484939" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1484939/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -214,13 +207,6 @@ Step1Sign in to your YouTube channel and locate the 'YouTube Creator Studio'. Th
 
 ![subtitles](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-youtube-video-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123740/7443" target="_top" id="2123740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2Select the Video that you want to add SRT to. Then click 'Add Language' and select the language you wrote your Subtitle.
 
 ![add language](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-youtube-video-2.jpg)
@@ -240,15 +226,22 @@ Step2Upload the video you want to add the SRT file to. Then select 'Upload Capti
 ![upload caption file](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-1.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151884/7443" target="_top" id="2151884">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151884" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2087253/19272" target="_top" id="2087253">
+  <img src="//a.impactradius-go.com/display-ad/19272-2087253" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151884/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2087253/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3Click on 'Upload Caption' from the pop-up that appears on your screen. Then choose the SRT file that you want to upload.
 
 ![upload caption](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-tweets-2.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1868575/19272" target="_top" id="1868575">
+  <img src="//a.impactradius-go.com/display-ad/19272-1868575" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868575/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step4Click Done. Then you'll see the name of the language in your captions is written
 
@@ -273,10 +266,10 @@ Step4Once you've successfully uploaded the SRT file, it'll show up under "Enable
 Step5Finally, hit the 'Save' button to complete the operation.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1896555/19272" target="_top" id="1896555">
-  <img src="//a.impactradius-go.com/display-ad/19272-1896555" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1886069/19272" target="_top" id="1886069">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886069" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1896555/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886069/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 4: Upload SRT Files to Facebook Videos
@@ -289,13 +282,6 @@ Step1Open your Facebook account and locate the Video that you want to add SRT su
 
 ![click on edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-1.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151866/7443" target="_top" id="2151866">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151866" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151866/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2Click on "Ädd Captions" and use the "Upload" button to add your SRT file. Your SRT file must be in this format Filename.en\_US.srt.
 
 ![dd captions](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-2.jpg)
@@ -303,6 +289,13 @@ Step2Click on "Ädd Captions" and use the "Upload" button to add your SRT file. 
 Step3Once the SRT file upload is completed, use the Save button to complete the SRT upload operation.
 
 ![complete the srt upload operation](https://images.wondershare.com/filmora/article-images/2022/09/how-to-upload-srt-file-to-facebook-videos-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://laganoo.pxf.io/c/5597632/1528693/16446" target="_top" id="1528693">
+  <img src="//a.impactradius-go.com/display-ad/16446-1528693" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1528693/16446" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Bonus Tips: Level Up Your Video by Editing SRT Subtitles Before Uploading
 
@@ -323,6 +316,19 @@ Step1Launch the Filmora software on your PC and use the Import button to upload 
 Step2Move the uploaded SRT file to the timeline and right-click on it, then select "Advanced Edit" from the pop-up list.
 
 ![advanced edit](https://images.wondershare.com/filmora/article-images/2022/09/how-to-edit-srt-for-videos-2.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1983584">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983584.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983584">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983584.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983584%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983584/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3Edit different aspects of the SRT subtitle ranging from its time code, text, etc., and changing subtitle styles, like text color, shadow, fonts, etc.
 
@@ -366,24 +372,18 @@ However, when you're looking to edit SRT subtitle file, the best thing to do is 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-high-speed-files-inspection-on-windows-os/"><u>[New] High-Speed Files Inspection on Windows OS</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-in-2024-unveiling-figmas-bg-elimination-mastery/"><u>[Updated] In 2024, Unveiling Figma's BG Elimination Mastery</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-avoidance-of-unplanned-pauses-during-photobooth-sessions/"><u>2024 Approved Avoidance of Unplanned Pauses During Photobooth Sessions</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-dynamic-color-grading-using-ae-luts/"><u>2024 Approved Dynamic Color Grading Using AE LUTs</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-elevate-zoom-outputs-top-3-transformer-tactics/"><u>2024 Approved Elevate Zoom Outputs Top 3 Transformer Tactics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-eminent-exchanges-a-curated-list-of-top-reddit-posts/"><u>2024 Approved Eminent Exchanges A Curated List of Top Reddit Posts</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-explore-the-world-of-photo-videos-your-pixiz-companion/"><u>2024 Approved Explore the World of Photo-Videos Your Pixiz Companion</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-the-comprehensible-rundown-on-djis-latest-creation-inspire-2/"><u>2024 Approved The Comprehensible Rundown on DJI's Latest Creation - Inspire 2</u></a></li>
-<li><a href="https://article-tips.techidaily.com/a-guide-to-unwavering-visual-captures/"><u>A Guide to Unwavering Visual Captures</u></a></li>
-<li><a href="https://article-tips.techidaily.com/amplify-your-audio-presence-learn-to-modify-voices-for-free-for-2024/"><u>Amplify Your Audio Presence Learn to Modify Voices for FREE for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/best-5-ios-backdrop-swappers-x87-edition-for-2024/"><u>Best 5 iOS Backdrop Swappers X/8/7 Edition for 2024</u></a></li>
-<li><a href="https://win-amazing.techidaily.com/1722968915467-download-samsungs-android-debug-bridge-adb-driver-today/"><u>Download Samsung's Android Debug Bridge (ADB) Driver Today!</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/easy-tweaks-changing-fishy-vocal-patterns-on-windows-for-2024/"><u>Easy Tweaks Changing Fishy Vocal Patterns on Windows for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-teleport-your-gps-location-on-oneplus-open-drfone-by-drfone-virtual-android/"><u>How To Teleport Your GPS Location On OnePlus Open? | Dr.fone</u></a></li>
-<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-se-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone SE To Other iPhone 14 devices? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-rapid-accessibility-of-instagram-videos-and-stories/"><u>In 2024, Rapid Accessibility of Instagram Videos and Stories</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-poco-m6-5g-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Poco M6 5G Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
-<li><a href="https://review-topics.techidaily.com/online-signatures-for-word-2019-by-ldigisigner-sign-a-word-sign-a-word/"><u>Online signatures for Word 2019</u></a></li>
-<li><a href="https://facebook.techidaily.com/uniting-for-better-code-facebook-embraces-rust-initiative/"><u>Uniting for Better Code: Facebook Embraces Rust Initiative</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-in-2024-facebook-mastery-pioneering-techniques-for-any-marketing-stage/"><u>[New] In 2024, Facebook Mastery Pioneering Techniques for Any Marketing Stage</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-transform-your-streaming-enabling-av1-technology-in-youtube/"><u>[New] Transform Your Streaming Enabling AV1 Technology in YouTube</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-comprehensive-guide-to-youtube-video-captioning-for-2024/"><u>[Updated] Comprehensive Guide to YouTube Video Captioning for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-full-examination-evaluating-the-gecata-analyzer-for-2024/"><u>[Updated] Full Examination Evaluating the Gecata Analyzer for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-ig-vids-mastery-for-effective-marketing-step-by-step-guide-to-success-for-2024/"><u>[Updated] IG Vids Mastery for Effective Marketing Step-by-Step Guide to Success for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-instantaneous-change-from-srt-to-txt-with-our-proven-methods/"><u>2024 Approved Instantaneous Change From SRT to TXT with Our Proven Methods</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-keyword-optimization-in-podcast-seo/"><u>2024 Approved Navigating Keyword Optimization in Podcast SEO</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-snap-smart-the-best-iphone-and-android-apps-for-photo-stickers/"><u>2024 Approved Snap Smart - The Best iPhone and Android Apps for Photo Stickers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-solo-stream-triumph-strategies-for-clear-consistent-broadcasts/"><u>2024 Approved Solo Stream Triumph Strategies for Clear, Consistent Broadcasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/a-deep-dive-comparative-analysis-of-audio-editors-magix-edition/"><u>A Deep Dive Comparative Analysis of Audio Editors - Magix Edition</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-change-google-play-location-on-honor-magic5-ultimate-drfone-by-drfone-virtual-android/"><u>How to Change Google Play Location On Honor Magic5 Ultimate | Dr.fone</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-resolve-issues-with-your-asus-keyboard-not-functioning-correctly/"><u>How to Resolve Issues with Your ASUS Keyboard Not Functioning Correctly</u></a></li>
+<li><a href="https://common-error.techidaily.com/the-ultimate-fix-for-the-persistent-0x80070490-error-encountered-in-windows-update-process/"><u>The Ultimate Fix for the Persistent 0X80070490 Error Encountered in Windows Update Process</u></a></li>
 </ul></div>
 

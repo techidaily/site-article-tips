@@ -1,7 +1,7 @@
 ---
 title: "\"Transforming Memories  From Still Photos to Motion Pictures\""
-date: 2024-10-25T20:15:43.180Z
-updated: 2024-10-30T20:01:16.082Z
+date: 2024-11-02T17:09:17.763Z
+updated: 2024-11-05T16:49:24.894Z
 tags: 
   - screen-recording
   - ai video
@@ -83,6 +83,19 @@ To convert your old photos into stunning videos, you can take the assistance of 
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<span id="1374820">
+					<video width="200" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1374820.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/15852-1374820">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1374820.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:125px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fthefitville.pxf.io%2Fc%2F5597632%2F1374820%2F15852'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1374820/15852" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 To learn how to come up with an impressive video collage using Filmora, just follow these steps:
 
 #### 1\.  Import your digitized photos
@@ -91,24 +104,37 @@ To start with, you can just launch Filmora on your system and import your photos
 
 ![import Digitized Photos](https://images.wondershare.com/filmora/article-images/import-digitized-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105870/7443" target="_top" id="2105870">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105870" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105870/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 #### 2\. Create a timeline for your photos
 
 Once you have imported your photos, you can include them in the timeline. To do this, you can click on the “+” button that is located on the top of the photo’s thumbnail. You can also just drag any photo and drop it on the preferred location in the timeline.
 
 ![create timeline for photos ](https://images.wondershare.com/filmora/article-images/create-timeline-for-photos.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997675/19272" target="_top" id="1997675">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997675" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997675/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 3\. Edit the video
 
 Just above the timeline, you can find all kinds of tools to edit your video. For instance, you can crop your photos, split the video, delete pictures, correct their coloring, and so on. To explore more options, you can click on the edit icon here.
 
 ![Edit Digitized Photos ](https://images.wondershare.com/filmora/article-images/edit-digitized-photos.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1993651">
+					<video width="128" height="480" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993651.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993651">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993651.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:80px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993651%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993651/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 The edit option will present tons of additional features that you can implement on the video. Here, you can go to the “Motion” feature to get different transitions for your photos. This will let you select how any photo would appear in the video collage.
 
@@ -122,28 +148,15 @@ To add text to your videos, just go to the “Titles” option here. This will l
 
 ![Add Title to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-title-old-photo-video.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144279/7443" target="_top" id="2144279">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144279" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144279/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Besides that, you can also add a track to the video by visiting the “Audio” feature. Here, you will get access to tons to royalty-free audio tracks. Furthermore, you can also import any other audio track or click on the microphone icon (at the bottom of the preview panel) to record a voiceover for the video.
 
 ![Add Audio to Digitized Photos ](https://images.wondershare.com/filmora/article-images/add-audio-old-photo-video.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1993652">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1993652.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1993652">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993652.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993652%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993652/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://25home.pxf.io/c/5597632/2148640/16836" target="_top" id="2148640">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148640" border="0" alt="https://techidaily.com" width="234" height="60"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148640/16836" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 #### 5\. Export your video
@@ -186,13 +199,6 @@ There you go! I’m sure that after reading this guide, you would be able to dig
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2111981/7443" target="_top" id="2111981">
-  <img src="//a.impactradius-go.com/display-ad/7443-2111981" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111981/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -218,20 +224,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-http.techidaily.com/new-insight-into-excellence-a-detailed-guide-to-mastering-vivacut-editing-for-2024/"><u>[New] Insight Into Excellence A Detailed Guide to Mastering VivaCut Editing for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-delving-into-vllo-user-testimonies/"><u>2024 Approved Delving Into VLLO User Testimonies</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-enhance-your-tiktok-videos-with-expert-numeric-manipulation-skills/"><u>2024 Approved Enhance Your TikTok Videos with Expert Numeric Manipulation Skills</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-masterful-audio-mesh-for-voice-broadcasters/"><u>2024 Approved Masterful Audio Mesh for Voice Broadcasters</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-superior-selection-winning-16-free-video-tools/"><u>2024 Approved Superior Selection Winning 16 Free Video Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-the-4-ultimate-strategies-for-creating-softened-iphone-pics/"><u>2024 Approved The 4 Ultimate Strategies for Creating Softened iPhone Pics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-the-transformative-power-of-augmented-vision/"><u>2024 Approved The Transformative Power of Augmented Vision</u></a></li>
-<li><a href="https://location-fake.techidaily.com/5-easy-ways-to-change-location-on-youtube-tv-on-apple-iphone-15-pro-max-drfone-by-drfone-virtual-ios/"><u>5 Easy Ways to Change Location on YouTube TV On Apple iPhone 15 Pro Max | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/aerial-shooting-essentials-for-2024/"><u>Aerial Shooting Essentials for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/cultivating-a-thriving-business-model-with-snapchat-insights-for-2024/"><u>Cultivating a Thriving Business Model with Snapchat Insights for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/24-the-essential-guide-to-youtube-edits-with-premiere-pro/"><u>In 2024, The Essential Guide to YouTube Edits with Premiere Pro</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-the-ls-showdown-tech-titans-clashing-in-real-time/"><u>In 2024, The LS Showdown Tech Titans Clashing in Real Time</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/realms-of-reality-understanding-the-metaverse-through-6-instances/"><u>Realms of Reality Understanding the Metaverse Through 6 Instances</u></a></li>
-<li><a href="https://vimeo-videos.techidaily.com/tailor-made-video-hosting-on-vimeo-pick-your-perfect-level/"><u>Tailor-Made Video Hosting on Vimeo Pick Your Perfect Level</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/tutorial-how-to-stream-movies-and-show-via-usb-on-hisense-smart-tvs/"><u>Tutorial: How to Stream Movies and Show via USB on Hisense Smart TVs</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/024-approved-elevate-your-online-presence-secrets-of-youtube-live-with-wirecast/"><u>[New] 2024 Approved Elevate Your Online Presence Secrets of Youtube Live with WireCast</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-2024-approved-in-depth-evaluation-obs-as-an-advanced-recorder/"><u>[New] 2024 Approved In-Depth Evaluation OBS as an Advanced Recorder</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/new-how-to-elevate-video-closure-vimeos-end-screen-essentials-for-2024/"><u>[New] How to Elevate Video Closure Vimeo's End Screen Essentials for 2024</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/new-unblock-your-youtube-experience-easy-solutions-for-chromefirefox/"><u>[New] Unblock Your YouTube Experience Easy Solutions for Chrome/Firefox</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-effortless-screen-capture-on-w10-os/"><u>[Updated] 2024 Approved Effortless Screen Capture on W10 OS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-a-quick-look-at-grading-techniques-in-ps/"><u>2024 Approved A Quick Look at Grading Techniques in PS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-building-bridges-encouraging-dialogue-in-the-youtube-community/"><u>2024 Approved Building Bridges Encouraging Dialogue in the YouTube Community</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-expert-picks-for-superior-steadicams-in-aerial-cinema/"><u>2024 Approved Expert Picks for Superior Steadicams in Aerial Cinema</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-how-video-testimonials-shape-perception-and-trust/"><u>2024 Approved How Video Testimonials Shape Perception and Trust</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-navigating-the-landscape-intricacies-of-using-the-background-eraser-feature/"><u>2024 Approved Navigating the Landscape Intricacies of Using the Background Eraser Feature</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/2024-approved-step-by-step-guide-to-effortless-telegram-web-use/"><u>2024 Approved Step-by-Step Guide to Effortless Telegram Web Use</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-zenith-workspace-in-depth-studio-overview-2023-edition/"><u>2024 Approved Zenith Workspace In-Depth Studio Overview, 2023 Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/amplify-your-iphone-films-with-free-audio-additions-discover-three-ways-for-2024/"><u>Amplify Your iPhone Films with Free Audio Additions – Discover Three Ways for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/apex-top-8-for-flawless-4k-blu-ray-viewing/"><u>Apex Top 8 for Flawless 4K Blu-Ray Viewing</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/innovators-amalgamating-photography-plus-music-into-videography/"><u>Innovators Amalgamating Photography + Music Into Videography</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-the-best-of-the-best-top-stop-motion-animation-software-for-mac-and-pc/"><u>New The Best of the Best Top Stop Motion Animation Software for Mac and PC</u></a></li>
+<li><a href="https://blog-min.techidaily.com/pc-online-and-mobile-mp3-9/"><u>PC, Online & Mobile에서 사용하기 쉬운 MP3 자르기 프로그램 9개 - 가장 좋은 선택</u></a></li>
 </ul></div>
 

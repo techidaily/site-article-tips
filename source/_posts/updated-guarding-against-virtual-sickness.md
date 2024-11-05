@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Guarding Against Virtual Sickness"
-date: 2024-09-09T10:07:08.416Z
-updated: 2024-09-10T10:07:08.416Z
+date: 2024-11-03T16:11:36.654Z
+updated: 2024-11-05T16:47:28.949Z
 tags: 
   - screen-recording
   - ai video
@@ -16,40 +16,16 @@ keywords: "GuardingVirusPrevention,AntiSickVirtualThreats,SafeOnlineHealth,Cyber
 thumbnail: https://thmb.techidaily.com/cdded6aa8f500657d1cc67ca7b77cb926c32d80c757bf8e50b4e15a0eac70eb2.jpg
 ---
 
-<!-- affiliate ads begin -->
-<a href="https://bluettiit.sjv.io/c/5597632/2114263/17093" target="_top" id="2114263">
-  <img src="//a.impactradius-go.com/display-ad/17093-2114263" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://bluettiit.sjv.io/i/5597632/2114263/17093" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Guarding Against Virtual Sickness
 
 # 10 tips to prevent Oculus Rift VR motion sickness
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2126493/26400" target="_top" id="2126493">
-  <img src="//a.impactradius-go.com/display-ad/26400-2126493" border="0" alt="https://techidaily.com" width="640" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2126493/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10 ways to prevent Oculus Rift motion sickness
 
  While using your Oculus Rift development kits you need to take care of few little things in order to avoid getting any kind of sickness during your game. Although the factors vary from individual to individual since it is more of the bodily response rather than the design variation.
@@ -75,11 +51,12 @@ thumbnail: https://thmb.techidaily.com/cdded6aa8f500657d1cc67ca7b77cb926c32d80c7
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135400/19272" target="_top" id="2135400">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135400" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://ursime.pxf.io/c/5597632/2136548/16384" target="_top" id="2136548">
+  <img src="//a.impactradius-go.com/display-ad/16384-2136548" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135400/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ursime.pxf.io/i/5597632/2136548/16384" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -89,17 +66,12 @@ thumbnail: https://thmb.techidaily.com/cdded6aa8f500657d1cc67ca7b77cb926c32d80c7
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1982459">
-					<video width="576" height="240" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1982459.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/22993-1982459">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982459.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982459%2F22993'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982459/22993" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://appsumo.8odi.net/c/5597632/2100530/7443" target="_top" id="2100530">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100530" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100530/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -123,4 +95,21 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://tiktok-videos.techidaily.com/new-2024-approved-maximizing-impact-with-tiktok-video-uploads-from-pcmac/"><u>[New] 2024 Approved Maximizing Impact with TikTok Video Uploads From PC/Mac</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-eye-candy-roundup-the-best-and-worst-of-8k-tv-tech/"><u>[New] Eye Candy Roundup The Best and Worst of 8K TV Tech</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-innovative-strategies-for-logging-overwatch-skirmishes/"><u>[New] Innovative Strategies for Logging Overwatch Skirmishes</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/astering-video-seo-5-steps-to-surge-in-youtube-popularity-for-2024/"><u>[New] Mastering Video SEO 5 Steps to Surge in YouTube Popularity for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-melodic-matchmaking-complementary-soundtracks-for-boxings-for-2024/"><u>[New] Melodic Matchmaking Complementary Soundtracks for Boxings for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-ultimate-directory-30plus-zero-cost-online-tools-for-visual-effects/"><u>[New] The Ultimate Directory 30+ Zero-Cost Online Tools for Visual Effects</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/nlock-the-power-8-best-no-cost-software-for-videographers-and-editors-for-2024/"><u>[New] Unlock the Power 8 Best No-Cost Software for Videographers & Editors for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-explore-and-engage-ifunny-meme-downloads/"><u>[Updated] Explore & Engage IFunny Meme Downloads</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-the-ultimate-playbook-a-guide-to-efficiently-posting-srt-files-online/"><u>2024 Approved The Ultimate Playbook A Guide to Efficiently Posting SRT Files Online</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/compile-of-top-15-gopro-stabilizers-and-mounts-for-2024/"><u>Compile of Top 15 GoPro Stabilizers & Mounts for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/from-virality-to-value-ajays-playbook-for-profitable-content-creation-for-2024/"><u>From Virality to Value Ajay’s Playbook for Profitable Content Creation for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-audiophiles-guide-to-the-renewed-lg-bp550/"><u>In 2024, Audiophile's Guide to the Renewed LG BP550</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-dynamic-design-building-perspective-with-text/"><u>In 2024, Dynamic Design Building Perspective with Text</u></a></li>
+<li><a href="https://techidaily.com/xiaomi-won-t-play-mov-videos-how-to-fix-by-aiseesoft-video-converter-play-mov-on-android/"><u>Xiaomi won't play MOV videos, how to fix ?</u></a></li>
+</ul></div>
 

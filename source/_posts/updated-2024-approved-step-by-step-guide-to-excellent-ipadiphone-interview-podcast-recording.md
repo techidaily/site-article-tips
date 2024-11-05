@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Step-by-Step Guide to Excellent iPad/iPhone Interview Podcast Recording\""
-date: 2024-10-24T20:23:18.503Z
-updated: 2024-10-30T18:02:19.425Z
+date: 2024-10-29T16:21:19.852Z
+updated: 2024-11-05T16:37:46.189Z
 tags: 
   - screen-recording
   - ai video
@@ -64,13 +64,6 @@ _**What you will get**_
 
 ![elgato wave external microphone](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2151883/7443" target="_top" id="2151883">
-  <img src="//a.impactradius-go.com/display-ad/7443-2151883" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151883/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Elgato Wave:3 is a premium microphone and digital mixing company that provides plug-and-play convenience with broadcast-grade circuitry. Speech is precisely recorded using this microphone's condenser capsule with a crisp cardioid polar pattern. It can be easily attached to iPhones and iPad.
 
 _**Features**_
@@ -90,6 +83,13 @@ _**What you will get**_
 **3\. [Saramonic Lavalier Microphone](https://www.amazon.com/Saramonic-LavMicro-U1A-Omnidirectional-Microphone/dp/B089MF4L9K/ref=sr%5F1%5F20?crid=R666NY94QABB&keywords=best+external+microphone+for+iphone+podcast&qid=1667800057&sprefix=best+external+microphone+for+iphone+podcas%2Caps%2C355&sr=8-20)**
 
 ![saramonic lavalier microphone for iphone and ipads](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-3.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151864/7443" target="_top" id="2151864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151864" border="0" alt="https://techidaily.com" width="600" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Saramonic has been Specialising in High-Quality Musical Instruments for the last ten years. It provides an Ultra-compact clip-on lavalier microphone that records rich, broadcast-quality sound and connects straight to the Lightning connector of an Apple iPhone or iPad.
 
@@ -155,13 +155,6 @@ _**Features**_
 * Handheld Style
 * Dimensions: 2 x 3 x 8.75 inches
 * Price: $12.00 Amazon
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1886073/19272" target="_top" id="1886073">
-  <img src="//a.impactradius-go.com/display-ad/19272-1886073" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886073/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Recording Software
 
@@ -269,9 +262,23 @@ Step2 Startup GarageBand. If this is your first time using it, choose **"Empty P
 
 ![startup garageband](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-11.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2043661/7443" target="_top" id="2043661">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043661" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043661/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Then, a window asks what audio track you'll be recording in the following step. Click "**Create**" after selecting **"Microphone**" and selecting the mic's input. You will receive one audio track as a result.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
+
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148636/16836" target="_top" id="2148636">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148636" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148636/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 **Note:** you are ready to start recording if you are utilizing one microphone. But let's imagine you need to record with more than one microphone simultaneously (let's say you're the podcast presenter and you have a co-host or a guest). In that situation, you'll need to create numerous tracks and choose the appropriate input for each. Each track should be for a different external microphone that you're using.
 
@@ -301,6 +308,19 @@ To record a podcast, you have to focus entirely on what you are doing. In this a
 
 Turning off these features will not affect any podcast steps.
 
+<!-- affiliate ads begin -->
+<span id="1983539">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1983539.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1983539">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1983539.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1983539%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1983539/22993" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 2\. Turn off Notifications
 
 The distraction of any notification will disturb your recording tracks, increasing your recording time and causing bugs. That's why putting your iPhone or iPad on **"Turning Off Notifications"** is the only way to get an efficient podcast.
@@ -308,6 +328,13 @@ The distraction of any notification will disturb your recording tracks, increasi
 ### 3\. Mount your iPhone to keep it secure
 
 Holding your phone while recording may cause bumps, vibrations, or knocks to be picked up by the microphone and heard in your podcast. To keep your phone steady, we advise utilizing a tripod and grip.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2016143/19272" target="_top" id="2016143">
+  <img src="//a.impactradius-go.com/display-ad/19272-2016143" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2016143/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ### 4\. Test your audio before
 
@@ -318,13 +345,6 @@ To determine how your audience will hear your podcast, test the audio on several
 Recording your podcast in a room with less background noise is ideal, but it should not be required. This includes noise from air conditioners, fans, music, or noisy roommates, as well as traffic or pedestrian noise.
 
 Additionally, pick a space with few reflecting surfaces since too much reflection will give your music an unpleasant, distant, echo-like feel. Reduce these reflections using carpets, rugs, drapes, and bookshelves to improve the quality of your podcast.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082530/7443" target="_top" id="2082530">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082530" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082530/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -338,46 +358,25 @@ All the equipment mentioned above is available at Amazon, and you should grab th
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134227/18498" target="_top" id="2134227">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134227" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134227/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How To Set up GarageBand
 
 Step1 First of all, **Setting Up** Your GarageBand Project
 
 ![setup garageband](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-10.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014849/22899" target="_top" id="2014849">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014849" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014849/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step2 Startup GarageBand. If this is your first time using it, choose **"Empty Project"** from the list of available project templates.
 
 ![startup garageband](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-11.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135362/19272" target="_top" id="2135362">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135362" border="0" alt="https://techidaily.com" width="120" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135362/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Then, a window asks what audio track you'll be recording in the following step. Click "**Create**" after selecting **"Microphone**" and selecting the mic's input. You will receive one audio track as a result.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2111995/7443" target="_top" id="2111995">
+  <img src="//a.impactradius-go.com/display-ad/7443-2111995" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2111995/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 **Note:** you are ready to start recording if you are utilizing one microphone. But let's imagine you need to record with more than one microphone simultaneously (let's say you're the podcast presenter and you have a co-host or a guest). In that situation, you'll need to create numerous tracks and choose the appropriate input for each. Each track should be for a different external microphone that you're using.
@@ -417,10 +416,10 @@ The distraction of any notification will disturb your recording tracks, increasi
 Holding your phone while recording may cause bumps, vibrations, or knocks to be picked up by the microphone and heard in your podcast. To keep your phone steady, we advise utilizing a tripod and grip.
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934183/19272" target="_top" id="1934183">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934183" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2044582/7443" target="_top" id="2044582">
+  <img src="//a.impactradius-go.com/display-ad/7443-2044582" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934183/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044582/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 4\. Test your audio before
@@ -432,6 +431,13 @@ To determine how your audience will hear your podcast, test the audio on several
 Recording your podcast in a room with less background noise is ideal, but it should not be required. This includes noise from air conditioners, fans, music, or noisy roommates, as well as traffic or pedestrian noise.
 
 Additionally, pick a space with few reflecting surfaces since too much reflection will give your music an unpleasant, distant, echo-like feel. Reduce these reflections using carpets, rugs, drapes, and bookshelves to improve the quality of your podcast.
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115916/19272" target="_top" id="2115916">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115916" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115916/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -469,17 +475,24 @@ All the equipment mentioned above is available at Amazon, and you should grab th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-bringing-imagery-elements-into-harmony/"><u>[New] Bringing Imagery Elements Into Harmony</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-top-16-best-free-video-players-for-windowsmac-pc/"><u>[Updated] In 2024, Top 16 Best Free Video Players for Windows/Mac PC</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-digital-canvas-at-hand-select-the-premier-android-drawing-apps/"><u>2024 Approved Digital Canvas at Hand Select the Premier Android Drawing Apps</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-panasonic-hx-a1-wearable-camera-explored/"><u>2024 Approved Panasonic HX-A1 Wearable Camera Explored</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/2024-approved-the-ultimate-top-12-tycoons-your-gateway-to-game-dominance/"><u>2024 Approved The Ultimate Top 12 Tycoons - Your Gateway to Game Dominance</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-unlock-fast-video-trimming-in-windows-11-apps/"><u>2024 Approved Unlock Fast Video Trimming in Windows 11 Apps</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/4k-video-download/"><u>4K Video Downloadアプリの使い方詳しく解説 - 最新ソフトウェアに関する実績情報</u></a></li>
-<li><a href="https://article-tips.techidaily.com/best-action-cameras-feature-front-display/"><u>Best Action Cameras Feature Front Display</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/dismiss-incompatible-prerequisite-message-in-win11/"><u>Dismiss Incompatible Prerequisite Message in Win11</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/multitask-media-magic-harnessing-netflixs-picture-in-picture-feature/"><u>Multitask Media Magic Harnessing Netflix's Picture-in-Picture Feature</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/top-5-premier-rv-models-of-2022-exploring-the-markets-finest-motor-homes-and-campers-insights-from-zdnet/"><u>Top 5 Premier RV Models of 2022: Exploring the Market's Finest Motor Homes & Campers - Insights From ZDNet</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/1723079863448-yakuza-like-a-dragon-revealed-the-unmissable-turnkey-to-the-world-of-engaging-rpg-gaming/"><u>Yakuza: Like a Dragon Revealed – The Unmissable Turnkey to the World of Engaging RPG Gaming!</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-facebooks-top-additions-for-savvy-users-unveiled/"><u>[New] 2024 Approved Facebook's Top Additions for Savvy Users Unveiled</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-simplify-media-handling-with-top-18-free-converters-for-windowsmacos-users-for-2024/"><u>[New] Simplify Media Handling With Top 18 Free Converters For Windows/macOS Users for 2024</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-principles-of-paradoxical-intervention/"><u>[Updated] Principles of Paradoxical Intervention</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-resonance-and-rhythm-guide-to-downloading-vintage-ringtones-for-2024/"><u>[Updated] Resonance and Rhythm Guide to Downloading Vintage Ringtones for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-hue-harmony-masterclass-for-audience-enthusiasts/"><u>2024 Approved Hue Harmony Masterclass for Audience Enthusiasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-key-elements-of-constructive-job-interviews/"><u>2024 Approved Key Elements of Constructive Job Interviews</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-mastering-the-art-of-film-editing-a-comprehensive-guide-to-final-cut-pro/"><u>2024 Approved Mastering the Art of Film Editing A Comprehensive Guide to Final Cut Pro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-metaverse-and-multiverse-demystified-an-in-depth-guide/"><u>2024 Approved Metaverse and Multiverse Demystified An In-Depth Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-essential-srt-compendium-for-all-levels/"><u>2024 Approved The Essential SRT Compendium for All Levels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unveiling-the-world-of-haptic-navigation-systems/"><u>2024 Approved Unveiling the World of Haptic Navigation Systems</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-updated-features-in-sony-blu-ray-player-s6700/"><u>2024 Approved Updated Features in Sony Blu-Ray Player S6700</u></a></li>
+<li><a href="https://article-tips.techidaily.com/an-intro-to-quantum-hdr-innovations/"><u>An Intro to Quantum HDR Innovations</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-picture-repository-platforms-for-2024/"><u>Best Picture Repository Platforms for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ng-the-perfect-phrases-for-gamers-videos/"><u>Finding the Perfect Phrases for Gamers' Videos</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/from-novice-to-proficient-the-path-with-zoom-webinars/"><u>From Novice to Proficient The Path with Zoom Webinars</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-can-i-use-itools-gpx-file-to-catch-the-rare-pokemon-on-vivo-v27-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Can I use iTools gpx file to catch the rare Pokemon On Vivo V27 Pro | Dr.fone</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-dissecting-the-features-of-toolwizs-photography-app/"><u>In 2024, Dissecting the Features of Toolwiz's Photography App</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/in-2024-from-large-files-to-tiny-previews-crafting-stunning-thumbnails/"><u>In 2024, From Large Files to Tiny Previews Crafting Stunning Thumbnails</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/seamlessly-transfer-your-google-images-to-icloud-a-simple-guide/"><u>Seamlessly Transfer Your Google Images to iCloud - A Simple Guide</u></a></li>
 </ul></div>
 

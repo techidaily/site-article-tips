@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Dynamic Design  Building Perspective with Text\""
-date: 2024-10-25T17:06:05.327Z
-updated: 2024-10-30T19:13:03.530Z
+date: 2024-10-30T16:58:11.230Z
+updated: 2024-11-05T16:38:23.635Z
 tags: 
   - screen-recording
   - ai video
@@ -35,6 +35,13 @@ After you get the program, install it and follow the step-by-step instructions y
 
 Also, there are plenty of different ways to create 3D text effects in Adobe Illustrator. This tutorial will focus on explaining the easiest and quickest one. Just know that this doesn't mean the result will be wrong. Most methods yield the same results.
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094429/7443" target="_top" id="2094429">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094429" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094429/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## How to Create 3D Text Effects in Adobe Illustrator
 
 Now that you know what you're getting into, let's finally reveal the entire process. Just follow the steps and do as you see here.
@@ -46,10 +53,10 @@ Step2 Click on the **Type tool** and click anywhere on your blank canvas. Then, 
 ![type tool illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-type-tool.png)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135410/19272" target="_top" id="2135410">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135410" border="0" alt="https://techidaily.com" width="160" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538">
+  <img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135410/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step3 Now, look at the bottom-right corner of the program. Find the **Font** settings and change your font type and size to anything you want.
@@ -64,16 +71,16 @@ Step5 Align the text to make it easier to edit and move around the canvas later.
 
 ![align text in illustrator](https://images.wondershare.com/filmora/article-images/adobe-illustrator-align.png)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2044586/7443" target="_top" id="2044586">
-  <img src="//a.impactradius-go.com/display-ad/7443-2044586" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2044586/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Step6 Up next, you need to turn on your 3D Effects panel if it still needs to be activated. To do this, click on **Window** → **3D and Materials.** Then, look at the right side of the screen, and you will see the panel pop up.
 
 ![turn on three d panel](https://images.wondershare.com/filmora/article-images/adobe-illustrator-3d-materials-window.png)
+
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2037475/7443" target="_top" id="2037475">
+  <img src="//a.impactradius-go.com/display-ad/7443-2037475" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2037475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step7 Click on the box icon on the right side of the screen and select **“Extrude”** This will instantly transform your text into a 3D model.
 
@@ -84,10 +91,10 @@ Step8 Now, all left to do is experiment with the settings in this panel and adju
 ![three d illustrator settings](https://images.wondershare.com/filmora/article-images/adobe-illustrator-settings.png)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2043617/7443" target="_top" id="2043617">
-  <img src="//a.impactradius-go.com/display-ad/7443-2043617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1975816/19272" target="_top" id="1975816">
+  <img src="//a.impactradius-go.com/display-ad/19272-1975816" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043617/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1975816/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Step9 Finally, it's time to export the image, and you're all done.
@@ -103,10 +110,10 @@ You might not believe it, but there's an even more accessible and less expensive
 If you're just a beginner at video or photo editing, you want to use a more straightforward tool. Illustrator can get very challenging for complete beginners. But Filmora offers a more straightforward interface that still delivers the same professional results. Please read further and see how to realize it.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068408/7443" target="_top" id="2068408">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068408" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100527/7443" target="_top" id="2100527">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100527" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068408/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100527/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to Create a 3D Text Effect In Filmora?
@@ -119,16 +126,16 @@ Step2 Head to the **Titles** tab and search for the **“3D Illustration**” ti
 
 ![drag title to timeline](https://images.wondershare.com/filmora/guide/get-started-with-filmora-04.png)
 
+<!-- affiliate ads begin -->
+<a href="https://oneplusfr.sjv.io/c/5597632/1622438/14044" target="_top" id="1622438">
+  <img src="//a.impactradius-go.com/display-ad/14044-1622438" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://oneplusfr.sjv.io/i/5597632/1622438/14044" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step3 Double-click on the 3D title layer you dragged into the Timeline. When the settings panel opens, use all the boxes and slide bars to customize your 3D text any way you want. When you’re done customizing it, click on **OK.**
 
 ![edit text settings](https://images.wondershare.com/filmora/guide/win-motion-tracking-03.png)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/1995803/22899" target="_top" id="1995803">
-  <img src="//a.impactradius-go.com/display-ad/22899-1995803" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/1995803/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
@@ -159,13 +166,6 @@ Step3 Double-click on the 3D title layer you dragged into the Timeline. When the
 Step4 Finally, import a video in Filmora and drag it under the text into the Timeline. Choose any video or image you want to display underneath your 3D text. That’s it! Hit **Export,** and you’re all done. Congratulations on creating a 3D text effect in Filmora.
 
 If you want to learn more about Filmora’s fantastic features, please watch the video below to see what the latest version of Filmora 12 brings to you!
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2129740/7443" target="_top" id="2129740">
-  <img src="//a.impactradius-go.com/display-ad/7443-2129740" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2129740/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -195,22 +195,22 @@ Both programs will get the job done if you use Adobe Illustrator or Filmora for 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-androids-video-reversion-secrets-unveiled/"><u>[New] Android's Video Reversion Secrets Unveiled</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-visual-vault-saving-windows-imagery-for-2024/"><u>[New] Visual Vault Saving Windows Imagery for 2024</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-2024-approved-times-up-rapid-tiktok-video-extraction-techniques/"><u>[Updated] 2024 Approved Time's Up Rapid TikTok Video Extraction Techniques</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-innovative-ways-to-convey-your-story-through-videos/"><u>[Updated] Innovative Ways to Convey Your Story Through Videos</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/updated-nextlevelcameraseekingpost-mycam-for-2024/"><u>[Updated] NextLevelCameraSeekingPost-MyCam for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/updated-the-essential-blueprint-crafting-memes-that-perform-on-social-networks/"><u>[Updated] The Essential Blueprint Crafting Memes That Perform on Social Networks</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-geniusedit-ai-precision-in-photo-mastery/"><u>2024 Approved GeniusEdit AI Precision in Photo Mastery</u></a></li>
-<li><a href="https://solve-news.techidaily.com/androidiphoneipadwindows-11dvd-dvdavi-mp4-h260/"><u>适用于Android、iPhone及iPad的Windows 11免费DVD转播程序 - 自由提取并转换DVD为高效率AVI MP4 H260视频</u></a></li>
-<li><a href="https://article-tips.techidaily.com/cloud-storage-pricing-comparison-and-best-price-2024/"><u>Cloud Storage Pricing Comparison and Best Price 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/essential-steps-for-youtube-videos-to-mpeg-format-for-2024/"><u>Essential Steps for YouTube Videos to MPEG Format for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/expert-techniques-for-streamers-on-macos-for-2024/"><u>Expert Techniques for Streamers on macOS for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-fast-track-framework-for-crafting-facebook-collage/"><u>In 2024, Fast-Track Framework for Crafting Facebook Collage</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-tailored-brand-symbols-turn-basic-templates-into-logos/"><u>In 2024, Tailored Brand Symbols Turn Basic Templates Into Logos</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-next-level-of-immersion-top-10-vr-gear/"><u>In 2024, The Next Level of Immersion (Top 10 VR Gear)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/navigating-picture-in-picture-features-in-firefox/"><u>Navigating Picture-in-Picture Features in Firefox</u></a></li>
-<li><a href="https://network-issues.techidaily.com/troubleshooting-lenovos-unresponsive-touchpad/"><u>Troubleshooting Lenovo's Unresponsive Touchpad</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/unveiling-secrets-phantoms-slow-motion-techniques/"><u>Unveiling Secrets Phantom's Slow Motion Techniques</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-streamlined-screencasting-steps-ultimate-tutorial/"><u>[Updated] 2024 Approved Streamlined Screencasting Steps - Ultimate Tutorial</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-quick-and-accurate-audio-to-text-conversion-on-youtube-free-methods-for-2024/"><u>[Updated] Quick and Accurate Audio-to-Text Conversion on YouTube – Free Methods for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/beyond-gaming-vr-uses/"><u>Beyond Gaming VR Uses</u></a></li>
+<li><a href="https://common-error.techidaily.com/bypassing-issues-with-window-10-slow-shut-down-processes/"><u>Bypassing Issues with Window 10 Slow Shut Down Processes</u></a></li>
+<li><a href="https://media-tips.techidaily.com/comprehensive-breakdown-of-avi-file-type-key-facts-and-features-explained/"><u>Comprehensive Breakdown of AVI File Type: Key Facts & Features Explained</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crafting-cosmic-leaps-effects-for-fiction-films-for-2024/"><u>Crafting Cosmic Leaps Effects for Fiction Films for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/currently-hot-in-vr-tech/"><u>Currently Hot in VR Tech</u></a></li>
+<li><a href="https://article-tips.techidaily.com/decoding-the-art-of-time-lapses-a-comprehensible-guide-with-gopro-for-2024/"><u>Decoding the Art of Time Lapses A Comprehensible Guide with GoPro for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/direct-digital-delivery-streamlined-steps-for-files/"><u>Direct Digital Delivery Streamlined Steps for Files</u></a></li>
+<li><a href="https://article-tips.techidaily.com/dive-deep-into-adobe-cloud-then-discover-alternatives-for-2024/"><u>Dive Deep Into Adobe Cloud, Then Discover Alternatives for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevate-your-edit-skills-with-these-pro-tiktok-tricks-for-2024/"><u>Elevate Your Edit Skills with These Pro TikTok Tricks for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/emphasize-eye-catcher-excise-background-in-photo-editing-for-2024/"><u>Emphasize Eye-Catcher Excise Background in Photo Editing for 2024</u></a></li>
+<li><a href="https://common-error.techidaily.com/how-to-repair-and-resolve-windows-installer-error-0x80070643/"><u>How to Repair and Resolve Windows Installer Error 0X80070643</u></a></li>
+<li><a href="https://discover-blog.techidaily.com/la-recente-evolution-des-fonctionnalites-de-finereader-14-dabbyy-support-extendu-pour-plus-de-formats-pdf/"><u>La Récente Évolution Des Fonctionnalités De FineReader 14 D'ABBYY: Support Extendu Pour Plus De Formats PDF</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/into-wealthy-creator-land-via-youtube-shorts-revenue/"><u>Step Into Wealthy Creator Land via YouTube Shorts Revenue</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/why-outsourcing-data-with-an-external-hard-drive-still-matters-beyond-cloud-solutions/"><u>Why Outsourcing Data with an External Hard Drive Still Matters: Beyond Cloud Solutions</u></a></li>
+<li><a href="https://extra-information.techidaily.com/xsplit-database-comprehensive-review-archives/"><u>XSplit Database Comprehensive Review Archives</u></a></li>
 </ul></div>
 

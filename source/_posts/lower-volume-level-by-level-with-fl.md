@@ -1,7 +1,7 @@
 ---
 title: "Lower Volume Level by Level with FL"
-date: 2024-10-27T20:15:59.084Z
-updated: 2024-10-30T16:19:29.439Z
+date: 2024-11-04T16:12:50.461Z
+updated: 2024-11-05T16:34:28.381Z
 tags: 
   - screen-recording
   - ai video
@@ -61,51 +61,44 @@ Step1 The first thing you have to do is successfully install the Filmora softwar
 
 ![install filmora software](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2115921/19272" target="_top" id="2115921">
+  <img src="//a.impactradius-go.com/display-ad/19272-2115921" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2115921/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1886048/19272" target="_top" id="1886048">
+  <img src="//a.impactradius-go.com/display-ad/19272-1886048" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1886048/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
 <!-- affiliate ads begin -->
-<a href="https://25home.pxf.io/c/5597632/2148645/16836" target="_top" id="2148645">
-  <img src="//a.impactradius-go.com/display-ad/16836-2148645" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2123734/7443" target="_top" id="2123734">
+  <img src="//a.impactradius-go.com/display-ad/7443-2123734" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148645/16836" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123734/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Related FAQs of FL Studio Audio Editing
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123737/7443" target="_top" id="2123737">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123737" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123737/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How to fade out FL studio mobile?
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082536/7443" target="_top" id="2082536">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082536" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082536/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2148775/18498" target="_top" id="2148775">
-  <img src="//a.impactradius-go.com/display-ad/18498-2148775" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148775/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 3\. What is declicking mode FL studio?
 
@@ -117,22 +110,29 @@ Step1 The first thing you have to do is successfully install the Filmora softwar
 
 ![install filmora software](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2105864/7443" target="_top" id="2105864">
+  <img src="//a.impactradius-go.com/display-ad/7443-2105864" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2105864/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://bluettifr.pxf.io/c/5597632/2145082/17095" target="_top" id="2145082">
+  <img src="//a.impactradius-go.com/display-ad/17095-2145082" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettifr.pxf.io/i/5597632/2145082/17095" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Step3 If you want your audio to fade out, again go to the audio setting. Then drag the pointer to the fade-out option. Now set your duration and see the fade-out effect.
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
 ## Related FAQs of FL Studio Audio Editing
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972665/19272" target="_top" id="1972665">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972665" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972665/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1\. How to fade out FL studio mobile?
 
@@ -170,17 +170,17 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-blog.techidaily.com/024-approved-the-ultimate-list-of-8-free-video-editing-programs-for-creatives/"><u>[New] 2024 Approved The Ultimate List of 8 FREE Video Editing Programs for Creatives</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-buzzing-beats-essential-background-scores-for-viral-video-shorts-for-2024/"><u>[New] Buzzing Beats Essential Background Scores for Viral Video Shorts for 2024</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/new-decoding-the-mystery-insider-knowledge-on-story-watchers-for-2024/"><u>[New] Decoding the Mystery Insider Knowledge on Story Watchers for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-penning-perfectly-captivating-podcast-descriptions-for-2024/"><u>[New] Penning Perfectly Captivating Podcast Descriptions for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-ultimate-guide-to-sj-cam-s6s-superiority/"><u>[New] The Ultimate Guide to SJ-CAM S6's Superiority</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-whatsapp-web-for-laptops-setting-up-remote-video-calls-step-by-step/"><u>[New] WhatsApp Web for Laptops Setting Up Remote Video Calls Step by Step</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-perfect-palette-pro-for-2024/"><u>[Updated] Perfect Palette Pro for 2024</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-step-by-step-guide-to-mastering-streamlabs-obs-usage-for-2024/"><u>[Updated] Step-by-Step Guide to Mastering Streamlabs OBS Usage for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-step-by-step-guide-to-purchasing-advanced-360-imaging-equipment/"><u>2024 Approved Step-by-Step Guide to Purchasing Advanced 360 Imaging Equipment</u></a></li>
-<li><a href="https://solve-popular.techidaily.com/2024-excel/"><u>2024 Excel的三大回复技巧：易于操作的工作表重建方法</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-revolutionize-your-iphone-shots-free-swift-red-eye-elimination-techniques/"><u>In 2024, Revolutionize Your iPhone Shots Free, Swift Red-Eye Elimination Techniques</u></a></li>
-<li><a href="https://video-capture.techidaily.com/nighttime-photography-success-tips-and-tricks-for-2024/"><u>Nighttime Photography Success Tips & Tricks for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-ultimate-iphone-photography-playbook/"><u>[New] In 2024, The Ultimate iPhone Photography Playbook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-delving-deeper-into-vlc-players-unseen-functions/"><u>[Updated] Delving Deeper Into VLC Player's Unseen Functions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-sony-a6400-why-is-my-video-playback-failed/"><u>[Updated] Sony A6400 Why Is My Video Playback Failed?</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/are-there-word-or-character-restrictions-in-gpt-replies/"><u>Are There Word or Character Restrictions in GPT Replies?</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/get-ready-to-enhance-your-mobile-experience-with-these-exciting-iphone-ebeet-zdnet/"><u>Get Ready to Enhance Your Mobile Experience with These Exciting iPhone Ebeet | ZDNET</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/illuminated-insights-visualizing-youtubes-17-data-story-for-2024/"><u>Illuminated Insights! Visualizing YouTube's '17 Data Story for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-9gag-the-ultimate-resource-for-memetic-innovation/"><u>In 2024, 9GAG The Ultimate Resource for Memetic Innovation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-expert-insights-switching-from-webp-to-jpg-format/"><u>In 2024, Expert Insights Switching From WebP to JPG Format</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-prime-oculus-rift-games-captivating-players-worldwide/"><u>In 2024, Prime Oculus Rift Games Captivating Players Worldwide</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/mastering-multitasking-firefox-picture-in-picture-explained-for-2024/"><u>Mastering Multitasking Firefox Picture-in-Picture Explained for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/stuck-at-android-system-recovery-of-oppo-find-n3-fix-it-easily-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Stuck at Android System Recovery Of Oppo Find N3 ? Fix It Easily | Dr.fone</u></a></li>
+<li><a href="https://some-skills.techidaily.com/top-social-network-sites-for-youtube-growth-for-2024/"><u>Top Social Network Sites for YouTube Growth for 2024</u></a></li>
 </ul></div>
 

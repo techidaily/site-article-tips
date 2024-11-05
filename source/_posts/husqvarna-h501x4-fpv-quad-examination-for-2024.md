@@ -1,7 +1,7 @@
 ---
 title: "Husqvarna H501X4 FPV Quad Examination for 2024"
-date: 2024-10-25T00:26:15.011Z
-updated: 2024-10-30T20:54:46.367Z
+date: 2024-11-04T17:03:20.824Z
+updated: 2024-11-05T16:13:20.970Z
 tags: 
   - screen-recording
   - ai video
@@ -114,10 +114,16 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![hubsan h501S x4 controller](https://images.wondershare.com/filmora/article-images/hubsan-h501S-x4-controller.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136620/26400" target="_top" id="2136620">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136620" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136620/26400" style="position:absolute;visibility:hidden;" border="0" />
+<span id="1982508">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1982508.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1982508">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1982508.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1982508%2F22993'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1982508/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  The Hubsan H501S X4 controller is designed with 4.3 LCD screen and it helps users to enjoy FPV camera operation with ease. This LCD screen can display all telemetry data for flights. It works on 5.8 GHz range to send video signals into MicroSD card whereas the controller itself works on 2.4 GHz frequency range.
@@ -127,10 +133,10 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![hubsan h501s x4 brushless motor](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-motor.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1868586/19272" target="_top" id="1868586">
-  <img src="//a.impactradius-go.com/display-ad/19272-1868586" border="0" alt="https://techidaily.com" width="300" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2148772/18498" target="_top" id="2148772">
+  <img src="//a.impactradius-go.com/display-ad/18498-2148772" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1868586/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2148772/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  Here is one interesting thing to know about Hubsan H501S, that is its brushless motor design. This motor is powerful enough with durable design so that users can enjoy uninterrupted flights for longer run.
@@ -140,16 +146,10 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![hubsan h501s x4 brushless camera](https://images.wondershare.com/filmora/article-images/hubsan-h501s-x4-brushless-camera.jpg)
 
 <!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<a href="https://aligracehair.sjv.io/c/5597632/1925484/19272" target="_top" id="1925484">
+  <img src="//a.impactradius-go.com/display-ad/19272-1925484" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1925484/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
  If you are in search of a drone with great camera setup then you will be impressed with Hubsan X4 results. It captures stills with 1080p resolution and live videos need 5.8 GHz frequency from controller and you can view them directly on 4.3” built in screen of controller unit. All photos and videos are directly saved into MicroSD card.
@@ -161,10 +161,10 @@ thumbnail: https://thmb.techidaily.com/dbe86ec4eee57de28307f7a87e5d2dc26b222d4d7
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068425/7443" target="_top" id="2068425">
-  <img src="//a.impactradius-go.com/display-ad/7443-2068425" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2100533/7443" target="_top" id="2100533">
+  <img src="//a.impactradius-go.com/display-ad/7443-2100533" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068425/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2100533/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Max Wales
@@ -192,20 +192,24 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-gratitude-gift-selecting-high-quality-otus-freepaid/"><u>[New] 2024 Approved Gratitude Gift Selecting High-Quality OTUs (Free/Paid)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-how-to-switch-on-windows-11s-hdr-functionality/"><u>[New] 2024 Approved How to Switch On Windows 11'S HDR Functionality</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-interactive-virtual-warehouse-exploration/"><u>[New] In 2024, Interactive Virtual Warehouse Exploration</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-top-twitter-video-tools-effortless-video-uploading/"><u>[New] Top Twitter Video Tools Effortless Video Uploading</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-inside-the-2023-samsung-bd-j5900-innovations/"><u>[Updated] 2024 Approved Inside the 2023 Samsung BD-J5900 Innovations</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-maximize-windows-10-top-5-recording-techniques/"><u>[Updated] 2024 Approved Maximize Windows 10 Top 5 Recording Techniques</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-pinnacle-of-zooid-creations-guide/"><u>[Updated] In 2024, The Pinnacle of Zooid Creations Guide</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/updated-integrating-artistry-into-your-instagram-feed-with-pictures-for-2024/"><u>[Updated] Integrating Artistry Into Your Instagram Feed with Pictures for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/8-best-apps-for-screen-mirroring-motorola-g54-5g-pc-drfone-by-drfone-android/"><u>8 Best Apps for Screen Mirroring Motorola G54 5G PC | Dr.fone</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/enhanced-user-experience-with-the-assistance-of-cookiebot-technology/"><u>Enhanced User Experience with the Assistance of Cookiebot Technology</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/estimating-youtube-advertising-costs/"><u>Estimating YouTube Advertising Costs</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-building-a-repository-of-metaverse-comedy-artifacts/"><u>In 2024, Building a Repository of Metaverse Comedy Artifacts</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/in-depth-evaluation-of-alienwares-latest-masterpiece-the-aw2725df-360hz-oled-display-ultimate-choice-for-serious-gamers/"><u>In-Depth Evaluation of Alienware's Latest Masterpiece: The AW2725DF 360Hz OLED Display - Ultimate Choice for Serious Gamers</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/remedy-for-warped-gopro-imagery-a-comprehensive-tutorial/"><u>Remedy for Warped GoPro Imagery A Comprehensive Tutorial</u></a></li>
-<li><a href="https://win-info.techidaily.com/total-weighted-score-for-option-d/"><u>Total Weighted Score for Option D</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-comprehensively-tackling-the-sony-fdr-x1000-action-gear/"><u>[New] 2024 Approved Comprehensively Tackling the Sony FDR-X1000 Action Gear</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/024-approved-tactical-video-migration-youtube-to-dailymotion-masterclass/"><u>[New] 2024 Approved Tactical Video Migration YouTube to Dailymotion Masterclass</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-choice-vr-game-engines-update-march-2023/"><u>[New] 2024 Approved Top Choice VR Game Engines Update - March 2023</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-personalized-gift-boxes-unlocked-the-best-online-shopping-spots/"><u>[Updated] 2024 Approved Personalized Gift Boxes Unlocked The Best Online Shopping Spots</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-boost-creativity-and-engagement-10-best-sources-of-free-slide-show-patterns-for-2024/"><u>[Updated] Boost Creativity and Engagement - 10 Best Sources of Free Slide Show Patterns for 2024</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-discover-comedy-tear-fusion-in-these-highest-rated-memetic-accounts-for-2024/"><u>[Updated] Discover Comedy-Tear Fusion in These Highest Rated Memetic Accounts for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-innovative-ideas-to-boost-package-prelude-joy/"><u>[Updated] In 2024, Innovative Ideas to Boost Package Prelude Joy</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-in-2024-mastering-4k-videos-with-the-versatile-nikon-1j5/"><u>[Updated] In 2024, Mastering 4K Videos with the Versatile Nikon 1J5</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-photography-made-easy-select-top-writing-apps/"><u>[Updated] Photography Made Easy Select Top Writing Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-story-structuring-at-its-core/"><u>[Updated] Story Structuring at Its Core</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unlock-video-brilliance-through-advanced-chroma-techniques-11-steps-for-2024/"><u>[Updated] Unlock Video Brilliance Through Advanced Chroma Techniques (11 Steps) for 2024</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/horas-y-dias-ensenanza-diaria-en-espanol/"><u>Horas Y Días: Enseñanza Diaria en Español</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-successfully-bypass-icloud-activation-lock-on-apple-iphone-14-by-drfone-ios/"><u>In 2024, How to Successfully Bypass iCloud Activation Lock on Apple iPhone 14</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-latest-way-to-get-shiny-meltan-box-in-pokemon-go-mystery-box-on-honor-90-pro-drfone-by-drfone-virtual-android/"><u>In 2024, Latest way to get Shiny Meltan Box in Pokémon Go Mystery Box On Honor 90 Pro | Dr.fone</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-mastering-lock-screen-settings-how-to-enable-and-disable-on-xiaomi-civi-3-disney-100th-anniversary-edition-by-drfone-android/"><u>In 2024, Mastering Lock Screen Settings How to Enable and Disable on Xiaomi Civi 3 Disney 100th Anniversary Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-smooth-transitions-in-photography-mastering-face-focused-motion-blur-in-picsart/"><u>In 2024, Smooth Transitions in Photography Mastering Face-Focused Motion Blur in Picsart</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-top-8-free-enterprise-friendly-video-call-tools/"><u>In 2024, Top 8 Free Enterprise-Friendly Video Call Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/learn-the-art-of-making-cellphone-alarms-with-trending-tiktok-music/"><u>Learn the Art of Making Cellphone Alarms with Trending TikTok Music</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/new-graphics-horizon-radeon-hd-6950-updates-for-windows-10-users/"><u>New Graphics Horizon: Radeon HD 6950 Updates for Windows 10 Users</u></a></li>
 </ul></div>
 

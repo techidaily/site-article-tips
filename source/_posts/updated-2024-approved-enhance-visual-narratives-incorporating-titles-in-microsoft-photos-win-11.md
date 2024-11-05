@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Enhance Visual Narratives  Incorporating Titles in Microsoft Photos Win 11\""
-date: 2024-10-28T19:51:37.538Z
-updated: 2024-10-30T23:22:39.686Z
+date: 2024-11-02T17:13:19.011Z
+updated: 2024-11-05T16:27:47.911Z
 tags: 
   - screen-recording
   - ai video
@@ -56,13 +56,6 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2123739/7443" target="_top" id="2123739">
-  <img src="//a.impactradius-go.com/display-ad/7443-2123739" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2123739/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
 The Photos app in Windows 10 is even easier than the old Windows Movie Maker. You do not need a sharp learning curve for using this app and any beginner can use it with ease and comfort. The Photos app has an anchoring system along with the text tool that makes the text move with the video images. Here’s how you can make the text move in Windows 10 Photos app-
@@ -74,30 +67,37 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
+  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1828647/21290" target="_top" id="1828647">
-  <img src="//a.impactradius-go.com/display-ad/21290-1828647" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://versadesk.pxf.io/i/5597632/1828647/21290" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://bluettide.pxf.io/c/5597632/2141684/17092" target="_top" id="2141684">
+  <img src="//a.impactradius-go.com/display-ad/17092-2141684" border="0" alt="https://techidaily.com" width="120" height="90"/>
+</a>
+<img height="0" width="0" src="https://bluettide.pxf.io/i/5597632/2141684/17092" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://bluettieu.pxf.io/c/5597632/2141680/17091" target="_top" id="2141680">
-  <img src="//a.impactradius-go.com/display-ad/17091-2141680" border="0" alt="https://techidaily.com" width="120" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2043593/7443" target="_top" id="2043593">
+  <img src="//a.impactradius-go.com/display-ad/7443-2043593" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://bluettieu.pxf.io/i/5597632/2141680/17091" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2043593/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -107,10 +107,10 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1972698/19272" target="_top" id="1972698">
-  <img src="//a.impactradius-go.com/display-ad/19272-1972698" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134218/18498" target="_top" id="2134218">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134218" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1972698/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134218/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -138,24 +138,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-unleash-your-typographic-vision-in-after-effects-mastery/"><u>[New] In 2024, Unleash Your Typographic Vision in After Effects Mastery</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-elevate-your-media-creation-skills-with-windows-11-tips/"><u>[Updated] 2024 Approved Elevate Your Media Creation Skills with Windows 11 Tips</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-enhancing-your-snap-with-soundtracks-without-stickers-for-2024/"><u>[Updated] Enhancing Your Snap with Soundtracks (Without Stickers) for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-leading-live-tv-streams-combo-of-global-and-locals/"><u>[Updated] In 2024, Leading Live TV Streams Combo of Global and Locals</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-perfecting-the-art-of-saving-gameplay-footage-on-android/"><u>[Updated] In 2024, Perfecting the Art of Saving Gameplay Footage on Android</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-mastering-instatunes-navigating-copyright-laws-for-2024/"><u>[Updated] Mastering InstaTunes Navigating Copyright Laws for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-prime-6-bargains-for-your-homes-ultimate-viewing-for-2024/"><u>[Updated] Prime 6 Bargains for Your Home's Ultimate Viewing for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-unboxing-adventure-boosting-customer-delight-for-2024/"><u>[Updated] The Ultimate Unboxing Adventure Boosting Customer Delight for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-unveiling-the-art-of-closer-views-on-microsoft-teams-for-2024/"><u>[Updated] Unveiling the Art of Closer Views on Microsoft Teams for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-realme-gt-5-240w-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Realme GT 5 (240W) | Dr.fone</u></a></li>
-<li><a href="https://win-guides.techidaily.com/boosting-email-outreach-strategies-using-massmail-software-unlock-successful-marketing-tactics/"><u>Boosting Email Outreach Strategies Using MassMail Software | Unlock Successful Marketing Tactics</u></a></li>
-<li><a href="https://howto.techidaily.com/fix-cant-take-screenshot-due-to-security-policy-on-xiaomi-redmi-12-5g-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Cant Take Screenshot Due to Security Policy on Xiaomi Redmi 12 5G | Dr.fone</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-reset-a-samsung-galaxy-m14-4g-phone-that-is-locked-by-drfone-android/"><u>How to Reset a Samsung Galaxy M14 4G Phone that is Locked?</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-itel-s23plus-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Itel S23+? | Dr.fone</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-use-ispoofer-on-realme-v30t-drfone-by-drfone-virtual-android/"><u>In 2024, How to use iSpoofer on Realme V30T? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-ranking-the-premier-online-church-service-providers/"><u>In 2024, Ranking the Premier Online Church Service Providers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/save-1058-on-lenovos-top-of-the-line-rtx-4080-gpu-equipped-legion-desktop-priced-at-just-2091/"><u>Save $1,058 on Lenovo's Top-of-the-Line RTX 4080 GPU-Equipped Legion Desktop Priced at Just $2,091</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-next-frontier-of-classroom-technology-vr-for-2024/"><u>The Next Frontier of Classroom Technology - VR for 2024</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/unveiling-the-power-of-samsung-gear-s3-frontier-an-extensive-review-for-future-forward-smartwatches/"><u>Unveiling the Power of Samsung Gear S3 Frontier – An Extensive Review for Future-Forward Smartwatches</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlocking-crypto-potential-the-ultimate-list-of-nft-engines/"><u>[New] 2024 Approved Unlocking Crypto Potential The Ultimate List of NFT Engines</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-from-beginner-to-master-a-stepwise-guide-for-excellent-posts/"><u>[New] In 2024, From Beginner to Master A Stepwise Guide for Excellent Posts</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-in-2024-joining-friends-and-family-online-facebook-setup-guide/"><u>[New] In 2024, Joining Friends and Family Online (Facebook Setup Guide)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-price-benchmarking-top-value-in-cloud-services/"><u>[Updated] 2024 Approved Price Benchmarking Top Value in Cloud Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-a-comprehensive-guide-to-previewing-facebooks-hidden-activities/"><u>[Updated] In 2024, A Comprehensive Guide to Previewing Facebook's Hidden Activities</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-essential-samples-the-finest-free-after-effects-templates/"><u>[Updated] In 2024, Essential Samples The Finest Free After Effects Templates</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-snapshot-sophistication-expert-advice-on-editing-magic/"><u>[Updated] In 2024, Snapshot Sophistication Expert Advice on Editing Magic</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unpacking-the-multifaceted-nature-of-wirecast-tools/"><u>[Updated] In 2024, Unpacking the Multifaceted Nature of WireCast Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-revolutionary-techniques-for-chronological-categorization-of-photographs-for-2024/"><u>[Updated] Revolutionary Techniques for Chronological Categorization of Photographs for 2024</u></a></li>
+<li><a href="https://location-fake.techidaily.com/a-detailed-guide-on-faking-your-location-in-mozilla-firefox-on-lava-yuva-2-drfone-by-drfone-virtual-android/"><u>A Detailed Guide on Faking Your Location in Mozilla Firefox On Lava Yuva 2 | Dr.fone</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/defending-against-data-exposure-from-personalized-ai/"><u>Defending Against Data Exposure From Personalized AI</u></a></li>
+<li><a href="https://article-files.techidaily.com/drone-pilots-guide-to-best-vr-headsets-for-2024/"><u>Drone Pilots' Guide to Best VR Headsets for 2024</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-vivo-y77t-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Vivo Y77t Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/master-new-languages-for-free-explore-these-top-9-recommended-sites/"><u>Master New Languages for Free: Explore These Top 9 Recommended Sites</u></a></li>
+<li><a href="https://audio-shaping.techidaily.com/new-in-2024-unleashing-the-power-of-sound-in-videography-a-step-by-step-tutorial/"><u>New In 2024, Unleashing the Power of Sound in Videography A Step-by-Step Tutorial</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/unveiling-the-power-of-jacos-smartpro-digital-tire-inflator-an-insightful-product-analysis-for-on-the-go-efficiency/"><u>Unveiling the Power of Jaco's SmartPro Digital Tire Inflator: An Insightful Product Analysis for On-the-Go Efficiency</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/updated-extract-audio-from-mp4-top-rated-mp4-to-mp3-converters/"><u>Updated Extract Audio From MP4 Top-Rated MP4 to MP3 Converters</u></a></li>
 </ul></div>
 

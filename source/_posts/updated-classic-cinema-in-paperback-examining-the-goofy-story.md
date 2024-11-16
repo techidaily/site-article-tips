@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Classic Cinema in Paperback  Examining 'The Goofy Story'\""
-date: 2024-10-30T16:34:53.413Z
-updated: 2024-11-05T17:26:45.784Z
+date: 2024-11-10T23:07:58.256Z
+updated: 2024-11-15T16:24:26.859Z
 tags: 
   - screen-recording
   - ai video
@@ -97,18 +97,18 @@ Launch Wondershare Filmora and open the “Stock Media” tab. Locate “Solid C
 
 ![add distortion effect and adjust](https://images.wondershare.com/filmora/article-images/2023/add-distortion-effect-and-adjust.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087485/7443" target="_top" id="2087485">
-  <img src="//a.impactradius-go.com/display-ad/7443-2087485" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087485/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ##### Step 2Add the VHS Rewind and Glitch Effect
 
 Drag and drop the "VHS Rewind" effect from the same tab onto the timeline. Further, place the effect over the previous layer and change its alpha value to 10\. Next, place the "Strong Glitch" effect over the previous layer, adjust its alpha value to 25, and click "OK."
 
 ![add rewind and glitch](https://images.wondershare.com/filmora/article-images/2023/add-rewind-and-glitch.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/1948937/19272" target="_top" id="1948937">
+  <img src="//a.impactradius-go.com/display-ad/19272-1948937" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948937/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step 3Apply the Chromatic Aberration and VCR Distortion Effect
 
@@ -129,10 +129,10 @@ After finishing your editing, click on the Export button and export your video w
 ![export entire vhs preset](https://images.wondershare.com/filmora/article-images/2023/export-entire-vhs-preset.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062450/7443" target="_top" id="1062450">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062450" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137211/26400" target="_top" id="2137211">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137211" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062450/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137211/26400" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -144,35 +144,15 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135401/19272" target="_top" id="2135401">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135401" border="0" alt="https://techidaily.com" width="320" height="90"/>
+<a href="https://wigfever.sjv.io/c/5597632/2014850/22899" target="_top" id="2014850">
+  <img src="//a.impactradius-go.com/display-ad/22899-2014850" border="0" alt="https://techidaily.com" width="320" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135401/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014850/22899" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![Wondershare Filmora 12](https://images.wondershare.com/filmora/banner/filmora-latest-product-box.png)
-
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399">
-  <img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://laganoo.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1516072">
-					<video width="864" height="1536" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1516072.png"
-           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/16446-1516072">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1516072.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
-	</video>
-	<div style="width:540px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Flaganoo.pxf.io%2Fc%2F5597632%2F1516072%2F16446'), '_blank');void(0);">Click here</a></div>
-</span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1516072/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ## Part 2: How Was VHS Technology Used in Old Movies?
 
@@ -203,10 +183,10 @@ As the VHS market grew, movie distributors released special editions and collect
 Such tapes became a valuable resource for film education and study. Film schools, universities, and film enthusiasts would compile these tapes for research purposes. It allows students and researchers to study and analyze films at their own pace. Similarly, it provided a medium for referencing and studying specific scenes or films in detail.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2132160/7443" target="_top" id="2132160">
-  <img src="//a.impactradius-go.com/display-ad/7443-2132160" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/1902304/19272" target="_top" id="1902304">
+  <img src="//a.impactradius-go.com/display-ad/19272-1902304" border="0" alt="https://techidaily.com" width="300" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2132160/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902304/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ## Part 3: Wondershare Filmora: The New Age VHS Technology Video Editor
@@ -220,10 +200,10 @@ Such tapes became a valuable resource for film education and study. Film schools
 [![iOS](https://images.wondershare.com/assets/images-common/badges-apple.svg)](https://app.adjust.com/w06dr6m%5F19za1f6) [![Android](https://images.wondershare.com/assets/images-common/badges-google.svg)](https://app.adjust.com/w06dr6m%5F19za1f6)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://aligracehair.sjv.io/c/5597632/2006933/19272" target="_top" id="2006933">
+  <img src="//a.impactradius-go.com/display-ad/19272-2006933" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2006933/19272" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 [Try It Free >>](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -236,11 +216,25 @@ Launch Wondershare Filmora and open the “Stock Media” tab. Locate “Solid C
 
 ![add distortion effect and adjust](https://images.wondershare.com/filmora/article-images/2023/add-distortion-effect-and-adjust.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ##### Step 2Add the VHS Rewind and Glitch Effect
 
 Drag and drop the "VHS Rewind" effect from the same tab onto the timeline. Further, place the effect over the previous layer and change its alpha value to 10\. Next, place the "Strong Glitch" effect over the previous layer, adjust its alpha value to 25, and click "OK."
 
 ![add rewind and glitch](https://images.wondershare.com/filmora/article-images/2023/add-rewind-and-glitch.jpg)
+
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2136617/26400" target="_top" id="2136617">
+  <img src="//a.impactradius-go.com/display-ad/26400-2136617" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136617/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 ##### Step 3Apply the Chromatic Aberration and VCR Distortion Effect
 
@@ -288,24 +282,20 @@ In conclusion, The Goofy Movie holds a special place in the hearts of 90s kids. 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-action-cam-showdown-2022-hero5-black-vs-ultra-30-streaming/"><u>[New] 2024 Approved Action Cam Showdown 2022 Hero5 Black Vs. Ultra 30 Streaming</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-device-independent-intro-editing-excellence/"><u>[New] 2024 Approved Device-Independent Intro Editing Excellence</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-discovering-the-potential-apple-devices-on-your-youtube-channel/"><u>[New] 2024 Approved Discovering the Potential Apple Devices on Your YouTube Channel</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-from-mediocre-to-marvelous-an-exhaustive-facetune-analysis/"><u>[New] 2024 Approved From Mediocre to Marvelous An Exhaustive Facetune Analysis</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-2024-approved-master-mp4-uploader-and-downloader-fb-edition/"><u>[New] 2024 Approved Master MP4 Uploader & Downloader FB Edition</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-a-compreited-chronological-catalog-of-your-image-collection-for-2024/"><u>[New] A Compreited Chronological Catalog of Your Image Collection for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-selective-selection-best-bands-for-ringtones/"><u>[New] In 2024, Selective Selection Best Bands for Ringtones</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-mastering-zoom-on-windows-10-a-step-by-step-guide/"><u>[New] Mastering Zoom on Windows 10 A Step-by-Step Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-investigating-unmodified-audio-from-ffmpeg-output/"><u>[Updated] Investigating Unmodified Audio From FFmpeg Output</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-strategies-for-precise-age-entry-in-tiktok-profiles/"><u>[Updated] Strategies for Precise Age Entry in TikTok Profiles</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/creating-and-sharing-your-memorable-moments-a-step-by-step-guide-to-crafting-videos-on-ios-devices/"><u>Creating and Sharing Your Memorable Moments: A Step-by-Step Guide to Crafting Videos on iOS Devices</u></a></li>
-<li><a href="https://article-tips.techidaily.com/from-meetings-to-media-how-zoom-powers-fb-live-content/"><u>From Meetings to Media How Zoom Powers FB Live Content</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-reset-iphone-12-pro-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How To Reset iPhone 12 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723004467847-risk-of-rain-crash-dilemma-heres-how-you-can-repair-it/"><u>Risk of Rain ² Crash Dilemma? Here's How You Can Repair It</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/sync-twitch-with-snapchat-a-step-by-step-guide/"><u>Sync Twitch with Snapchat A Step-by-Step Guide</u></a></li>
-<li><a href="https://techtrends.techidaily.com/the-complete-players-handbook-essential-tips-and-insider-know-how-for-conquering-subway-surfers/"><u>The Complete Player's Handbook: Essential Tips and Insider Know-How for Conquering Subway Surfers</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/the-ultimate-platform-pair-comparison-twitch-and-youtube/"><u>The Ultimate Platform Pair Comparison Twitch and YouTube</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/top-10-poco-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Poco Android SIM Unlock APK</u></a></li>
-<li><a href="https://win-news.techidaily.com/zdnets-ranking-for-2-best-pc-brands-in-depth-comparison-of-apple-dell-and-more/"><u>ZDNET's Ranking for 2^ Best PC Brands : In-Depth Comparison of Apple, Dell, and More!</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-2024-approved-top-fbx-capture-tools-beyond-traditional-recorders/"><u>[New] 2024 Approved Top FBX Capture Tools Beyond Traditional Recorders</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-elevate-video-output-quality-mastering-aiseesoft-screencast-tech-for-2024/"><u>[New] Elevate Video Output Quality Mastering Aiseesoft Screencast Tech for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-in-2024-twitter-video-requirement-aspect-ratio/"><u>[New] In 2024, Twitter Video Requirement - Aspect Ratio</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-pioneering-the-art-of-storytelling-top-youtubers-of-year-2023/"><u>[Updated] 2024 Approved Pioneering the Art of Storytelling - Top YouTubers of Year 2023</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-meet-the-monitor-that-elevates-your-graphic-work/"><u>[Updated] In 2024, Meet the Monitor That Elevates Your Graphic Work</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-snapedit-overview-in-depth-editor-review/"><u>[Updated] In 2024, SnapEdit Overview – In-Depth Editor Review</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-navigating-zoom-meetings-on-windows-10-for-2024/"><u>[Updated] Navigating Zoom Meetings on Windows 10 for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-professional-tips-top-10-text-effects/"><u>[Updated] Professional Tips Top 10 Text Effects</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/2024-approved-comprehensible-guide-to-efficient-zoom-capturing/"><u>2024 Approved Comprehensible Guide to Efficient Zoom Capturing</u></a></li>
+<li><a href="https://howto.techidaily.com/9-solutions-to-fix-process-system-isnt-responding-error-on-honor-x50-gt-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>9 Solutions to Fix Process System Isnt Responding Error on Honor X50 GT | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/beat-the-lag-a-comprehensive-approach-to-fixing-audio-delays/"><u>Beat the Lag: A Comprehensive Approach to Fixing Audio Delays</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-masterpiece-tools-filmoras-loved-9-edits-unraveled/"><u>In 2024, Masterpiece Tools Filmora's Loved 9 Edits Unraveled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-premium-motion-mastery-modules/"><u>In 2024, Premium Motion Mastery Modules</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-future-of-digital-doctors-is-chatgpt-shaping-new-pathways-for-health-and-wellness/"><u>The Future of Digital Doctors: Is ChatGPT Shaping New Pathways for Health and Wellness?</u></a></li>
+<li><a href="https://techtrends.techidaily.com/ultimate-sound-on-the-go-sonys-field-1-bluetooth-speaker-evaluation-the-ultimate-companion-for-mobile-music-lovers/"><u>Ultimate Sound on the Go: Sony's Field 1 Bluetooth Speaker Evaluation - The Ultimate Companion for Mobile Music Lovers</u></a></li>
 </ul></div>
 

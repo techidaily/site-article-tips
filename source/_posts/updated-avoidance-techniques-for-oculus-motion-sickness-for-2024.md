@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Avoidance Techniques for Oculus Motion Sickness for 2024"
-date: 2024-09-04T21:19:25.870Z
-updated: 2024-09-05T21:19:25.870Z
+date: 2024-11-10T21:23:58.499Z
+updated: 2024-11-15T22:34:16.696Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,13 @@ thumbnail: https://thmb.techidaily.com/e80f8e773e8554c0c3bc3af8f08cf584d0a96cf13
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2135403/19272" target="_top" id="2135403">
+  <img src="//a.impactradius-go.com/display-ad/19272-2135403" border="0" alt="https://techidaily.com" width="392" height="72"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135403/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -57,6 +64,19 @@ thumbnail: https://thmb.techidaily.com/e80f8e773e8554c0c3bc3af8f08cf584d0a96cf13
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<span id="1265663">
+					<video width="240" height="200" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1265663.png"
+           onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
+	   <source src="//a.impactradius-go.com/display-ad/4482-1265663">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1265663.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	</video>
+	<div style="width:150px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fmartinic.evyy.net%2Fc%2F5597632%2F1265663%2F4482'), '_blank');void(0);">Click here</a></div>
+</span>
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1265663/4482" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -81,11 +101,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-2024-approved-building-impressive-instagram-story-bookmarks/"><u>[New] 2024 Approved Building Impressive Instagram Story Bookmarks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-leveraging-xbox-ones-zoom-features-effectively/"><u>[New] 2024 Approved Leveraging Xbox One's Zoom Features Effectively</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-soar-with-the-pros-top-9-drone-editors-at-every-experience-level/"><u>[New] 2024 Approved Soar with the Pros Top 9 Drone Editors at Every Experience Level</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-lenovo-quick-guide-effortless-screenshots/"><u>[New] In 2024, Lenovo Quick Guide Effortless Screenshots</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-real-time-hardware-for-vr/"><u>[New] In 2024, Real-Time Hardware for VR</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigate-the-sea-of-stunning-pexels-imagery-with-ease-for-2024/"><u>[New] Navigate the Sea of Stunning Pexels Imagery with Ease for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-optimizing-youtube-presentations-with-precise-times/"><u>[New] Optimizing YouTube Presentations with Precise Times</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-smartphone-compatible-vr-top-10-devices-for-2024/"><u>[New] Smartphone-Compatible VR Top 10 Devices for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-high-speed-files-inspection-on-windows-os/"><u>[Updated] High-Speed Files Inspection on Windows OS</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-in-2024-discovering-the-top-tools-for-engaging-video-beginnings/"><u>[Updated] In 2024, Discovering the Top Tools for Engaging Video Beginnings</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-in-2024-e-learning-event-recording/"><u>[Updated] In 2024, E-Learning Event Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-inside-hand-tracking-techniques-and-varieties/"><u>[Updated] In 2024, Inside Hand Tracking Techniques & Varieties</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-ultimate-list-of-top-quality-cost-free-luts/"><u>[Updated] In 2024, Ultimate List of Top-Quality, Cost-Free LUTs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-lens-wisdom-advanced-insights-into-capturing-and-editing-art-for-2024/"><u>[Updated] Lens Wisdom Advanced Insights Into Capturing & Editing Art for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/approved-ensuring-copyright-compliance-in-youtube-to-mp4/"><u>2024 Approved Ensuring Copyright Compliance in Youtube-to-MP4</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/can-i-bypass-a-forgotten-phone-password-of-oppo-f23-5g-by-drfone-android/"><u>Can I Bypass a Forgotten Phone Password Of Oppo F23 5G?</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discovering-value-with-dells-top-secret-budget-beast-exceptional-tech-meets-wallet-friendly-pricing/"><u>Discovering Value with Dell's Top-Secret Budget Beast - Exceptional Tech Meets Wallet-Friendly Pricing</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/elevate-task-completion-discovering-7-key-benefits-of-chatgpt-in-daily-routine/"><u>Elevate Task Completion: Discovering 7 Key Benefits of ChatGPT in Daily Routine</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unveiling-the-artist-within-using-auditions-gradual-volume-increase-for-2024/"><u>Unveiling the Artist Within Using Audition's Gradual Volume Increase for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://review-au.sjv.io/c/5597632/2098702/14409" target="_top" id="2098702">
-  <img src="//a.impactradius-go.com/display-ad/14409-2098702" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://review-au.sjv.io/i/5597632/2098702/14409" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

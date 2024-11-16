@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Complete Preview Control Essentials for Mac Users"
-date: 2024-11-04T16:37:01.422Z
-updated: 2024-11-05T17:21:44.148Z
+date: 2024-11-10T21:57:24.885Z
+updated: 2024-11-15T20:47:39.613Z
 tags: 
   - screen-recording
   - ai video
@@ -42,10 +42,10 @@ Being the default image editor for Mac, Apple tried to make the **Preview app** 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/1062447/7443" target="_top" id="1062447">
-  <img src="//a.impactradius-go.com/display-ad/7443-1062447" border="0" alt="https://techidaily.com" width="600" height="90"/>
+<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411">
+  <img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/1062447/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
@@ -62,6 +62,13 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Use the tools present on the standard toolbar at the top of the interface
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2049363/7443" target="_top" id="2049363">
+  <img src="//a.impactradius-go.com/display-ad/7443-2049363" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2049363/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -75,13 +82,6 @@ Click the **Show Markup Toolbar** icon present at the upper-right area to reveal
 Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup Toolbar**.
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
-
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094482/7443" target="_top" id="2094482">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094482" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094482/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### How to Crop in Preview
 
@@ -127,13 +127,6 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075483/7443" target="_top" id="2075483">
-  <img src="//a.impactradius-go.com/display-ad/7443-2075483" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075483/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -166,6 +159,13 @@ Ensure that Preview opens with both the images listed in the sidebar in the left
 
 After removing the background, press **Command** \+ **A** to select all the remaining elements, and then press **Command** \+ **C** to copy them. Next, select the second photo from the sidebar, and press **Command** \+ **V** to paste the object to combine the pictures. Additionally, you can drag the pasted object or move its side handles to reposition or resize it respectively.
 
+<!-- affiliate ads begin -->
+<a href="https://aligracehair.sjv.io/c/5597632/2012434/19272" target="_top" id="2012434">
+  <img src="//a.impactradius-go.com/display-ad/19272-2012434" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2012434/19272" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### How to Save Images in Different Formats
 
 The **Preview app** has a built-in image converter as well. To convert an image to a different format with Preview, you must:
@@ -177,13 +177,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 **Step 2: Choose Output Format and Export**
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2005183/22899" target="_top" id="2005183">
-  <img src="//a.impactradius-go.com/display-ad/22899-2005183" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2005183/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Part 2: FAQs About Preview App on Mac
 
@@ -219,6 +212,13 @@ Choose a destination folder in the **Where** field, select your preferred format
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://25home.pxf.io/c/5597632/2148644/16836" target="_top" id="2148644">
+  <img src="//a.impactradius-go.com/display-ad/16836-2148644" border="0" alt="https://techidaily.com" width="300" height="90"/>
+</a>
+<img height="0" width="0" src="https://25home.pxf.io/i/5597632/2148644/16836" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -244,20 +244,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-expert-tips-to-download-and-save-instagram-media-from-your-computer/"><u>[New] 2024 Approved Expert Tips to Download and Save Instagram Media From Your Computer</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-gnasher-no-cost-and-paid-alternatives-to-lightroom/"><u>[New] 2024 Approved Gnasher No-Cost & Paid Alternatives to Lightroom</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-craft-memes-for-comedy-using-adobe/"><u>[New] Craft Memes for Comedy Using Adobe</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-groups-of-flying-robots/"><u>[Updated] 2024 Approved Groups of Flying Robots</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-engaging-audiences-together-youtube-and-brands-working-synergetically/"><u>[Updated] Engaging Audiences Together YouTube & Brands Working Synergetically</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-inverted-screen-changing-video-ordering-for-2024/"><u>[Updated] Inverted Screen Changing Video Ordering for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-streamlined-video-tools-for-twitter-sharing-for-2024/"><u>[Updated] Streamlined Video Tools for Twitter Sharing for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/how-to-transfer-data-from-realme-narzo-n55-to-any-ios-devices-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How to Transfer Data from Realme Narzo N55 to Any iOS Devices | Dr.fone</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/in-2024-unraveling-why-your-facebooks-newsfeed-fails-to-suggest-movies/"><u>In 2024, Unraveling Why Your Facebook's Newsfeed Fails to Suggest Movies</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unveiling-virtual-background-magic-a-streamers-guide-to-chroma-key/"><u>In 2024, Unveiling Virtual Background Magic A Streamer's Guide to Chroma Key</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/lenovos-breakthrough-thinkpad-x1-fold-assessing-its-revolutionary-design-and-functionality/"><u>Lenovo's Breakthrough ThinkPad X1 Fold: Assessing Its Revolutionary Design and Functionality</u></a></li>
-<li><a href="https://article-tips.techidaily.com/mastering-stream-selection-a-top-10-tips-guide-for-2024/"><u>Mastering Stream Selection A Top 10 Tips Guide for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/mastery-in-music-selection-enhancing-video-packages/"><u>Mastery in Music Selection Enhancing Video Packages</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/tips-and-tricks-to-retrieve-saved-or-private-instagram-reel-content/"><u>Tips and Tricks to Retrieve Saved or Private Instagram Reel Content</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/what-to-do-if-your-nvidia-graphics-card-is-not-detected/"><u>What To Do If Your Nvidia Graphics Card Is Not Detected?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-2023s-best-replacements-for-samsung-gear-360/"><u>[New] 2024 Approved 2023'S Best Replacements for Samsung Gear 360</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-transform-your-web-exploration-with-microsofts-split-screen-functionality/"><u>[New] 2024 Approved Transform Your Web Exploration with Microsoft's Split Screen Functionality</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-elevate-with-these-top-10-igtv-experts/"><u>[New] Elevate with These Top 10 IGTV Experts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-silent-strategies-learning-without-edge-videos/"><u>[New] In 2024, Silent Strategies Learning Without EDGE Videos</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/new-insta-explosion-supercharge-with-content-likes-and-videos/"><u>[New] Insta Explosion Supercharge with Content, Likes & Videos</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-end-game-for-youtube-content-pros-secrets-and-templates/"><u>In 2024, End Game for YouTube Content Pros' Secrets & Templates</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-ultimate-camera-test-hero5-meets-sjcam/"><u>In 2024, Ultimate Camera Test Hero5 Meets SJCAM</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-vegas-pro-2021-unpacked-game-changer-or-just-another-tool/"><u>In 2024, Vegas Pro 2021 Unpacked Game Changer or Just Another Tool?</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/intro-to-radial-photo-distortion-ps-tutorial/"><u>Intro to Radial Photo Distortion PS Tutorial</u></a></li>
+<li><a href="https://ai-driven-video-production.techidaily.com/new-in-2024-unlocking-advanced-visuals-how-to-use-picture-in-picture-in-final-cut-pro/"><u>New In 2024, Unlocking Advanced Visuals How to Use Picture-in-Picture in Final Cut Pro</u></a></li>
+<li><a href="https://win-best.techidaily.com/simple-and-secure-guide-resolving-the-phantom-windows-11-update-malware/"><u>Simple and Secure Guide: Resolving the Phantom Windows 11 Update Malware</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-10-travel-friendly-video-reader-devices-for-2024/"><u>Top 10 Travel-Friendly Video Reader Devices for 2024</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-no-cost-dailymotion-video-downloader-and-converter/"><u>Updated In 2024, No-Cost Dailymotion Video Downloader and Converter</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Transform Your Imagery with AR & Accessible LUTs"
-date: 2024-11-04T16:49:28.400Z
-updated: 2024-11-05T17:28:08.688Z
+date: 2024-11-12T19:40:17.144Z
+updated: 2024-11-15T19:17:40.194Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,13 @@ A patch graph is automatically set that applies a color LUT to the entire scene.
 
 ![apply to the whole scene](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-2.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://ephamedtechinc.pxf.io/c/5597632/2137216/26400" target="_top" id="2137216">
+  <img src="//a.impactradius-go.com/display-ad/26400-2137216" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137216/26400" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 **The color LUT patch graph**
 
 The patch graph that renders the color gradation effect looks like this:
@@ -70,10 +77,10 @@ The patch graph that renders the color gradation effect looks like this:
 Here are the best free LUTs resources for Spark AR:
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1934142/19272" target="_top" id="1934142">
-  <img src="//a.impactradius-go.com/display-ad/19272-1934142" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://united.elfm.net/c/5597632/2139563/4704" target="_top" id="2139563">
+  <img src="//a.impactradius-go.com/display-ad/4704-2139563" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1934142/19272" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://united.elfm.net/i/5597632/2139563/4704" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 1\. [Frost Zombie (Technical Showcase)](https://we.tl/t-1uj4wJKluG)
@@ -83,23 +90,16 @@ Client filter pieces occasionally end up on the scrap heap. It was a poor Frost 
 ![frost zombie](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-4.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1997643/19272" target="_top" id="1997643">
-  <img src="//a.impactradius-go.com/display-ad/19272-1997643" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1997643/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<span id="1630055">
-					<video width="192" height="320" style="cursor:pointer"
-           poster="//a.impactradius-go.com/display-clicktoplayimage/1630055.png"
+<span id="1993645">
+					<video width="576" height="240" style="cursor:pointer"
+           poster="//a.impactradius-go.com/display-clicktoplayimage/1993645.png"
            onclick="if(!this.playClicked){this.play();this.setAttribute('controls',true);this.playClicked=true;}">
-	   <source src="//a.impactradius-go.com/display-ad/18460-1630055">
-	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1630055.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
+	   <source src="//a.impactradius-go.com/display-ad/22993-1993645">
+	   <img src="//a.impactradius-go.com/display-clicktoplayimage/1993645.png" style="border: none; height: 100%; width: 100%; object-fit: contain">
 	</video>
-	<div style="width:120px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fcaperobbin.sjv.io%2Fc%2F5597632%2F1630055%2F18460'), '_blank');void(0);">Click here</a></div>
+	<div style="width:360px;text-align:center"><a href="javascript:window.open(decodeURIComponent('https%3A%2F%2Fhomestyler.sjv.io%2Fc%2F5597632%2F1993645%2F22993'), '_blank');void(0);">Click here</a></div>
 </span>
-<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1630055/18460" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://imp.pxf.io/i/5597632/1993645/22993" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 2\. Fur
@@ -115,6 +115,20 @@ Here are the key building principles.
 
 ![fur](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-5.jpg)
 
+<!-- affiliate ads begin -->
+<a href="https://appsumo.8odi.net/c/5597632/2151855/7443" target="_top" id="2151855">
+  <img src="//a.impactradius-go.com/display-ad/7443-2151855" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2151855/7443" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<a href="https://imp.i357552.net/c/5597632/857869/11832" target="_top" id="857869">
+  <img src="//a.impactradius-go.com/display-ad/11832-857869" border="0" alt="https://techidaily.com" width="728" height="90"/>
+</a>
+<img height="0" width="0" src="https://imp.i357552.net/i/5597632/857869/11832" style="position:absolute;visibility:hidden;" border="0" />
+<!-- affiliate ads end -->
+
 ### 3\. Shockwave
 
 Even while using large image sequences is frequently discouraged, you can still use them to make some extremely spectacular effects! I'll explain how the screen tap computation procedure relates to texture position in this walkthrough. If you want to apply this approach and texture sequence in your projects or give it a try.
@@ -127,13 +141,6 @@ There are 11 distinct animation curves included with Spark AR in the Transition 
 
 ![transition curves](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-7.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1948949/19272" target="_top" id="1948949">
-  <img src="//a.impactradius-go.com/display-ad/19272-1948949" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1948949/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 5\. Realistic Smoke
 
 By adding smoke to a scene, you can easily add a lot of detail and realism. Nothing revolutionary is happening here. The particle emitter creates flat planes of smoke texture that are forced upward. The force slowly shifts left and right as seen in the patch editor. The Fade particle script (created by Josh Beckwith) enlarges the particles and fades them out at the same time.
@@ -141,10 +148,10 @@ By adding smoke to a scene, you can easily add a lot of detail and realism. Noth
 ![realistic smoke](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-8.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082520/7443" target="_top" id="2082520">
-  <img src="//a.impactradius-go.com/display-ad/7443-2082520" border="0" alt="https://techidaily.com" width="728" height="90"/>
+<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
+  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
 </a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082520/7443" style="position:absolute;visibility:hidden;" border="0" />
+<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
 <!-- affiliate ads end -->
 
 ### 6\. Rainbow Glitter
@@ -152,13 +159,6 @@ By adding smoke to a scene, you can easily add a lot of detail and realism. Noth
 Given how beautifully Glitter Rain was received, I believed it would be fitting to broaden the potential with an HDR setting. While Glitter Rain made use of two different colors, this technique makes use of an entirely colorless substance and gets its color information via HDR.
 
 ![rainbow glitter](https://images.wondershare.com/filmora/article-images/2022/08/how-to-use-luts-in-spark-ar-9.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2137201/26400" target="_top" id="2137201">
-  <img src="//a.impactradius-go.com/display-ad/26400-2137201" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2137201/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### Closing Thoughts
 
@@ -194,24 +194,24 @@ Spark AR is an amazing website for LUTs and color grading. Whether you're a new 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-elemental-story-framework/"><u>[New] 2024 Approved Elemental Story Framework</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-the-finest-selection-of-5-sd-cards-for-hero-gopros/"><u>[New] In 2024, The Finest Selection of 5 SD Cards for Hero GoPros</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-mastering-ringtones-on-ios-a-comprehensible-process-for-2024/"><u>[New] Mastering Ringtones on iOS A Comprehensible Process for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-haul-videography-101-preparation-and-editing-for-maximum-impact/"><u>[Updated] 2024 Approved Haul Videography 101 Preparation & Editing for Maximum Impact</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-effortless-memes-using-kinemaster-101-for-2024/"><u>[Updated] Effortless Memes Using KineMaster 101 for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-convert-fb-footage-fast-free-720p-1080p-to-mp4-conversion/"><u>[Updated] In 2024, Convert FB Footage Fast - Free 720P, 1080P to MP4 Conversion</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/updated-in-2024-digging-through-youtube-conversations/"><u>[Updated] In 2024, Digging Through YouTube Conversations</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-revolutionary-entry-tool-for-all-devices-this-year-for-2024/"><u>[Updated] Revolutionary Entry Tool for All Devices This Year for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/how-to-stream-anything-from-motorola-moto-g73-5g-to-apple-tv-drfone-by-drfone-android/"><u>How To Stream Anything From Motorola Moto G73 5G to Apple TV | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-any-nokia-c32-phone-password-using-emergency-call-by-drfone-android/"><u>How To Unlock Any Nokia C32 Phone Password Using Emergency Call</u></a></li>
-<li><a href="https://techidaily.com/how-to-update-apple-iphone-6s-without-losing-data-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Update Apple iPhone 6s without Losing Data? | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/implement-shutter-speed-blurring-in-psx/"><u>Implement Shutter Speed Blurring in PSX</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-analyzing-dji-x4-fpv-helmet-functionality/"><u>In 2024, Analyzing DJI X4 FPV Helmet Functionality</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-elite-5-screen-selections-ps5s-partner/"><u>In 2024, Elite 5 Screen Selections PS5's Partner</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/introduction-to-plot-and-character-dynamics/"><u>Introduction to Plot and Character Dynamics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/prime-mobileweb-invest-in-no-cost-imagery-upgrade/"><u>Prime Mobile/Web Invest in No-Cost Imagery Upgrade</u></a></li>
-<li><a href="https://article-tips.techidaily.com/prime-time-camera-selection-apexs-top-18-4k-camcorders/"><u>Prime-Time Camera Selection Apex's Top 18 4K Camcorders</u></a></li>
-<li><a href="https://location-social.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-samsung-galaxy-a54-5g-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Samsung Galaxy A54 5G | Dr.fone</u></a></li>
-<li><a href="https://win-wonderful.techidaily.com/windows-control-panel-survives-microsoft-confirms-continuation-despite-speculations-zdnet/"><u>Windows Control Panel Survives: Microsoft Confirms Continuation Despite Speculations | ZDNet</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-best-of-the-best-8-cameras-for-top-streaming-experience/"><u>[New] 2024 Approved Best of the Best 8 Cameras for Top Streaming Experience</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-immersive-metaverse-reflections-inspirational-messages/"><u>[New] 2024 Approved Immersive Metaverse Reflections Inspirational Messages</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-perfect-podcast-summaries-strategies-and-case-studies/"><u>[New] 2024 Approved Perfect Podcast Summaries Strategies & Case Studies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-building-effective-podcast-rss-feeds-for-2024/"><u>[New] Building Effective Podcast RSS Feeds for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-elevate-your-profile-9-strategic-moves-for-instagram-fame/"><u>[New] Elevate Your Profile 9 Strategic Moves for Instagram Fame</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-enhance-your-movies-leading-3d-blu-ray-equipment/"><u>[New] Enhance Your Movies Leading 3D Blu-Ray Equipment</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-exploring-every-aspect-of-vitas-complete-editing-app/"><u>[Updated] 2024 Approved Exploring Every Aspect of Vita's Complete Editing App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-hand-tracking-mastery-all-methods-unveiled/"><u>[Updated] Hand-Tracking Mastery All Methods Unveiled</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-in-2024-bare-bones-budget-friendly-best-5-windows-10-recording-apps/"><u>[Updated] In 2024, Bare-Bones, Budget-Friendly Best 5 Windows 10 Recording Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-perfected-text-templates-for-professional-use/"><u>[Updated] Perfected Text Templates for Professional Use</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-unleash-your-youtube-potential-with-easy-techniques-for-2024/"><u>[Updated] Unleash Your YouTube Potential with Easy Techniques for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/bring-back-vanished-watch-icon-to-facebook/"><u>Bring Back Vanished Watch Icon to Facebook</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/download-and-install-canon-pixma-mg2522-printer-drivers-step-by-step-guide/"><u>Download and Install Canon PIXMA MG2522 Printer Drivers: Step-by-Step Guide</u></a></li>
+<li><a href="https://change-location.techidaily.com/home-button-not-working-on-vivo-y100t-here-are-real-fixes-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Home Button Not Working on Vivo Y100t? Here Are Real Fixes | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/master-list-of-affordable-websites-boosting-vector-graphics-skills/"><u>Master List of Affordable Websites Boosting Vector Graphics Skills</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/pro-tips-combining-gopro-with-time-lapse-shooting-techniques/"><u>Pro Tips Combining GoPro with Time-Lapse Shooting Techniques</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-telegram-spy-tools-on-honor-x50-for-parents-drfone-by-drfone-virtual-android/"><u>Top 10 Telegram Spy Tools On Honor X50 for Parents | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/ultimate-list-of-the-top-open-source-ai-photo-editors/"><u>Ultimate List of the Top Open Source AI Photo Editors</u></a></li>
+<li><a href="https://change-location.techidaily.com/where-is-the-best-place-to-catch-dratini-on-samsung-galaxy-s23-drfone-by-drfone-virtual-android/"><u>Where Is the Best Place to Catch Dratini On Samsung Galaxy S23 | Dr.fone</u></a></li>
 </ul></div>
 

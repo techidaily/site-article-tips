@@ -1,7 +1,7 @@
 ---
 title: "[New] DJI Phantom 3 Capability Assessment"
-date: 2024-08-31T15:40:05.717Z
-updated: 2024-09-01T15:40:05.717Z
+date: 2024-11-18T21:15:43.979Z
+updated: 2024-11-24T21:13:06.330Z
 tags: 
   - screen-recording
   - ai video
@@ -29,6 +29,10 @@ thumbnail: https://thmb.techidaily.com/c4666c711fc9c9a338b2d08e469c371e9c8d5fe0d
  DJI is well known for impressive drone designs and Phantom 3 Standard is a wonderful addition to its quadcopter series. This device provides total [flight time](https://tools.techidaily.com/wondershare/filmora/download/) of 25 minutes and can move up to 1.2 miles with one charge. The added 4k resolution ability with advanced stabilization feature improves its recording focus. Beginners will love to use its return to home feature along with GPS, sensor stabilization and flight path control abilities.
 
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Complete review for DJ Phantom 3 Standard
 
@@ -80,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/c4666c711fc9c9a338b2d08e469c371e9c8d5fe0d
 
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ASUEYpqSP5E?si=0KOZxrTVexTuUkRn&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  By using specially designed control sticks you can easily move the motors in desired direction. On the other side, the advanced application provides easy controls to flight modes, GPS, signal strength and battery level monitoring. The bottom portion of application indicates speed, altitude, heading and other location based details. Map will help users to gain full control over live view details and it will update the hybrid or satellite based location information on the go.
 
  There are five different modes available under settings manual; once you disable the beginner’s mode then you will be able to gain access to points of interest, follow me, waypoint, home lock and course lock modes. All these modes assist users to enjoy incredible flight experience in air.
@@ -88,9 +96,17 @@ thumbnail: https://thmb.techidaily.com/c4666c711fc9c9a338b2d08e469c371e9c8d5fe0d
 
 ![phantom 3 standard](https://images.wondershare.com/filmora/article-images/dji-phantom-3-standard-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Phantom 3 Standard is able to capture videos with three different modes: HD, HHD and 2.7 K resolution level; whereas, you can enjoy stills with 12MP capabilities. All the resulting videos of Phantom device use to be of excellent quality with crystal clear details and all movements are reflected with very smooth and clean fashion. The great news is here that phantom 3 offers intuitive control video settings and one can make easy adjustments to avail soft, real and fuzzy videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -115,8 +131,22 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-premier-fishing-cameras-the-essentials-of-5/"><u>[New] In 2024, Premier Fishing Cameras - The Essentials of 5</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-insiders-list-google-pixel-tone-sources/"><u>[New] Insider's List Google Pixel Tone Sources</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-revolutionize-design-with-the-top-tier-plugins-for-ae/"><u>[New] Revolutionize Design with the Top-Tier Plugins for AE</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-streamline-your-cloud-strategy-expert-recommendations-for-top-20-free-providers-for-2024/"><u>[New] Streamline Your Cloud Strategy Expert Recommendations for Top 20 Free Providers for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ultimate-audio-experience-budget-friendly-asmr-mics-reviewed/"><u>[New] Ultimate Audio Experience Budget-Friendly ASMR Mics Reviewed</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-formulate-funny-imagery-with-adobe/"><u>[Updated] In 2024, Formulate Funny Imagery with Adobe</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unveiling-the-top-watermarking-tools-in-photography/"><u>[Updated] In 2024, Unveiling the Top Watermarking Tools in Photography</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-pinnaclescreenpro-capturing-like-a-pro-on-w10/"><u>2024 Approved PinnacleScreenPro Capturing Like a Pro on W10</u></a></li>
+<li><a href="https://article-posts.techidaily.com/2024-approved-streaming-software-showdown-wirecast-vs-obs-explored/"><u>2024 Approved Streaming Software Showdown Wirecast vs OBS Explored</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-wipe-iphone-7-data-permanently-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Wipe iPhone 7 Data Permanently? | Stellar</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-streamlining-google-meets-with-efficient-snap-photography-tips/"><u>In 2024, Streamlining Google Meets with Efficient Snap Photography Tips</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-ultimate-sierra-icloud-document-and-desktop-guide/"><u>In 2024, The Ultimate Sierra iCloud Document & Desktop Guide</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/top-tech-picks-in-depth-comparison-of-leading-brands-like-apple-and-dell-insights/"><u>Top Tech Picks : In-Depth Comparison of Leading Brands Like Apple & Dell - Insights</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/uniting-subscribers-through-shared-playlists/"><u>Uniting Subscribers Through Shared Playlists</u></a></li>
+<li><a href="https://article-tips.techidaily.com/voice-driven-operations-free-of-charge-for-2024/"><u>Voice-Driven Operations, Free of Charge for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713321&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVDJ1.90-300x188.jpg" border="0">OtsAV DJ Pro</a>
-<!-- affiliate ads end -->

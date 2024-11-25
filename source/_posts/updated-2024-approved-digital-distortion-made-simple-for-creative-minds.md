@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Digital Distortion Made Simple for Creative Minds\""
-date: 2024-09-04T21:18:13.077Z
-updated: 2024-09-05T21:18:13.077Z
+date: 2024-11-24T03:53:42.885Z
+updated: 2024-11-25T07:29:03.928Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 
 ![curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/curve-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Simple Steps to Curve an Image in Photoshop
 
 ##### Step1Create a New Document
@@ -40,6 +44,10 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/slm2NjVPNtk?si=9ow6g1ucmf0TnT4T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
 Play around with the settings in the options bar. There are quite a few different looks you can achieve just by adjusting these.
@@ -50,9 +58,17 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
 
@@ -67,6 +83,10 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -100,11 +120,24 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://vp-tips.techidaily.com/new-breaking-down-sync-a-thorough-review-of-lgs-uhd68-display-for-2024/"><u>[New] Breaking Down Sync A Thorough Review of LG's UHD68 Display for 2024</u></a></li>
+<li><a href="https://instagram-video-files.techidaily.com/new-in-2024-the-essentials-of-instagram-filters-for-picture-perfection/"><u>[New] In 2024, The Essentials of Instagram Filters for Picture Perfection</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-love-ballad-bingo-must-haves-on-the-list-of-proposals/"><u>[New] Love Ballad Bingo Must-Haves on the List of Proposals</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-plain-story-formulation/"><u>[New] Plain Story Formulation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-smartphone-cinematics-samsungs-guide-to-time-lapse/"><u>[New] Smartphone Cinematics Samsung's Guide to Time-Lapse</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-in-2024-secrets-to-seamless-overwatch-game-captures-unveiled/"><u>[Updated] In 2024, Secrets to Seamless Overwatch Game Captures Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-push-the-limits-a-review-of-lgs-27uhd68-freesync-display-for-2024/"><u>[Updated] Push the Limits A Review of LG’s 27UHD68 FreeSync Display for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-speed-it-up-crafting-beautiful-timelapse-videos-on-galaxy-for-2024/"><u>[Updated] Speed It Up Crafting Beautiful Timelapse Videos on Galaxy for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-free-mobile-live-stream-apps-essentials-for-smartphones/"><u>2024 Approved Free Mobile Live Stream Apps Essentials for Smartphones</u></a></li>
+<li><a href="https://driver-download.techidaily.com/comprehensive-tutorial-for-updating-drivers-in-audio-technicas-audio-gear/"><u>Comprehensive Tutorial for Updating Drivers in Audio Technica's Audio Gear</u></a></li>
+<li><a href="https://article-tips.techidaily.com/fine-tune-your-cinematography-mastering-kinemaster-zoom-features-for-2024/"><u>Fine-Tune Your Cinematography Mastering Kinemaster Zoom Features for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-luminous-techniques-crafting-captivating-cinematic-pieces/"><u>In 2024, Luminous Techniques Crafting Captivating Cinematic Pieces</u></a></li>
+<li><a href="https://article-tips.techidaily.com/instructors-resource-for-enhancing-learning-via-video/"><u>Instructor's Resource for Enhancing Learning via Video</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/sony-xperia-5-v-camera-not-working-unexpected-error-fix-it-now-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Sony Xperia 5 V Camera Not Working Unexpected Error? Fix It Now | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/the-5-best-methods-to-track-a-lost-or-stolen-iphone-12-mini-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>The 5 Best Methods to Track a Lost or Stolen iPhone 12 mini | Stellar</u></a></li>
+<li><a href="https://discover-help.techidaily.com/top-free-hd-4k-hevch265-media-player-software/"><u>Top FREE HD 4K HEVC/H.265 Media Player Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/try-these-free-online-tempo-trackers-today/"><u>Try These FREE Online Tempo Trackers Today</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2036501/19272" target="_top" id="2036501">
-  <img src="//a.impactradius-go.com/display-ad/19272-2036501" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2036501/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

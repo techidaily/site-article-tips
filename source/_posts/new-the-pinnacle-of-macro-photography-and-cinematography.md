@@ -1,7 +1,7 @@
 ---
 title: "[New] The Pinnacle of Macro Photography and Cinematography"
-date: 2024-11-14T22:27:07.903Z
-updated: 2024-11-15T23:29:02.584Z
+date: 2024-11-22T20:05:11.081Z
+updated: 2024-11-24T17:03:18.663Z
 tags: 
   - screen-recording
   - ai video
@@ -69,11 +69,19 @@ Try to get great visual perspectives or angles by bracing the camera on the tree
 
 ![Tripod](https://images.wondershare.com/filmora/article-images/oconnor-ultimate-1030d-fluid-head-30l-cf-tripod.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 3\. Background
 
 The background of your macro video always remains blurred as you shoot it closely. But, the background color is visible so, choosing it correctly is vital. The color of the background must compliment your composition’s color and must be chosen creatively.
 
 ![background](https://images.wondershare.com/filmora/article-images/separate-the-foreground-from-background.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\. DSLR Cameras
 
@@ -85,6 +93,10 @@ You may also add an extension tube which basically splits the focal distance in 
 
 ![dslr camera](https://images.wondershare.com/filmora/article-images/dslr-camera-full-rig.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Depth of Field
 
 The lens has certain limitation to capture and focus the subject closely. The camera’s aperture can be adjusted to control the depth of your field.
@@ -95,6 +107,10 @@ But, you must remember that when the opening of the lens is small, the light req
 
 ![depth of field](https://images.wondershare.com/filmora/article-images/depth-of-field.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Composition
 
 When you have low lights, ensuring a correct perspective on the subject with maximum focus area is quite difficult. You must have the right composition for your macro video.
@@ -103,13 +119,6 @@ For instance, in order to keep a snail always in focus, you may choose to shoot 
 
 ![composition](https://images.wondershare.com/filmora/article-images/composition.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2136614/26400" target="_top" id="2136614">
-  <img src="//a.impactradius-go.com/display-ad/26400-2136614" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://ephamedtechinc.pxf.io/i/5597632/2136614/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 Once you can master the above tips for making the macro video, you can easily shoot small objects like a pro. A videographer’s experience and creativity can be matched even by you if you can easily grasp the techniques, practice it, and implement creatively while making your macro videos.
@@ -117,10 +126,7 @@ Once you can master the above tips for making the macro video, you can easily sh
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2002018/7443" target="_top" id="2002018">
-  <img src="//a.impactradius-go.com/display-ad/7443-2002018" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2002018/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -148,20 +154,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-seamless-journey-of-filming-and-editing-haul-videos/"><u>[New] 2024 Approved The Seamless Journey of Filming and Editing Haul Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-uniting-visuals-the-desktop-and-web-way/"><u>[New] 2024 Approved Uniting Visuals The Desktop & Web Way</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-elevate-online-media-selecting-the-best-5-quality-boosters-for-2024/"><u>[New] Elevate Online Media Selecting the Best 5 Quality Boosters for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-designing-dramatic-podcast-clips/"><u>[New] In 2024, Designing Dramatic Podcast Clips</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/new-quickcast-your-youtube-selection-playlists/"><u>[New] Quickcast Your Youtube Selection, Playlists!</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-simplifying-media-files-with-xml-ssa-ttml-to-srt-process/"><u>[New] Simplifying Media Files with XML, SSA, TTML to SRT Process</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-vlcs-place-among-streaming-titans/"><u>[Updated] 2024 Approved VLC's Place Among Streaming Titans</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-current-vr-devices-explored-for-2024/"><u>[Updated] Current VR Devices Explored for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/efficient-techniques-for-retrieving-missing-email-correspondence-in-gmail/"><u>Efficient Techniques for Retrieving Missing Email Correspondence in Gmail</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/expert-analysis-by-toms-technology-hub/"><u>Expert Analysis by Tom's Technology Hub</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/in-2024-into-the-world-of-fraps-screenshots/"><u>In 2024, Into the World of Fraps Screenshots</u></a></li>
-<li><a href="https://android-frp.techidaily.com/in-2024-oppo-f23-5g-adb-format-tool-for-pc-vs-other-unlocking-tools-which-one-is-the-best-by-drfone-android/"><u>In 2024, Oppo F23 5G ADB Format Tool for PC vs. Other Unlocking Tools Which One is the Best?</u></a></li>
-<li><a href="https://some-tips.techidaily.com/in-2024-the-future-of-podcasts-starts-with-smart-name-generation/"><u>In 2024, The Future of Podcasts Starts with Smart Name Generation</u></a></li>
-<li><a href="https://apple-account.techidaily.com/unlock-apple-id-without-phone-number-on-iphone-se-by-drfone-ios/"><u>Unlock Apple ID without Phone Number On iPhone SE</u></a></li>
-<li><a href="https://ai-topics.techidaily.com/updated-in-2024-how-to-create-funny-talking-avatars-using-oddcast-text-to-speech-tech/"><u>Updated In 2024, How to Create Funny Talking Avatars Using Oddcast Text to Speech Tech</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-in-2024-crafting-a-compelling-movie-mini-epic/"><u>[New] In 2024, Crafting a Compelling Movie Mini-Epic</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/eal-time-viewership-metering-devices-for-2024/"><u>[New] Real-Time Viewership Metering Devices for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-access-a-wide-range-of-content-via-12-streaming-apps/"><u>[Updated] 2024 Approved Access a Wide Range of Content via 12 Streaming Apps</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/updated-dynamic-dynamics-groundbreaking-bio-formats-that-expand-follower-numbers-on-tiktok-filmora/"><u>[Updated] Dynamic Dynamics Groundbreaking Bio Formats that Expand Follower Numbers on TikTok-Filmora</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-exclusive-access-to-pinnacle-android-viewer/"><u>[Updated] In 2024, Exclusive Access to Pinnacle Android Viewer</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-wirecast-vs-obs-face-off-best-live-stream-software-reviewed/"><u>[Updated] In 2024, Wirecast Vs. OBS Face-Off Best Live Stream Software Reviewed</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/essential-tools-for-filmmakers-mirrorless-cameras-(1000/"><u>Essential Tools for Filmmakers Mirrorless Cameras <$1,000</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-transfer-everything-from-apple-iphone-6-plus-to-iphone-drfone-by-drfone-transfer-from-ios/"><u>How to Transfer Everything from Apple iPhone 6 Plus to iPhone | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-a-guide-xiaomi-14-wireless-and-wired-screen-mirroring-drfone-by-drfone-android/"><u>In 2024, A Guide Xiaomi 14 Wireless and Wired Screen Mirroring | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-mastermind-your-marketing-surge-to-1000-insta-supporters-each-month/"><u>In 2024, Mastermind Your Marketing Surge to 1,000 Insta Supporters Each Month</u></a></li>
+<li><a href="https://win-blog.techidaily.com/logiciel-denregistrement-decran-pour-mac-trouvez-le-meilleur-achat/"><u>Logiciel D'enregistrement D’écran Pour Mac - Trouvez Le Meilleur Achat</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premier-pdf-enhancements/"><u>Premier PDF Enhancements</u></a></li>
+<li><a href="https://discover-excellent.techidaily.com/1728482806646-wd-my-cloudwindows-11/"><u>WD My Cloud完全実演：Windows 11での使い勝手とトリック</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"Fun-Filled Photography  How To Use Lens on Snapchat for Playfulness\""
-date: 2024-11-14T16:48:53.179Z
-updated: 2024-11-15T17:52:16.429Z
+date: 2024-11-19T23:36:32.916Z
+updated: 2024-11-24T22:48:15.340Z
 tags: 
   - screen-recording
   - ai video
@@ -53,6 +53,14 @@ What’s more, when you send a snap using the cartoon face lens, you get the bes
 
 ![snapchat cartoon face](https://images.wondershare.com/filmora/article-images/2021/snapchat-cartoon-face.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Send a Snap Using the Cartoon Face Lens from Snapchat?
 
 Snapchat allows its users to use the Cartoon lens and send a snap with the cartoon face lens. All you need to do is make sure you have good internet connectivity to get the Snapchat app installed first. Wondering how to get a cool cartoon selfie and send it to your friends? Here’s a step-by-step guide to getting a Cartoon face lens and sending snaps using it:
@@ -64,26 +72,20 @@ Snapchat allows its users to use the Cartoon lens and send a snap with the carto
 ![snapcaht smile face filter lens](https://images.wondershare.com/filmora/article-images/snapcaht-smile-face-filter-lens.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134249/18498" target="_top" id="2134249">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134249" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134249/18498" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step-3:** Next, you need to head to the cartoon lens. Hence, tap on “Explore” at the bottom right-hand corner of your screen.
 
 ![explore cartoon face lens](https://images.wondershare.com/filmora/article-images/2021/explore-cartoon-face-lens.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step-4:** You will find a plethora of options and lens. Tap on the search bar to type “cartoon face” and search for the filter manually. You will see the Camera Face Lens come up as the first result. Make sure you have selected the one with “Snapchat” as the Creator.
 
 ![snapchat cartoon lens search result page](https://images.wondershare.com/filmora/article-images/snapchat-cartoon-lens-search-result-page.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014851/22899" target="_top" id="2014851">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014851" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014851/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Step-5:** Select the filter to use for taking new photos or videos. Or, you can tap the Camera Roll button to try out the Cartoon Face Lens on other photos from your device’s Gallery by clicking on “Camera Roll”.
 
@@ -125,13 +127,6 @@ Snapchat’s Cartoon Face Lens can be effectively used on humans and animals. Th
 
 ![send snap cartoon face](https://images.wondershare.com/filmora/article-images/2021/send-snap-cartoon-face.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2094419/7443" target="_top" id="2094419">
-  <img src="//a.impactradius-go.com/display-ad/7443-2094419" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2094419/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Source: intheknow.com
 
 #### 3.Cartoon Effect
@@ -140,18 +135,15 @@ The Cartoon Effect Lens of Snapchat is another cartoon filter that’s loved by 
 
 ![snapchat cartoon effect](https://images.wondershare.com/filmora/article-images/2021/snapchat-cartoon-effect.png)
 
-<!-- affiliate ads begin -->
-<a href="https://malaysia-healthcare-travel-council.pxf.io/c/5597632/1557742/17382" target="_top" id="1557742">
-  <img src="//a.impactradius-go.com/display-ad/17382-1557742" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://malaysia-healthcare-travel-council.pxf.io/i/5597632/1557742/17382" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 #### 4.Anime Style
 
 Snapchat’s Anime Style takes its inspiration from the animation style that originated from the East. The Anime Style Lens gives you a makeover in an anime-style of animation and follows each of your expressions in real-time. The filter has a nice soft shading style that’s surprisingly artistic and looks almost like it’s been hand-drawn. Also, it’s fun to try making different expressions as they tend to transform your new anime self entirely.
 
 ![snapchat anime style face](https://images.wondershare.com/filmora/article-images/2021/snapchat-anime-style-face.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -184,22 +176,20 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://snapchat-videos.techidaily.com/new-2024-approved-ensuring-quality-export-of-camera-images-for-snapchat-sharing/"><u>[New] 2024 Approved Ensuring Quality Export of Camera Images for Snapchat Sharing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-scooping-strategies-review-rundown/"><u>[New] 2024 Approved SCOOPING STRATEGIES Review Rundown</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-streamline-sound-integration-with-powerpoint-displays/"><u>[New] Streamline Sound Integration with PowerPoint Displays</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-topline-numbers-pewdiepies-yearly-income-for-2024/"><u>[New] Topline Numbers PewDiePie's Yearly Income for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-leading-4k-cameras-the-finest-selection-for-2024/"><u>[Updated] Leading 4K Cameras The Finest Selection for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-reigning-in-your-digital-domain-with-a-precision-plan-for-smm-excellence/"><u>[Updated] Reigning in Your Digital Domain with a Precision Plan for SMM Excellence</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/1726226400596-202410/"><u>2024年度推荐：选出10个最佳婚礼视频制作工具——如何帮你记录完美结合！</u></a></li>
-<li><a href="https://win11.techidaily.com/beating-the-system-uncrashing-win1011s-corrupt-bin-error/"><u>Beating the System: Uncrashing Win10/11's Corrupt Bin Error</u></a></li>
-<li><a href="https://solve-hot.techidaily.com/fehlerbehebung-fur-windows-problem-beim-starten-der-systemwiederherstellung/"><u>Fehlerbehebung Für Windows: Problem Beim Starten Der Systemwiederherstellung</u></a></li>
-<li><a href="https://apple-account.techidaily.com/in-2024-can-i-remove-the-apple-watch-activation-lock-by-apple-iphone-14-pro-without-the-previous-owner-by-drfone-ios/"><u>In 2024, Can I Remove the Apple Watch Activation Lock By Apple iPhone 14 Pro without the Previous Owner?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-in-depth-analysis-understanding-google-podcasts-app/"><u>In 2024, In-Depth Analysis Understanding Google Podcasts App</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-innovative-techniques-for-superior-canva-visuals/"><u>In 2024, Innovative Techniques for Superior Canva Visuals</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/in-2024-pushing-boundaries-with-high-speed-cinematography/"><u>In 2024, Pushing Boundaries with High-Speed Cinematography</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/techniques-to-maintain-high-video-standards-post-export/"><u>Techniques to Maintain High Video Standards Post-Export</u></a></li>
-<li><a href="https://article-tips.techidaily.com/tune-into-the-beats-with-these-free-online-scanners-for-2024/"><u>Tune Into the Beats with These Free Online Scanners for 2024</u></a></li>
-<li><a href="https://win-updates.techidaily.com/understanding-cloud-based-antivirus-advantages-over-classic-security-solutions/"><u>Understanding Cloud-Based Antivirus: Advantages Over Classic Security Solutions</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-in-2024-replace-vsdc-with-these-powerful-mac-video-editors/"><u>Updated In 2024, Replace VSDC with These Powerful Mac Video Editors</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-enhance-your-tv-experience-mastering-fb-live-and-roku/"><u>[New] 2024 Approved Enhance Your TV Experience Mastering FB Live and Roku</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-experts-choice-peak-business-space/"><u>[New] Expert's Choice Peak Business Space</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-infuse-sound-into-your-whatsapp-status-update/"><u>[Updated] 2024 Approved Infuse Sound Into Your WhatsApp Status Update</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-instant-guide-restoring-the-old-school-windows-photo-viewer-on-win-11/"><u>[Updated] 2024 Approved Instant Guide Restoring the Old-School Windows Photo Viewer on Win 11</u></a></li>
+<li><a href="https://youtube-lab.techidaily.com/ed-2024-approved-unboxing-premium-game-devices-youtube-edition/"><u>[Updated] 2024 Approved Unboxing Premium Game Devices YouTube Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-exploring-the-pro-features-of-dji-phantom-3-technology/"><u>[Updated] Exploring the Pro Features of DJI Phantom 3 Technology</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-transform-lives-10-cinematic-inspirations/"><u>[Updated] In 2024, Transform Lives 10 Cinematic Inspirations</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-srgb-and-traditional-rgb-rendering/"><u>[Updated] Srgb and Traditional Rgb Rendering</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unlocking-youtubes-srt-a-three-step-process-for-2024/"><u>[Updated] Unlocking YouTube’s SRT A Three-Step Process for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/2024-approved-superior-app-dev-editors-top-15-selection/"><u>2024 Approved Superior App Dev Editors Top 15 Selection</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-turn-the-clock-back-reverse-video-mastery-in-instagram/"><u>2024 Approved Turn the Clock Back Reverse Video Mastery in Instagram</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/breaking-barriers-masterful-techniques-for-photosvideos-in-win11/"><u>Breaking Barriers Masterful Techniques for Photos/Videos in Win11</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/canon-pixma-ts3322-obtain-new-driver-version-now/"><u>Canon PIXMA TS3322 - Obtain New Driver Version Now</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/guide-to-reinventing-facebook-video-coverages-step-by-step-for-2024/"><u>Guide to Reinventing Facebook Video Coverages Step-by-Step for 2024</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/savor-audio-without-breaking-your-piggy-bank-activbuds-review/"><u>Savor Audio without Breaking Your Piggy Bank: ActivBuds Review</u></a></li>
 </ul></div>
 

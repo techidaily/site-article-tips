@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Transform Your Images with Text  A Windows/MacOS Expertise Guide for 2024\""
-date: 2024-11-08T17:50:50.386Z
-updated: 2024-11-15T21:32:59.260Z
+date: 2024-11-18T21:01:38.418Z
+updated: 2024-11-25T07:48:18.304Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ Step2Click the edit button there at the top.
 
 ![click edit button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3Now click the More icon, which is at the top right portion of it (it usually looks like an ellipsis), and then in the dropdown menu, click on the Markup option.
 
 ![click more icon](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-2.jpg)
@@ -50,13 +54,6 @@ Step4Now click on the text button at the top left corner of the screen to add a 
 Step5You can drag this text box and place it wherever you want it in your image. Also, to choose the font style, size, and color, you can click on the Text Style icon and save your changes.
 
 ![place text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-4.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://zebaoaffiliateprogram.pxf.io/c/5597632/2137972/21526" target="_top" id="2137972">
-  <img src="//a.impactradius-go.com/display-ad/21526-2137972" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://zebaoaffiliateprogram.pxf.io/i/5597632/2137972/21526" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 1.2 Add writing to photos on Windows 10/11
 
@@ -87,15 +84,16 @@ Step7To save your edited image, click on the Menu button at the top left corner 
 ![save edited image](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-9.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1902273/19272" target="_top" id="1902273">
-  <img src="//a.impactradius-go.com/display-ad/19272-1902273" border="0" alt="https://techidaily.com" width="300" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1902273/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step8Click any Save or Save as button to save the edited image.
 
 ![click save button](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5 Methods to add text on photos online
 
@@ -140,13 +138,6 @@ Step7Moreover, if you want to change the size of the **Text Box**, drag its bord
 ![change the size of text box](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-18.jpg)
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<a href="https://wigfever.sjv.io/c/5597632/2014853/22899" target="_top" id="2014853">
-  <img src="//a.impactradius-go.com/display-ad/22899-2014853" border="0" alt="https://techidaily.com" width="320" height="90"/>
-</a>
-<img height="0" width="0" src="https://wigfever.sjv.io/i/5597632/2014853/22899" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 **Important Note:** Remember that what changes you have done using the right sidebar menu will be applied to the whole text inside the selected text box.
 
@@ -213,10 +204,7 @@ Pixlr is also an alternative to the above all. It is a cloud-based online photo 
 ![pixlr](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-21.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/1884021/19272" target="_top" id="1884021">
-  <img src="//a.impactradius-go.com/display-ad/19272-1884021" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/1884021/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Pros
@@ -238,13 +226,6 @@ Cons
 Fotor is another online photo editing tool that you can use for this purpose. It has a friendly interface and excellent tools that help its users efficiently do basic photo editing. That's why it has a large number of users also.
 
 ![fotor](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-22.jpg)
-
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2135417/19272" target="_top" id="2135417">
-  <img src="//a.impactradius-go.com/display-ad/19272-2135417" border="0" alt="https://techidaily.com" width="392" height="72"/>
-</a>
-<img height="0" width="0" src="https://aligracehair.sjv.io/i/5597632/2135417/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Pros
 
@@ -269,6 +250,10 @@ Adobe Photoshop, or simply Photoshop, is currently the most popular graphic edit
 
 ![photoshop](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-23.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Pros
 
 * It has the most advanced and updated features for its users.
@@ -282,13 +267,6 @@ Cons
 * There is not any progress bar for some features in it.
 * To acquire more advanced features, you must purchase its premium version.
 * A few problems sometimes occur due to the bugs in its newly updated versions or beta versions if you are using them.
-
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2134246/18498" target="_top" id="2134246">
-  <img src="//a.impactradius-go.com/display-ad/18498-2134246" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://unicoeye.pxf.io/i/5597632/2134246/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ### 2\. [PhotoDirector](https://www.cyberlink.com/downloads/trials/photodirector-photo-editing-software/download%5Fen%5FUS.html)
 
@@ -392,6 +370,10 @@ Cons
 
 * You need to have a premium account to use the more advanced features.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. [Kapwing](https://www.kapwing.com/tools/add-text-to-image)
 
 **Introduction:**
@@ -399,6 +381,10 @@ Cons
 Kapwing is another photo editing website where you can professionally edit your photos for free. You can also add text to images using it. It is easy to use also and has approximately 10 million users currently.
 
 ![kapwing](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-19.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Pros
 
@@ -441,6 +427,10 @@ Pixlr is also an alternative to the above all. It is a cloud-based online photo 
 
 ![pixlr](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-21.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Pros
 
 * Have a very interactive user interface that is easy to understand also.
@@ -476,13 +466,6 @@ Cons
 
 ## Best 5 Programs for adding text on photos
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2144274/7443" target="_top" id="2144274">
-  <img src="//a.impactradius-go.com/display-ad/7443-2144274" border="0" alt="https://techidaily.com" width="600" height="90"/>
-</a>
-<img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2144274/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 ### 1\. [Photoshop](https://www.adobe.com/products/photoshop.html)
 
 **Introduction:**
@@ -505,6 +488,10 @@ Cons
 * To acquire more advanced features, you must purchase its premium version.
 * A few problems sometimes occur due to the bugs in its newly updated versions or beta versions if you are using them.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. [PhotoDirector](https://www.cyberlink.com/downloads/trials/photodirector-photo-editing-software/download%5Fen%5FUS.html)
 
 **Introduction:**
@@ -526,6 +513,10 @@ Cons
 * Also, there are some of the menus in it which are slow
 * The lens profiles are not too enough, like in other photo editors.
 * Also, it is not too good in chromatic aberration and noise corrections.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. [GIMP](https://www.gimp.org/downloads/)
 
@@ -576,13 +567,6 @@ Phoxo is another alternative to all the above software. It is also photo editing
 
 ![phoxo](https://images.wondershare.com/filmora/article-images/2022/07/add-text-to-photos-on-windows-and-mac-27.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://imp.i110150.net/c/5597632/798165/11305" target="_top" id="798165">
-  <img src="//a.impactradius-go.com/display-ad/11305-798165" border="0" alt="https://techidaily.com" width="728" height="90"/>
-</a>
-<img height="0" width="0" src="https://imp.i110150.net/i/5597632/798165/11305" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
-
 Pros
 
 * Amicable interface for beginners.
@@ -625,20 +609,20 @@ The last words for today's topic here is that there are numerous solutions avail
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-metaverse-comedy-the-art-and-science-of-creating-viral-online-laughs/"><u>[New] 2024 Approved Metaverse Comedy The Art & Science of Creating Viral Online Laughs</u></a></li>
-<li><a href="https://fox-access.techidaily.com/new-in-2024-immersing-viewers-in-new-realities-the-vr-film-revolution/"><u>[New] In 2024, Immersing Viewers in New Realities The VR Film Revolution</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-top-camcorders-to-consider-in-depth-analysis/"><u>[New] The Top Camcorders to Consider – In-Depth Analysis</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-a-beginners-path-to-reddit-stardom-6-essential-strategies-for-2024/"><u>[Updated] A Beginner’s Path to Reddit Stardom 6 Essential Strategies for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-pros-and-cons-of-syma-x8c/"><u>[Updated] In 2024, Pros and Cons of Syma X8C</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-12th-circle-of-conversation-personalizing-whatsapp-bios-by-signs/"><u>[Updated] The 12Th Circle of Conversation - Personalizing WhatsApp Bios by Signs</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/ace-chatgpt-dialogue-7-proven-prompting-strategies-for-superior-results/"><u>Ace ChatGPT Dialogue: 7 Proven Prompting Strategies for Superior Results</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/apc-be600m1-surge-protector-unveiled-robust-battery-backup-with-integrated-usb-charging/"><u>APC BE600M1 Surge Protector Unveiled: Robust Battery Backup with Integrated USB Charging</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/best-android-data-recovery-undelete-lost-messages-from-itel-p40-by-fonelab-android-recover-messages/"><u>Best Android Data Recovery - Undelete Lost Messages from Itel P40</u></a></li>
-<li><a href="https://article-tips.techidaily.com/exclusive-guide-to-prime-livestream-sites-for-2024/"><u>Exclusive Guide to Prime Livestream Sites for 2024</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-vivo-s17t-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Vivo S17t? | Dr.fone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-ultimate-guide-to-get-the-rare-candy-on-pokemon-go-fire-red-on-oppo-reno-10-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, The Ultimate Guide to Get the Rare Candy on Pokemon Go Fire Red On Oppo Reno 10 Pro 5G | Dr.fone</u></a></li>
-<li><a href="https://fake-location.techidaily.com/ispoofer-is-not-working-on-infinix-note-30i-fixed-drfone-by-drfone-virtual-android/"><u>iSpoofer is not working On Infinix Note 30i? Fixed | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/navigating-srt-download-from-youtube-with-3-tactics/"><u>Navigating SRT Download From YouTube with 3 Tactics</u></a></li>
-<li><a href="https://techtrends.techidaily.com/resolve-your-pcs-d3dx924dll-error-a-step-by-step-solution/"><u>Resolve Your PC's d3dx9_24.dll Error – A Step-by-Step Solution</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-precision-and-persuasion-crafting-content-that-sticks-on-reddit/"><u>[New] 2024 Approved Precision and Persuasion Crafting Content That Sticks on Reddit</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-complete-breakdown-the-android-adaptation-of-lightroom-app-for-2024/"><u>[New] Complete Breakdown The Android Adaptation of Lightroom App for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ideal-editing-tools-best-phones-options-for-gopro-videos/"><u>[New] Ideal Editing Tools Best Phones' Options for GoPro Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-painting-with-light-an-experts-guide-to-color-grading/"><u>[New] Painting with Light An Expert's Guide to Color Grading</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-premier-zones-for-cutting-edge-vr-viewing/"><u>[New] Premier Zones for Cutting-Edge VR Viewing</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-the-artists-guide-to-vivid-vsco-imagery-for-2024/"><u>[New] The Artist's Guide to Vivid VSCO Imagery for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-amplify-your-voice-expert-insights-on-podcast-editing-in-garageband-for-2024/"><u>[Updated] Amplify Your Voice Expert Insights on Podcast Editing in GarageBand for 2024</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-in-2024-snap-into-clarity-10-online-tools-to-blur-proof-images/"><u>[Updated] In 2024, Snap Into Clarity 10 Online Tools to Blur-Proof Images</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/aquatic-bliss-selecting-the-best-gear-for-relaxation/"><u>Aquatic Bliss: Selecting the Best Gear for Relaxation</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/complete-guide-for-apple-iphone-11-pro-max-lock-screen-drfone-by-drfone-ios/"><u>Complete Guide For Apple iPhone 11 Pro Max Lock Screen | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-realme-narzo-n53-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock Realme Narzo N53 PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-a-complete-analysis-of-the-new-picsart-guide-and-review-for-updated-app/"><u>In 2024, A Complete Analysis of the New PicsArt – Guide & Review for Updated App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-pixiz-masterclass-merging-photography-and-motion/"><u>In 2024, Pixiz Masterclass Merging Photography and Motion</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/in-2024-spotlight-on-stories-crafting-three-effective-highlights/"><u>In 2024, Spotlight on Stories Crafting Three Effective Highlights</u></a></li>
+<li><a href="https://article-tips.techidaily.com/prime-business-sky-storage-choice-for-2024/"><u>Prime Business Sky-Storage Choice for 2024</u></a></li>
 </ul></div>
 

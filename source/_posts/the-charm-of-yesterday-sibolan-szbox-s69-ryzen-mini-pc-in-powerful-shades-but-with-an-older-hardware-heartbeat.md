@@ -1,7 +1,7 @@
 ---
 title: "The Charm of Yesterday: Sibolan SZBox S69 Ryzen Mini PC in Powerful Shades, but With an Older Hardware Heartbeat"
-date: 2024-08-31T15:31:55.847Z
-updated: 2024-09-01T15:31:55.847Z
+date: 2024-12-02T05:11:42.911Z
+updated: 2024-12-04T01:12:21.376Z
 tags:
   - desktop
 categories:
@@ -49,6 +49,10 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  Pre-orders for a 32 GB RAM / 1 TB SSD OneXPlayer M1 are already in Japan at JPY142,310 (or around $900). But if you bundle it with the OneXGPU, you get a 10% discount on the eGPU. So, if you’re looking for a small PC you can quickly move around but don’t sacrifice performance and graphical power, you should watch out for the OneXPlayer M1 mini-PC.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Stay On the Cutting Edge: Get the Tom's Hardware Newsletter
 
  Get Tom's Hardware's best news and in-depth reviews, straight to your inbox.
@@ -57,14 +61,11 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
 
  By submitting your information you agree to the[Terms & Conditions](https://futureplc.com/terms-conditions/) and[Privacy Policy](https://futureplc.com/privacy-policy/) and are aged 16 or over.
 
-
 <ins class="adsbygoogle"
      style="display:block"
      data-ad-format="autorelaxed"
      data-ad-client="ca-pub-7571918770474297"
      data-ad-slot="1223367746"></ins>
-
-
 
 <ins class="adsbygoogle"
      style="display:block"
@@ -73,9 +74,17 @@ One-Netbook, the team behind the OneXPlayer handheld console and the OneXGPU GPU
      data-ad-format="auto"
      data-full-width-responsive="true"></ins>
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-http.techidaily.com/new-enhance-visual-storytelling-via-xps-software/"><u>[New] Enhance Visual Storytelling via Xp's Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-lightning-foldout-sculpting-rapidly-produced-google-collage-pics/"><u>[New] Lightning Foldout Sculpting Rapidly Produced Google Collage Pics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-alliance-of-creativity-brands-and-youtubes-fusion/"><u>[Updated] 2024 Approved Alliance of Creativity Brands and YouTube's Fusion</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-arctic-athleticism-winter-olympics-spotlight-on-snowboard-cross-stars/"><u>[Updated] Arctic Athleticism Winter Olympics Spotlight on Snowboard Cross Stars</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-unlock-the-secrets-of-effortless-editing-for-windows-11-videos-for-2024/"><u>[Updated] Unlock the Secrets of Effortless Editing for Windows 11 Videos for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-itel-p40plus-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Itel P40+? | Dr.fone</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/in-2024-best-pokemons-for-pvp-matches-in-pokemon-go-for-apple-iphone-xs-max-drfone-by-drfone-virtual-ios/"><u>In 2024, Best Pokemons for PVP Matches in Pokemon Go For Apple iPhone XS Max | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-how-to-transfer-text-messages-from-poco-f5-5g-to-new-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, How to Transfer Text Messages from Poco F5 5G to New Phone | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/snapshot-stability-mastering-motion/"><u>Snapshot Stability Mastering Motion</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/top-long-distance-wireless-routers-reviews-and-comparisons/"><u>Top Long-Distance Wireless Routers - Reviews and Comparisons</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->

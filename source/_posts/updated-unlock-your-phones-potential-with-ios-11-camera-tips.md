@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Unlock Your Phone's Potential with iOS 11 Camera Tips"
-date: 2024-08-31T15:32:12.928Z
-updated: 2024-09-01T15:32:12.928Z
+date: 2024-11-27T02:05:59.961Z
+updated: 2024-12-04T05:41:36.493Z
 tags: 
   - screen-recording
   - ai video
@@ -64,6 +64,10 @@ thumbnail: https://thmb.techidaily.com/98cce883f8c6d6df0bb852da7eb40767e5514e430
 
 ![](https://images.wondershare.com/filmora/article-images/use-timer-on-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  iPhone X weighs only 174 grams, which makes it nearly impossible to hold perfectly still. This complicates things even further in difficult light conditions, but the Timer feature on iPhone X can help you solve this problem. You can compose your shot and set the Timer for 3 or 10 seconds and the device will take ten photos in a row, which will enable you to select the sharpest photo and delete the others.
 
 #### 5\. Edit Live Photos
@@ -74,6 +78,10 @@ thumbnail: https://thmb.techidaily.com/98cce883f8c6d6df0bb852da7eb40767e5514e430
 
 ![](https://images.wondershare.com/filmora/article-images/qr-detection-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: 9to5Mac
 
  QR codes are actually quite convenient because they save you the trouble of typing the URL by yourself. The iOS 11 is the first iPhone OS with the ability to read QR codes. All you need to do is open your camera app and point it in the direction of the QR code you want to view, and your iPhone X will do the rest.
@@ -81,6 +89,10 @@ thumbnail: https://thmb.techidaily.com/98cce883f8c6d6df0bb852da7eb40767e5514e430
 #### 7\. Take Selfies in Portrait Mode - Only for iPhone X
 
 ![](https://images.wondershare.com/filmora/article-images/selfie-portrait-mode-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: Tom's Guide
 
@@ -93,6 +105,10 @@ thumbnail: https://thmb.techidaily.com/98cce883f8c6d6df0bb852da7eb40767e5514e430
 #### 9\. Dual Optical Image Stabilization Lets you Take Better Photos - iPhone X/8
 
 ![](https://images.wondershare.com/filmora/article-images/dual-image-stabilization-iphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Keeping the moving objects in focus is a major concern regardless of the camera you are using. We were excited about the [dual camera feature in iPhone 7](https://tools.techidaily.com/wondershare/filmora/download/), now the Dual Optical Image Stabilization feature in iOS 11 reduces motion blur and it also decreases the impact the camera shakes have on your photos. iPhone 8's Optical Image Stabilization has been improved on iPhone X and it works alongside the image sensor to ensure that all pictures taken with this device are razor sharp.
 
@@ -107,6 +123,10 @@ thumbnail: https://thmb.techidaily.com/98cce883f8c6d6df0bb852da7eb40767e5514e430
  iPhone photographers, who would like to take their photos and videos a step further will unquestionably benefit from using [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/). The editor lets you create 9:16 aspect ratio images, designed to help mobile users who don't want to have the black bars alongside the edges of their vertically oriented photos and videos. Adding blur effects to your photos or videos, enhancing the colors or applying effects to your videos are just a few out of many possibilities provided by the Wondershare's software.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
@@ -133,8 +153,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-20-best-video-editors-compatible-with-dji-videos-for-2024/"><u>[New] 20 Best Video Editors Compatible with DJi Videos for 2024</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-social-media-spotlight-top-tiktok-tweets/"><u>[New] 2024 Approved Social Media Spotlight Top TikTok Tweets</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-syma-x5c-reviewed-ideal-entry-level-flying-machine/"><u>[New] 2024 Approved Syma X5C Reviewed Ideal Entry-Level Flying Machine</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-comprehensive-guide-to-acquiring-instagram-ringtones-and-creating-noteworthy-chimes/"><u>[New] The Comprehensive Guide to Acquiring Instagram Ringtones & Creating Noteworthy Chimes</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-thrill-in-the-cold-olympic-showcase-snowboarders-at-peak-performance-for-2024/"><u>[New] Thrill in the Cold Olympic Showcase - Snowboarders at Peak Performance for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-a-look-at-the-best-narrative-creators-on-youtube-in-23/"><u>[Updated] 2024 Approved A Look at the Best Narrative Creators on YouTube in '23</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-advanced-techniques-in-aerial-cinematography-for-2024/"><u>[Updated] Advanced Techniques in Aerial Cinematography for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-how-samsung-galaxy-s8-changes-high-definition-viewing/"><u>[Updated] In 2024, How Samsung Galaxy S8 Changes High-Definition Viewing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-transform-your-vision-into-reality-essential-movies-maker-skills-on-windows-8/"><u>[Updated] Transform Your Vision Into Reality Essential Movies Maker Skills on Windows 8</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/2024-approved-clearer-facebook-audio-addressing-half-volume-problems/"><u>2024 Approved Clearer Facebook Audio Addressing Half-Volume Problems</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/2024-approved-maximizing-impact-the-20-key-principles-of-fb-video-marketing/"><u>2024 Approved Maximizing Impact The 20 Key Principles of FB Video Marketing</u></a></li>
+<li><a href="https://location-fake.techidaily.com/6-ways-to-change-spotify-location-on-your-poco-m6-pro-5g-drfone-by-drfone-virtual-android/"><u>6 Ways to Change Spotify Location On Your Poco M6 Pro 5G | Dr.fone</u></a></li>
+<li><a href="https://facebook.techidaily.com/brands-gain-foothold-with-instagram-and-facebook-ad-integrations/"><u>Brands Gain Foothold with Instagram and Facebook Ad Integrations</u></a></li>
+<li><a href="https://driver-error.techidaily.com/fix-video-controller-driver-issue-in-windows-11-easily/"><u>Fix Video Controller Driver Issue in Windows 11. Easily</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-prevent-unwanted-video-captures-in-qt-player/"><u>In 2024, Prevent Unwanted Video Captures in QT Player</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/in-2024-scrutinizing-vlc-for-video-capturing/"><u>In 2024, Scrutinizing VLC for Video Capturing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/resolving-faulty-airdrop-functionality-on-apple-devices/"><u>Resolving Faulty Airdrop Functionality on Apple Devices</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->

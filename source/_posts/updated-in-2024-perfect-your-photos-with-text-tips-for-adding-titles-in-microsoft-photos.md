@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Perfect Your Photos with Text  Tips for Adding Titles in Microsoft Photos\""
-date: 2024-08-31T15:33:29.917Z
-updated: 2024-09-01T15:33:29.917Z
+date: 2024-11-26T20:45:19.074Z
+updated: 2024-12-04T05:25:31.523Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
@@ -68,15 +72,24 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872456/14483" target="_top" id="1872456"><img src="//a.impactradius-go.com/display-ad/14483-1872456" border="0" alt="" width="500" height="375"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872456/14483" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -84,8 +97,9 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +123,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-can-you-lawfully-archive-youtube-content/"><u>[New] 2024 Approved Can You Lawfully Archive YouTube Content?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-xsplit-reviews-in-depth-game-split-analysis/"><u>[New] In 2024, XSplit Reviews In-Depth Game Split Analysis</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-advanced-computers-at-your-fingertips/"><u>[Updated] 2024 Approved Advanced Computers at Your Fingertips</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-sony-x1000-video-excellence-detailed-product-evaluation/"><u>[Updated] 2024 Approved Sony X1000 Video Excellence Detailed Product Evaluation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-taxonomy-of-diverse-camera-systems-for-videos-for-2024/"><u>[Updated] Taxonomy of Diverse Camera Systems for Videos for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-searching-comments-on-youtube/"><u>2024 Approved Searching Comments on YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/enthralling-experienences-try-these-top-14-text-animatees-for-2024/"><u>Enthralling Experienences Try These Top 14 Text Animatees for 2024</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/guide-clearing-up-youtube-watchlater-stored-list-for-2024/"><u>Guide Clearing Up YouTube Watchlater Stored List for 2024</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210185970-9781914269080-les-premiers-entretiens-de-gurdjieff-1914-1931/"><u>Les Premiers Entretiens de Gurdjieff 1914-1931 | Free Book</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/mastering-modern-combat-fixes-for-call-of-duty-warzone-textures-that-wont-load/"><u>Mastering Modern Combat: Fixes for Call of Duty Warzone Textures That Won't Load</u></a></li>
+<li><a href="https://article-tips.techidaily.com/navigating-the-world-of-elite-hdr-camera-choices/"><u>Navigating the World of Elite HDR Camera Choices</u></a></li>
+<li><a href="https://common-error.techidaily.com/step-by-step-tutorial-successfully-starting-minecraft-after-winodws-glitches/"><u>Step-by-Step Tutorial: Successfully Starting Minecraft After Winodws Glitches</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/the-ultimate-rankings-leading-gopro-case-models/"><u>The Ultimate Rankings Leading GoPro Case Models</u></a></li>
+</ul></div>
 

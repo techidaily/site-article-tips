@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Beijing's Frost-Touched Games, Highlights From 2022\""
-date: 2024-11-19T07:59:15.367Z
-updated: 2024-11-24T19:09:15.759Z
+date: 2024-12-02T05:34:31.725Z
+updated: 2024-12-04T02:05:16.549Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ The grand opening ceremony was held on 4th February and the grand closing will b
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## 1\. Lindsey Jacobellis Gives US Its First Beijing Olympics Gold
@@ -35,7 +39,15 @@ American snowboarder Lindsey Jacobellis wins the gold medal in the women's snowb
 
 ![lindsey jacobellis wins the gold medal](https://images.wondershare.com/filmora/article-images/lindsey-jacobellis-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Lindsey Jacobellis become a viral internet figure after her premature celebration at Turin 2006 Winter Olympics that cost her medal at the event. The 36-year-old snowboarder has now become the oldest American to win a gold medal at Winter Games.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 2\. Nathan Chen Breaks World Record
 
@@ -51,14 +63,10 @@ Injuries are part of sports events but some injuries are gruesome and are result
 
 ![nina obrien](https://images.wondershare.com/filmora/article-images/nina-obrien-suffered-a-terrifying-crash.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 She lost her balance before she could cross the finishing line and she slid across the finish. She was screaming in pain as she left the event on a stretcher. The good news is that she is alert and responding. She has returned home to Colorado and she has received a warm welcome back home.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 4\. US-Born Eileen Gu Wins Gold for China
@@ -68,10 +76,6 @@ Born in America, Eileen Gu represented China at Winter Olympics and managed to w
 ![eileen gu wins gold](https://images.wondershare.com/filmora/article-images/us-born-eileen-gu-wins-gold-for-china.jpg)
 
 Eileen Gu's father is American while her mother is Chinese and she belongs to San Francisco. Yet, she represented China in the Winter Olympics which has sparked controversies. She has been representing China since 2019\. She wishes to represent China going forward and she has become a fan favorite in China.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Van der Poel Breaks the World Record
 
@@ -88,7 +92,7 @@ Yan Wengang becomes the first medalist from China in a sliding sport. In a four-
 ![yan wen gang](https://images.wondershare.com/filmora/article-images/yan-wen-gang.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The competitiveness of Wengwang has made him the first medalist for China in men's skeleton. The 24-year-old Tianjin native was happy as well as disappointed after the competition. With a fighting spirit, he gave everything he had in the last heat. His victory makes only the second time when a non-North American or non-European stood on the Olympic podium for skeleton.
@@ -100,10 +104,14 @@ The competitiveness of Wengwang has made him the first medalist for China in men
 ![chloe kim](https://images.wondershare.com/filmora/article-images/chloe-kim.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 With the triumph, she joins Shaun White to be the only snowboarders to successfully defend their Olympic title. Following the victory, she was overwhelmed and emotional. Despite having the worst practice before the final, Kim went on to create history.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 8\. Ukrainian Athlete Shows ‘No War' Sign During Skeleton Event
 
@@ -113,10 +121,6 @@ We are all aware of the tensions between Ukraine and Russia are at their peak an
 
 He showed the sign directly to the cameras after he finished his run at Beijing Olympics. It remains to be seen if any penalty will be imposed on him but Heraskevych has said that he is ready to face any repercussion even though he hopes that the Olympics will support him instead.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 9\. American Favorite Out of the Tournament
 
 US skater Vincent Zhou has tested positive for coronavirus and therefore, he is out of the Winter Olympics. Naturally, Zhou was in tears and extremely emotional as he was a top medal contender. He did take part in the team free skate event but he struggle to perform at his best even though the US team managed to win silver at the event.
@@ -124,10 +128,6 @@ US skater Vincent Zhou has tested positive for coronavirus and therefore, he is 
 ![american favorite out of the tournament](https://images.wondershare.com/filmora/article-images/american-favorite-out-of-the-tournament.jpg)
 
 Zhou is considering the silver win as a consolation prize but he could not showcase his brilliance at the singles competitions. However, he said that he would prepare for the Winter Olympics in Milan and make a bigger comeback the world has not seen yet.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 10\. Russian Figure Skater Tests Positive for Banned Substance
 
@@ -156,14 +156,24 @@ However, due to some miscommunication, she was allowed to be a participant in th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-comprehensive-insights-into-polarr-photo-enhancer-for-2024/"><u>[New] Comprehensive Insights Into Polarr Photo Enhancer for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-optimize-your-online-presence-incorporating-video-filters-in-zoom/"><u>[New] Optimize Your Online Presence Incorporating Video Filters in Zoom</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-quick-guide-to-capturing-timelapses-with-gopro-hero5/"><u>[Updated] In 2024, Quick Guide to Capturing Timelapses with GoPro Hero5</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/2024-approved-harnessing-hues-iphone-low-light-mastery/"><u>2024 Approved Harnessing Hues IPhone Low-Light Mastery</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/a-comprehensive-guide-to-claude-3-and-how-to-utilize-it-effectively/"><u>A Comprehensive Guide to Claude 3 and How To Utilize It Effectively</u></a></li>
-<li><a href="https://games-able.techidaily.com/immerse-in-classic-games-on-idevices-with-our-top-4-emulator-apps/"><u>Immerse in Classic Games on iDevices with Our Top 4 Emulator Apps</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/in-2024-understanding-ip-instagram-melody-rights/"><u>In 2024, Understanding IP Instagram Melody Rights</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-unique-locations-enhancing-youtube-traction/"><u>In 2024, Unique Locations Enhancing YouTube Traction</u></a></li>
-<li><a href="https://article-tips.techidaily.com/iphone-data-recovery-software-recover-data-with-confidence/"><u>IPhone Data Recovery Software: Recover Data with Confidence</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-streamline-your-content-best-12-html5-video-tools/"><u>[New] 2024 Approved Streamline Your Content Best 12 HTML5 Video Tools</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-teleportation-illusions-in-visual-effects-artistry/"><u>[New] 2024 Approved Teleportation Illusions in Visual Effects Artistry</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-digital-creativity-unleashed-top-montage-apps-for-iphone-android-users-for-2024/"><u>[New] Digital Creativity Unleashed Top Montage Apps for iPhone, Android Users for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dissecting-the-advantages-of-lg-bp350-display-tech-for-2024/"><u>[New] Dissecting the Advantages of LG BP350 Display Tech for 2024</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/new-premier-picks-the-best-11-audio-recorders-guide-for-2024/"><u>[New] Premier Picks The Best 11 Audio Recorders Guide for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-the-insiders-look-at-facebook-video-proportions-and-settings-for-2024/"><u>[New] The Insider's Look at Facebook Video Proportions and Settings for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-why-are-my-instagram-photos-flipped-seeking-answers-for-2024/"><u>[New] Why Are My Instagram Photos Flipped? Seeking Answers for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-humorhub-design-your-own-jokes-and-gifs/"><u>[Updated] 2024 Approved HumorHub Design Your Own Jokes and Gifs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-premier-hype-booster-maker/"><u>[Updated] 2024 Approved Premier Hype Booster Maker</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-brief-blueprints-iphone-content-for-desktop-for-2024/"><u>[Updated] Brief Blueprints IPhone Content for Desktop for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-peak-performance-pfv-settings-for-easy-movement-for-2024/"><u>[Updated] Peak Performance PFV Settings for Easy Movement for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-unlocking-youtubes-potential-key-tactics-for-expanding-your-viewership/"><u>[Updated] Unlocking YouTube's Potential Key Tactics for Expanding Your Viewership</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/2024-approved-beyond-the-screen-top-10-immersive-vr-gear/"><u>2024 Approved Beyond The Screen Top 10 Immersive VR Gear</u></a></li>
+<li><a href="https://fox-tips.techidaily.com/impara-a-cancellare-i-byte-in-modo-veloce-sulla-periferica-hard-drive-seagate-con-due-strategie-chiave/"><u>Impara a Cancellare I Byte in Modo Veloce Sulla Periferica Hard Drive Seagate Con Due Strategie Chiave</u></a></li>
+<li><a href="https://smart-video-creator.techidaily.com/in-2024-morph-your-mug-the-top-face-swap-apps-for-ios-and-android/"><u>In 2024, Morph Your Mug The Top Face Swap Apps for iOS and Android</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-superior-android-3d-film-watcher/"><u>In 2024, Superior Android 3D Film Watcher</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-the-magnificent-art-of-pokemon-go-streaming-on-itel-a70-drfone-by-drfone-virtual-android/"><u>In 2024, The Magnificent Art of Pokemon Go Streaming On Itel A70? | Dr.fone</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/successfully-connecting-to-steam-overcoming-server-connection-obstacles/"><u>Successfully Connecting to Steam: Overcoming Server Connection Obstacles</u></a></li>
+<li><a href="https://article-tips.techidaily.com/transforming-business-with-metaverse-ideas-for-2024/"><u>Transforming Business with Metaverse Ideas for 2024</u></a></li>
 </ul></div>
 

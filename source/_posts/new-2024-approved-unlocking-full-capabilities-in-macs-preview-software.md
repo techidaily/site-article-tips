@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Unlocking Full Capabilities in Mac's Preview Software\""
-date: 2024-08-31T15:34:22.477Z
-updated: 2024-09-01T15:34:22.477Z
+date: 2024-11-29T21:27:44.665Z
+updated: 2024-12-03T22:43:30.293Z
 tags: 
   - screen-recording
   - ai video
@@ -30,11 +30,19 @@ The **Preview app** is a built-in program in macOS, and works as a default viewe
 
 That said, the sections below explain **how to use Preview on Mac** for elementary picture editing like rotating, cropping, adding annotations, etc.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Use Preview to Edit Images \[Complete Guide\]
 
 Being the default image editor for Mac, Apple tried to make the **Preview app** as simple as possible. Therefore, modifying the photos in the program isn’t much complicated as compared to its competitors from different vendors.
 
 The instructions given in the following sections explain how to edit pictures with the **Preview app for Mac**:
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### How to View and Edit Photos in Preview on Mac
 
@@ -64,9 +72,6 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4531356&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8fdd149fcaa7058caccc9c4ad5b0d89a/products/tss-box.JPG" border="0">The Tube Sites Submitter is a fast and efficient tool for anyone who needs to upload videos quickly, easily and automatically to hundreds of tube sites in mere minutes . </a>
-<!-- affiliate ads end -->
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -96,8 +101,9 @@ Use the method explained above to open the photo in Preview.
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -115,8 +121,9 @@ Click inside the frame, delete the existing placeholder text, and type a new cap
 Select the text, click the **Text Style** icon from the **Markup Toolbar**, and change font, size, color, etc. using the available options.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.mondly.com/affiliate.php?ACCOUNT=ATISTUDI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.mondly.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BEducational%2B300x600%2B"><img src="https://secure.avangate.com/images/merchant/69c418c33ec2e1a4267fa9bb77fa1428/educational-300x600.gif" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Remove Background in Preview
 
 As it is with some of the advanced image manipulation programs, even the **Preview app** allows you to remove background from a photo, and that too pretty easily. To get this done:
@@ -134,8 +141,9 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -164,10 +172,6 @@ After opening an image, click **File** from the menu bar at the top, and click *
 
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718730&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/copy_vMixCallScreenshot1-large.jpg" border="0">vMix HD - Software based live production. vMix HD includes everything in vMix Basic HD plus 1000 inputs, Video List, 4 Overlay Channels, and 1 vMix Call 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -202,9 +206,6 @@ This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 a
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 Ollie Mattison
 
 Ollie Mattison is a writer and a lover of all things video.
@@ -228,4 +229,23 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-auditory-aesthetics-choosing-the-right-soundtracks-for-boxings/"><u>[New] 2024 Approved Auditory Aesthetics Choosing the Right Soundtracks for Boxings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-lut-techniques-for-professional-color-grading-and-correction/"><u>[New] 2024 Approved LUT Techniques for Professional Color Grading and Correction</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-social-media-insta-to-tiksync/"><u>[New] 2024 Approved Mastering Social Media Insta-To-TikSync</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/new-future-ready-data-retention-selecting-excellent-cloud-providers/"><u>[New] Future-Ready Data Retention Selecting Excellent Cloud Providers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-masters-crafting-unparalleled-vr-adventures/"><u>[Updated] 2024 Approved Masters Crafting Unparalleled VR Adventures</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-a-comprehensive-guide-to-making-gifs-from-youtube-tracks-for-2024/"><u>[Updated] A Comprehensive Guide to Making GIFs From YouTube Tracks for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-economical-airborne-companions-ultra-low-priced-drones-for-2024/"><u>[Updated] Economical Airborne Companions Ultra-Low Priced Drones for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-draft-an-engaging-giveaway-for-facebooks-social-impact/"><u>[Updated] In 2024, Draft an Engaging Giveaway for Facebook's Social Impact</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-in-2024-journey-back-in-time-with-these-top-5-gba-console-emulators-for-pcs/"><u>[Updated] In 2024, Journey Back in Time with These Top 5 GBA Console Emulators for PCs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-peering-into-the-future-with-asuss-4k-uxga-mg28uq-screen/"><u>[Updated] In 2024, Peering Into the Future with ASUS's 4K UXGA MG28UQ Screen</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/all-things-you-need-to-know-about-wipe-datafactory-reset-for-motorola-moto-g24-drfone-by-drfone-reset-android-reset-android/"><u>All Things You Need to Know about Wipe Data/Factory Reset For Motorola Moto G24 | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/chuckle-factory-spooky-androids/"><u>Chuckle Factory Spooky Androids</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-mastering-fb-video-promos-access-free-video-toolkit/"><u>In 2024, Mastering FB Video Promos Access Free Video Toolkit</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/solved-how-to-get-your-headphones-recognizing-in-windows-11/"><u>Solved! How to Get Your Headphones Recognizing in Windows 11</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-cybercrime-the-role-of-ai-in-crafting-romance-scam-techniques/"><u>Unveiling Cybercrime: The Role of AI in Crafting Romance Scam Techniques</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/watch-our-selection-of-great-family-movies-streaming-now-on-amazon-prime-video/"><u>Watch Our Selection of Great Family Movies Streaming Now on Amazon Prime Video!</u></a></li>
+</ul></div>
 

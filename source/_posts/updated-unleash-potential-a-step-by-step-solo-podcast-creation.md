@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unleash Potential  A Step-By-Step Solo Podcast Creation\""
-date: 2024-11-20T06:02:58.283Z
-updated: 2024-11-24T16:56:58.937Z
+date: 2024-11-28T18:41:49.232Z
+updated: 2024-12-04T12:42:55.394Z
 tags: 
   - screen-recording
   - ai video
@@ -50,6 +50,10 @@ Working on your own gives flexibility with working hours you wouldn't get as par
 
 It also means you can work at your own pace as a podcast host without waiting for your audience to be ready.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Content is totally under your control
 
 You're always controlling your content while working in a solo podcaster scenario. No one else tells you what to say; no one tells you how to say it.
@@ -96,6 +100,10 @@ An outline for a good episode usually includes an introduction/promo, the main t
 
 If you don't have a clear idea of what you want to talk about, you will have trouble following along when you sit down to record. Just be careful not to repeat yourself too much. Don't try and cover every single aspect of your topic.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### A hook for the episode beginning
 
 The hook is the first thing that draws the listener in and sets up the rest of the content. What is it about your show that makes people want to listen? Your hook should always be unique, but a little commonality doesn't hurt.
@@ -119,7 +127,7 @@ Recapping the previous episode is a great way to start your podcast. Doing so al
 That way, when the next podcast episode starts, your listeners will already be up-to-date on essential information.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The right tool for recording and editing
@@ -141,6 +149,10 @@ For those who would like to produce podcasts or videos on the go, Wondershare Fi
 * Audio Ducking to easily eliminate background noise and unwanted sound recorded while creating podcasts.
 
 You can export your episodes as MP3 files, which can then be uploaded to any podcast hosting site like iTunes, Podomatic, and Libsyn. With this application, you don't need to spend hours of your time to make your podcast a success.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 3\. Tips & Takeaways for Solo Podcasting
 
@@ -171,10 +183,6 @@ If you're working on a podcast as a solo podcast host, you need to figure out wh
 There's no denying it, being a solo podcast host is hard work. There's no one to take over if you fall behind schedule or have a day off. Being a solo podcast host takes a lot of time and energy, and you don't get a choice.
 
 Even if you manage to pull it off, some people don't like your podcast and have nothing but negative things to say about you. Preparing for this every time you create a new episode would be best. Therefore You need to have someone to take over when you fall.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Harder to stay motivated
 
@@ -242,10 +250,6 @@ This podcast is about journalism, but it's about a more entertaining kind of jou
 
 ![wtf with marc maron cover](https://images.wondershare.com/filmora/article-images/2022/12/solo-podcasting-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Comedy legend Marc Maron has turned his brilliant comedy into a bestselling podcast that gets more than 55 million listens per year. His best interviews include icons like Keith Richard, Robin Williams, Nicole Kidman, and former U.S. president Barack Obama.
 
 In WTF with Marc Maron, he takes his unique blend of humor and emotional vulnerability and shares it with us. The conversation doesn't stay dark for long-his own self-deprecating sense of humor keeps it moving.
@@ -261,6 +265,10 @@ Reply All podcast is an amazing mix of in-depth and incredibly moving stories of
 ### 9\. [The Lazy Genius Podcast](https://www.thelazygeniuscollective.com/lazy)
 
 ![the lazy genius cover](https://images.wondershare.com/filmora/article-images/2022/12/solo-podcasting-13.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Systems expert, permission giver, and author, Kendra Adachi, is the solo host of the podcast 'The Lazy Genius.' It helps you be a genius about the things that matter and lazy about the things that don't.
 
@@ -289,6 +297,10 @@ Part 1\. Why Solo Podcasting?
 ![solo podcasting](https://images.wondershare.com/filmora/article-images/2022/12/solo-podcasting-1.jpg)
 
 Solo podcasting is all about the personal connection with listeners. It's a chance to express yourself, a platform to share your ideas and thoughts with people. Also, to show people who you are and what you're about—the beauty of solo podcasting. You are free, and it's a great feeling. The idea is simple: You are the protagonist of your own story.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Go at your own pace
 
@@ -322,10 +334,6 @@ Keep your content focused on your unique story, and be as transparent as possibl
 
 Now, we are going to look into the ins and outs of creating a Bang-Up Solo Podcast that would grab your viewers' maximum attention. But first, we must share something interesting in a way that they understand, And this is what will make your podcast an excellent solo podcast.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### A list of solo episode topics
 
 First, while working on the episode, we must remember that connecting audience with your subject matters.
@@ -335,6 +343,10 @@ First, while working on the episode, we must remember that connecting audience w
 For example, if you're a musician who wants to share insights on improving your songwriting craft, you may need to focus on it. Secondly, before creating an episode, our Listeners may want to hear the story behind the product, so it's helpful to explain why you built it, what your goals were, what you learned, what you got done, and how the product has evolved.
 
 It will help you give clear instructions for deciding on solo episode topics that are creative, unique, helpful & engaging to share.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### An outline for an episode
 
@@ -361,10 +373,6 @@ If you're struggling to come up with a hook for an episode of your podcast, here
 Length is everything. Podcasting is about the length of your content, and you will struggle if you have a short episode. You need at least 30 minutes of material for your episode, or you risk alienating listeners and driving them away from your brand.
 
 You'll lose listeners' attention if you don't know what to say during your episode. So instead, think of your podcast as a mini-publication. You can get away with making shorter episodes because you can fill more content into your episodes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Recap the episode
 
@@ -396,10 +404,6 @@ You can export your episodes as MP3 files, which can then be uploaded to any pod
 
 The world of podcasts is changing, so how can podcasters succeed when there's so much competition? We asked three podcasters how to get started, who have grown as solo podcasters. Here are their top tips and lessons, plus advice from fellow podcasters.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Don't worry about mistakes
 
 The first tip for solo podcasters is to not worry about making mistakes. We all make mistakes. And when we do, we learn. So don't stress out over your first podcast. Instead, take notes after each episode and use those as your learning curve. You don't need to be perfect from the very beginning.
@@ -408,17 +412,21 @@ The first tip for solo podcasters is to not worry about making mistakes. We all 
 
 It takes some practice to get the natural flow of conversation going. We recommend practicing speaking in front of a mirror to ensure you sound confident and natural. Once you've practiced enough, record yourself, listen back, and play it to see where you're strong and where you need to improve.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Stand a point
 
 A key part of being a successful podcast host is sticking to your bullet points. While the show is running, there's no time for you to ramble, so your goal is to make sure you hit all your points and move on quickly.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Have fun
 
 Having fun doesn't mean that you're doing something wrong. But it does mean relaxing. You're doing something right. People are more likely to listen if they know you're having fun while you talk. On the other hand, if you take yourself too seriously, people will tune out.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4\. The challenges of making solo podcasting
 
@@ -480,10 +488,6 @@ It is a wildly creative podcast filled with nuance and poetic genius. The way Ge
 
 ![casefile cover](https://images.wondershare.com/filmora/article-images/2022/12/solo-podcasting-9.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 This podcast is an award-winning true-crime podcast that offers unforgettable stories professionally produced and delivered to your ears. This one-person side project has evolved into an entirely different business and has expanded across multiple continents. Casefile episodes are about solving and investigating the world's mysteries. They feature stories about unsolved cases from all over the world.
 
 Well, there are many reasons to listen to this podcast. First, it is engaging, well-researched, and most refreshing of all for this genre. If you want an in-depth analysis of any case, look no further than Casefile because their reporting is detailed, and they have access to the right sources.
@@ -496,13 +500,13 @@ This American Life is a public radio program and podcast that broadcasts weekly.
 
 This podcast is about journalism, but it's about a more entertaining kind of journalism. In other words, stories! Interesting stories where the characters are real, the ideas are true, the feeling is deep, and the humor comes from life.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 7\. [WTF with Marc Maron](http://www.wtfpod.com/)
 
 ![wtf with marc maron cover](https://images.wondershare.com/filmora/article-images/2022/12/solo-podcasting-11.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Comedy legend Marc Maron has turned his brilliant comedy into a bestselling podcast that gets more than 55 million listens per year. His best interviews include icons like Keith Richard, Robin Williams, Nicole Kidman, and former U.S. president Barack Obama.
 
@@ -531,10 +535,6 @@ Kendra listeners get great, practical advice in a friendly and relatable way. In
 A great comedian with some serious insights into astrology and Tarot cards, Kelechi Okafor, takes you on a wild journey around the world of bad language, current events, and pop culture.
 
 Kelechi, with a great mind, teaches and guides her listeners to lean into their inner selves while boldly speaking on world events others seek to avoid. She mixes humor with the truth and commentary on current affairs/pop culture.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final words
 
@@ -570,15 +570,22 @@ If you're planning to do a solo podcast, you need to create a clear outline of w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/boosting-productivity-with-innovative-win11-features/"><u>Boosting Productivity with Innovative Win11 Features</u></a></li>
-<li><a href="https://article-tips.techidaily.com/building-a-robust-spotify-advertising-foundation-for-2024/"><u>Building a Robust Spotify Advertising Foundation for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/choosing-the-right-gimbal-dslr-vs-mirrorless-edition/"><u>Choosing the Right Gimbal DSLR vs Mirrorless Edition</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/culinary-creativity-unlocked-7-innovative-chatgpt-tips/"><u>Culinary Creativity Unlocked: 7 Innovative ChatGPT Tips</u></a></li>
-<li><a href="https://article-tips.techidaily.com/effective-lut-implementation-in-adobe-premiere/"><u>Effective LUT Implementation in Adobe Premiere</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-unlock-sony-xperia-1-v-phone-pattern-lock-without-factory-reset-by-drfone-android/"><u>How to Unlock Sony Xperia 1 V Phone Pattern Lock without Factory Reset</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-oppo-a59-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Oppo A59 5G? | Dr.fone</u></a></li>
-<li><a href="https://ios-location-track.techidaily.com/in-2024-top-10-best-spy-watches-for-your-apple-iphone-13-mini-drfone-by-drfone-virtual-ios/"><u>In 2024, Top 10 Best Spy Watches For your Apple iPhone 13 mini | Dr.fone</u></a></li>
-<li><a href="https://win-able.techidaily.com/overcome-unable-to-start-the-game-error-with-accurate-game-data-verification/"><u>Overcome Unable to Start the Game Error with Accurate Game Data Verification</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/unveiling-top-5-non-commercial-art-influencers/"><u>Unveiling Top 5 Non-Commercial Art Influencers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-into-the-depths-mastering-gopros-time-lapse-techniques/"><u>[New] 2024 Approved Into the Depths Mastering GoPro's Time-Lapse Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-artistic-anomaly-top-10-unique-affordable-mac-drawers-free-for-2024/"><u>[New] Artistic Anomaly Top 10 Unique, Affordable Mac Drawers (Free) for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-keep-it-secret-live-stream-on-instagram-anonymously/"><u>[New] In 2024, Keep It Secret Live Stream on Instagram Anonymously</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-visual-quest-examining-the-power-of-lgs-digital-cinema-31mu97-b-for-2024/"><u>[New] The Visual Quest - Examining the Power of LG’s Digital Cinema 31MU97-B for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unlock-the-power-of-speech-recognition-for-effective-office-documentation-in-microsoft-word/"><u>[New] Unlock the Power of Speech Recognition for Effective Office Documentation in Microsoft Word</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unmatched-4k-experience-the-premier-top-eight-list-for-2024/"><u>[New] Unmatched 4K Experience The Premier Top Eight List for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-the-complete-selection-of-free-online-meeting-applications-for-2024/"><u>[Updated] The Complete Selection of FREE Online Meeting Applications for 2024</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/comment-convertir-et-deplacer-des-films-vhs-sur-dvd-via-un-ordinateur-portable/"><u>Comment Convertir Et Déplacer Des Films VHS Sur DVD Via Un Ordinateur Portable ?</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/cutting-edge-introduction-editors-for-all-your-tech-for-2024/"><u>Cutting-Edge Introduction Editors for All Your Tech for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/enhance-your-smile-complimentary-photo-enrichment-app/"><u>Enhance Your Smile Complimentary Photo Enrichment App</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/exploring-eight-lucrative-ai-jobs-with-chatgpt-your-potential-goldmine/"><u>Exploring Eight Lucrative AI Jobs with ChatGPT - Your Potential Goldmine?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-oneplus-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & OnePlus 11 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-pioneering-3d-design-avoiding-common-pitfalls-in-illustrator/"><u>In 2024, Pioneering 3D Design Avoiding Common Pitfalls in Illustrator</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-unlock-iphonepcs-full-potential-with-these-top-8-converters/"><u>In 2024, Unlock iPhone/PC's Full Potential With These Top 8 Converters</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/in-2024-various-methods-to-transfer-pictures-from-apple-iphone-7-to-pc-drfone-by-drfone-transfer-from-ios/"><u>In 2024, Various Methods to Transfer Pictures from Apple iPhone 7 to PC | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/revolution-on-wheels-enhancing-biking-adventures-with-smart-photochromic-glasses-cnet-review/"><u>Revolution on Wheels: Enhancing Biking Adventures with Smart Photochromic Glasses | CNET Review</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/unlock-the-power-of-online-broadcasts-with-manycam-and-top-virtual-webcam-solutions/"><u>Unlock the Power of Online Broadcasts with ManyCam and Top Virtual Webcam Solutions</u></a></li>
 </ul></div>
 

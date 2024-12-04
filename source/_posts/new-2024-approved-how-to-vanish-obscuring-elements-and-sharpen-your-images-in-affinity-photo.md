@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  How to Vanish Obscuring Elements and Sharpen Your Images in Affinity Photo\""
-date: 2024-11-23T08:45:21.628Z
-updated: 2024-11-24T23:55:16.538Z
+date: 2024-12-03T06:27:57.698Z
+updated: 2024-12-04T13:05:38.016Z
 tags: 
   - screen-recording
   - ai video
@@ -45,12 +45,16 @@ Step2 Go to the **"Layers"** tab in the right pane, right-click your layer, and 
 
 ![unlocking the image layer in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/unlocking-the-image-layer-in-affinity-designer.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To make a selection around your subject, first enable the **"Snap To Edges"** and **"Soft Edges"** feature from the top toolbar. This will help you automatically detect the edges and give it a more tapered finish.
 
 ![enabling snap to edges and soft edges in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/enabling-snap-to-edges-and-soft-edges-in-affinity-designer.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Set your brush size using your keyboard's **left** and **right bracket** keys. Now, manually make a selection around your subject and white edges in the image as precisely as possible.
@@ -60,10 +64,6 @@ Step4 Next, zoom in on your subject. Press & hold the ALT key on your keyboard, 
 Click the **"Refine"** option in the toolbar to open the **"Refine Selection"** menu. A red mask will be applied to your subject, giving you an idea of how your image will look once you remove the background. Zoom in and if any details are excluded, paint them over. Once you are satisfied, click **"Apply"** to save your changes.
 
 ![refining the outline around the image to remove background in affinity designer](https://images.wondershare.com/filmora/article-images/2023/03/refining-the-outline-around-the-image-to-remove-background-in-affinity-designer.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step5 In the last step, press the **"Delete"** key on your keyboard to remove the background, or click **"Edit"** and choose the **"Cut"** option.
 
@@ -98,6 +98,10 @@ Finally, click **"File"** and select the **"Export"** option from the drop-down 
 
 **Note:** To save your image with a transparent background, do not export it in JPG file format.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## The Best Alternative of Affinity Photo
 
 Since Affinity Photo is a desktop software available for a one-time purchase of $40.99, you might be looking for an online free alternative if you need more space or can afford the subscription fee.
@@ -105,6 +109,10 @@ Since Affinity Photo is a desktop software available for a one-time purchase of 
 Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.com/), an advanced AI-based online tool developed by[Wondershare Technology.](https://www.wondershare.com/)
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
@@ -121,10 +129,6 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Create a free account for easier future access.
 * Paid and customized accounts for premium benefits.
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -144,10 +148,6 @@ Therefore, we recommend using [Wondershare PixCut](https://pixcut.wondershare.co
 
 ![wondershare pixcut for removing image background](https://images.wondershare.com/filmora/article-images/2023/03/wondershare-pixcut-for-removing-image-background.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Editing experts recommend Wondershare PixCut as the best alternative to many editing problems. An AI-powered automatic editing tool, this software has quicker solutions for you when it comes to removing an image's background. Some of its many benefits are:
 
 * Offline and online image editing tools.
@@ -165,7 +165,7 @@ Editing experts recommend Wondershare PixCut as the best alternative to many edi
 * Customized categories that include e-commerce, car dealership, social media, graphic designing, personal, and marketing use.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -202,15 +202,20 @@ Hopefully, this article and video can help you create ideal images!
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-essential-tips-for-picking-leading-free-srt-translation-tools/"><u>[New] Essential Tips for Picking Leading Free SRT Translation Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-choreograph-cheeky-comics-via-giphy/"><u>[New] In 2024, Choreograph Cheeky Comics via Giphy</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-introducing-motion-blur-magic-in-your-iphone-photos/"><u>[New] Introducing Motion-Blur Magic in Your iPhone Photos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-master-recommendations-elite-ios-sound-artists-for-2024/"><u>[New] Master Recommendations Elite iOS Sound Artists for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-top-10-memetic-artistry-codes/"><u>[Updated] 2024 Approved Top 10 Memetic Artistry Codes</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/updated-dive-deep-into-safe-area-mode-and-dual-screen-on-apple-devices/"><u>[Updated] Dive Deep Into Safe Area Mode and Dual Screen on Apple Devices</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/getting-started-nvidias-gtx-1080-ti-gpu-drivers-installed-easily-online/"><u>Getting Started: Nvidia's GTX 1080 Ti GPU Drivers Installed Easily Online</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-deal-with-the-tecno-pova-5-screen-black-but-still-works-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How To Deal With the Tecno Pova 5 Screen Black But Still Works? | Dr.fone</u></a></li>
-<li><a href="https://win-answers.techidaily.com/resolving-stability-problems-how-to-stop-the-king-of-fighters-xv-from-crashing-on-pc-setups/"><u>Resolving Stability Problems: How to Stop The King of Fighters XV From Crashing on PC Setups</u></a></li>
-<li><a href="https://ai-vdieo-software.techidaily.com/top-free-mov-video-rotation-software/"><u>Top Free MOV Video Rotation Software</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-a-step-by-step-breakdown-creating-your-best-yt-shorts/"><u>[New] 2024 Approved A Step-by-Step Breakdown Creating Your Best YT Shorts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-streamline-and-optimize-google-for-podcasters/"><u>[New] 2024 Approved Streamline & Optimize Google for Podcasters</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dynamic-visuals-excellence-in-4k-action-capture/"><u>[New] Dynamic Visuals Excellence in 4K Action Capture</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-transcending-boundaries-the-vr-evolutionary-journey/"><u>[Updated] 2024 Approved Transcending Boundaries The VR Evolutionary Journey</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unboxing-the-lg-27ud88uhd-monitor-experience-for-tech-enthusiasts/"><u>[Updated] 2024 Approved Unboxing the LG 27UD88UHD Monitor Experience for Tech Enthusiasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-how-to-invert-colors-in-digital-photos/"><u>[Updated] In 2024, How to Invert Colors in Digital Photos?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-path-to-success-starts-on-screen-10-must-see-films-for-2024/"><u>[Updated] The Path to Success Starts on Screen 10 Must-See Films for 2024</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/5-ways-to-restart-vivo-v27e-without-power-button-drfone-by-drfone-reset-android-reset-android/"><u>5 Ways to Restart Vivo V27e Without Power Button | Dr.fone</u></a></li>
+<li><a href="https://solve-manuals.techidaily.com/cookiebot-the-essential-ai-driven-tool-enhancing-your-websites-seo/"><u>Cookiebot: The Essential AI-Driven Tool Enhancing Your Website's SEO</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/experience-shared-client-filmed-stories/"><u>Experience Shared: Client-Filmed Stories</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-apples-latest-ai-innovations-from-wwdc-underwhelming-advancements-and-my-relief-tech-insights/"><u>Exploring Apple's Latest AI Innovations From WWDC: Underwhelming Advancements and My Relief | Tech Insights</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-fast-facial-masking-on-piscart-a-convenient-guide/"><u>In 2024, Fast Facial Masking on PiscArt A Convenient Guide</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-oneplus-nord-3-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For OnePlus Nord 3 5G | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/new-apple-airpods-pro-introducing-find-my-speaker-and-usb-c-charging-feature-breaking-down-the-latest-innovation-techcrunch/"><u>New Apple AirPods Pro: Introducing 'Find My Speaker' & USB-C Charging Feature - Breaking Down the Latest Innovation | TechCrunch</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/unveiling-the-magic-of-pause-time-creating-spectacularly-long-lasting-movies-with-photos-and-web-services/"><u>Unveiling the Magic of Pause Time Creating Spectacularly Long Lasting Movies with Photos & Web Services</u></a></li>
 </ul></div>
 

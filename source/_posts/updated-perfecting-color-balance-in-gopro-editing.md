@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Perfecting Color Balance in GoPro Editing"
-date: 2024-08-31T15:33:20.355Z
-updated: 2024-09-01T15:33:20.355Z
+date: 2024-11-30T21:14:35.695Z
+updated: 2024-12-04T04:01:13.560Z
 tags: 
   - screen-recording
   - ai video
@@ -46,6 +46,10 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 
 ![Color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-0.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3:** Color Correction- On the right hand side of your window the color correction can be done just by hitting on the arrow beside the White Balance button and the Image button. Now you can see the options which needed to be changed in order to correct the color. You will be able to view all the options like temperature, exposure, sharpness, contrast, tint and saturation. You can also choose to apply different preset overlays to give the footage a special filter.
 
 ![how to do color correction in GoPro Studio](https://images.wondershare.com/filmora/article-images/color-correction-in-gopro-studio-1.jpg)
@@ -72,7 +76,15 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 
 ![correct gopro footage color](https://images.wondershare.com/filmora/article-images/color-corretion-in-gopro-studio-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The compare button located on the top right lets you check all the segments before and after the correction simultaneously. While the Reset button ![color-tuning-reset-button](https://images.wondershare.com/filmora/guide/color-tuning-reset-button.png) would allow you to clear all the color corrections anytime.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 3:** Save and Share- Once the edit is finished you need to hit the Export button in order to save the edited clip as MOV or MP4 format. You can also alter the video res and the frames per sec. Now just hit the OK button to start the export.
 
@@ -80,7 +92,15 @@ thumbnail: https://thmb.techidaily.com/dbe86f0410f8e9bad5bf3228390b329f698cfe445
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -105,8 +125,26 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-best-auto-tracking-mount-for-cameras-and-phones/"><u>[New] 2024 Approved Best Auto Tracking Mount for Cameras and Phones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-laughing-through-the-metaverse-making-your-own-humor/"><u>[New] 2024 Approved Laughing Through the Metaverse Making Your Own Humor</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-perfecting-your-vocal-harmony-in-canva-projects/"><u>[New] 2024 Approved Perfecting Your Vocal Harmony in Canva Projects</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-beyond-reality-comparing-metaverse-and-multiverse/"><u>[New] Beyond Reality Comparing Metaverse & Multiverse</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exploring-high-res-videography-with-nikon-j5/"><u>[New] Exploring High-Res Videography with Nikon J5</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/rofit-making-techniques-for-beauty-vloggers/"><u>[New] Profit-Making Techniques for Beauty Vloggers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-textual-tricks-for-tickling-funny-bones-for-2024/"><u>[New] Textual Tricks for Tickling Funny Bones for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-complete-evaluation-hero4-black-interface/"><u>[Updated] Complete Evaluation Hero4 Black Interface</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-compreranzo-il-background-ottenere-video-piu-chiaro-su-youtube/"><u>[Updated] Compreranzo Il Background Ottenere Video Più Chiaro Su YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-crafting-soundscape-journeys-with-seamless-audacity-mixes/"><u>[Updated] In 2024, Crafting Soundscape Journeys with Seamless Audacity Mixes</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-in-2024-expert-techniques-for-superior-quality-in-zoom-meetings/"><u>[Updated] In 2024, Expert Techniques for Superior Quality in Zoom Meetings</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/updated-personalize-win11-panorama-selecting-stunning-walls/"><u>[Updated] Personalize Win11 Panorama Selecting Stunning Walls</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/guide-resolving-ralink-rt3290-driver-compatibility-issues-across-multiple-windows-platforms/"><u>Guide: Resolving Ralink RT3290 Driver Compatibility Issues Across Multiple Windows Platforms</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-to-fix-life360-shows-wrong-location-on-motorola-edge-40-drfone-by-drfone-virtual-android/"><u>How to Fix Life360 Shows Wrong Location On Motorola Edge 40? | Dr.fone</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/in-2024-key-strategies-for-board-utilization-across-devices-in-zoom/"><u>In 2024, Key Strategies for Board Utilization Across Devices in Zoom</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/master-controls-navigating-the-world-of-switch-pro-and-steam-gaming-for-2024/"><u>Master Controls Navigating the World of Switch Pro and Steam Gaming for 2024</u></a></li>
+<li><a href="https://program-issues.techidaily.com/outriders-not-starting-up-on-your-pc-try-these-fixes-now/"><u>Outriders Not Starting Up on Your PC ? Try These Fixes Now!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premier-5-goggles-securing-victory-in-air-races-for-2024/"><u>Premier 5 Goggles Securing Victory in Air Races for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/unlocking-windows-11-your-ultimate-cheat-sheet/"><u>Unlocking Windows 11 Your Ultimate Cheat Sheet</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->

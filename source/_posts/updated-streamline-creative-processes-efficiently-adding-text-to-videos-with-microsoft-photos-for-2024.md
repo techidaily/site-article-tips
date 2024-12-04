@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Streamline Creative Processes  Efficiently Adding Text to Videos with Microsoft Photos for 2024\""
-date: 2024-11-21T22:09:24.677Z
-updated: 2024-11-24T20:54:50.255Z
+date: 2024-11-28T17:29:47.221Z
+updated: 2024-12-04T04:14:24.358Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Adding the titles/text to video is a great way to explain the people about a cer
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
@@ -51,17 +51,25 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/465CTOm8om0?si=63RxowNMCFA4fPUa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -76,7 +84,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -89,15 +97,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -130,20 +130,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-2024-approved-the-art-of-video-filming-across-various-computing-platforms/"><u>[New] 2024 Approved The Art of Video Filming Across Various Computing Platforms</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-from-novice-to-pro-expert-tips-for-spotifys-advertisers-for-2024/"><u>[New] From Novice to Pro Expert Tips for Spotify's Advertisers for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-making-every-gift-discovery-special/"><u>[New] Making Every Gift Discovery Special</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/new-streamline-your-viewing-capturing-hulu-on-windows-mac-ios-for-2024/"><u>[New] Streamline Your Viewing Capturing Hulu on Windows, Mac, iOS for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-unparalleled-dramatic-audio-experiences/"><u>[New] Unparalleled Dramatic Audio Experiences</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-threefold-way-to-extract-and-save-youtubes-subtitles-srt/"><u>[Updated] 2024 Approved The Threefold Way to Extract and Save YouTube's Subtitles (SRT)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-ideal-timekeepers-top-10-androidios-apps-for-your-big-day-for-2024/"><u>[Updated] Ideal Timekeepers Top 10 Android/iOS Apps for Your Big Day for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-complete-reference-for-navigating-telegram-web-applications/"><u>[Updated] In 2024, Complete Reference for Navigating Telegram Web Applications</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-revolutionary-drone-editing-for-visual-storytellers/"><u>[Updated] Revolutionary Drone Editing for Visual Storytellers</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/2024-approved-essential-tactics-capturing-high-quality-sports-streams-online/"><u>2024 Approved Essential Tactics Capturing High-Quality Sports Streams Online</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/how-essential-is-a-4k-display-when-your-content-lies-exclusively-within-cable-networks/"><u>How Essential Is a 4K Display When Your Content Lies Exclusively Within Cable Networks?</u></a></li>
-<li><a href="https://blog-min.techidaily.com/movavi-converti-file-mxf-a-formato-gif-senza-costi-libero/"><u>Movavi: Converti File MXF a Formato GIF Senza Costi - Libero</u></a></li>
-<li><a href="https://win-latest.techidaily.com/navigating-aol-email-complete-tutorial-on-logging-in-registering-and-downloading/"><u>Navigating AOL Email: Complete Tutorial on Logging In, Registering, and Downloading</u></a></li>
-<li><a href="https://ai-editing-video.techidaily.com/new-how-to-split-screen-on-tiktok/"><u>New How To Split Screen On Tiktok</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/top-tier-wired-headphones-2024-edition/"><u>Top-Tier Wired Headphones, 2024 Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-lens-legends-battle-sj6-versus-xiaomis-yi-4k-visionary/"><u>[New] 2024 Approved Lens Legends Battle SJ6 Versus Xiaomi's Yi 4K Visionary</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-20-ae-templates-for-aspiring-designers/"><u>[New] 2024 Approved Top 20 AE Templates for Aspiring Designers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-mastering-iphone-long-exposure-a-comprehensive-guide/"><u>[New] Mastering iPhone Long Exposure A Comprehensive Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-photo-fables-the-best-ios-and-android-text-apps-for-pictures/"><u>[New] Photo Fables The Best iOS & Android Text Apps for Pictures</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-tiny-turbines-car-shindig/"><u>[New] Tiny Turbines' Car Shindig</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-innovative-methods-building-time-lapses-on-galaxy-devices/"><u>[Updated] 2024 Approved Innovative Methods Building Time-Lapses on Galaxy Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-a-deep-dive-into-sns-hdr-does-it-justify-its-cost-for-2024/"><u>[Updated] A Deep Dive Into SNS HDR Does It Justify Its Cost for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-in-2024-effortlessly-combine-skype-and-zoom-for-productivity/"><u>[Updated] In 2024, Effortlessly Combine Skype and Zoom for Productivity</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-the-mechanics-of-producing-engaging-mukbang-content/"><u>[Updated] The Mechanics of Producing Engaging Mukbang Content</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/cost-effective-audio-equipment-for-newcomers-for-2024/"><u>Cost-Effective Audio Equipment for Newcomers for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/hdr-horizon-unveiled-an-elite-list-of-online-sky-sites-for-2024/"><u>HDR Horizon Unveiled An Elite List of Online Sky Sites for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/how-can-i-use-a-fake-gps-without-mock-location-on-oneplus-ace-3-drfone-by-drfone-virtual-android/"><u>How Can I Use a Fake GPS Without Mock Location On OnePlus Ace 3? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-ringtone-renaissance-websites-worth-visiting/"><u>In 2024, Ringtone Renaissance Websites Worth Visiting</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-unlocking-the-power-of-smart-lock-a-beginners-guide-for-itel-a60-users-by-drfone-android/"><u>In 2024, Unlocking the Power of Smart Lock A Beginners Guide for Itel A60 Users</u></a></li>
+<li><a href="https://fox-info.techidaily.com/mastering-low-audio-levels-in-logic-pro-for-2024/"><u>Mastering Low Audio Levels in Logic Pro for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/navigating-the-apple-podcast-platform-for-2024/"><u>Navigating the Apple Podcast Platform for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-10-best-spy-watches-for-your-vivo-y27s-drfone-by-drfone-virtual-android/"><u>Top 10 Best Spy Watches For your Vivo Y27s | Dr.fone</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/ultimate-guide-to-netgear-orbi-rbs50y-transforming-your-outdoor-internet-experience/"><u>Ultimate Guide to Netgear Orbi RBS50Y: Transforming Your Outdoor Internet Experience</u></a></li>
+<li><a href="https://win-forum.techidaily.com/unlisted-software-removal-steps-to-delete-programs-missing-from-windows-control-panel/"><u>Unlisted Software Removal: Steps to Delete Programs Missing From Windows Control Panel</u></a></li>
 </ul></div>
 

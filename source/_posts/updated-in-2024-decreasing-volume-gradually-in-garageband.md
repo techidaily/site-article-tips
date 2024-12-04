@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Decreasing Volume Gradually in Garageband"
-date: 2024-11-18T08:37:26.155Z
-updated: 2024-11-25T07:47:30.488Z
+date: 2024-12-02T06:12:36.053Z
+updated: 2024-12-04T02:16:47.536Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ In the article, we will educate you on various topics related to GarageBand; if 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. How to Fade Audio with Garageband on Mac?
@@ -54,7 +54,7 @@ Step4 Press the volume button from the menu in the track header, and use the vol
 Using the GarageBand application on your iPad, you can opt for the automatic fade-out option. You need to open the song set and activate the active fade-out option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1dR4tF3VgyU?si=AJipgqZsNNxsRsBW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to Fade Audio with Garageband on iPhone?
@@ -70,10 +70,6 @@ Step2 Go to the setting option at the top right corner and open the song set.
 Step3 Scroll down to the fade-out option and turn it.
 
 ![fade audio garageband iphone](https://images.wondershare.com/filmora/article-images/2022/07/fade-audio-garageband-iphone.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step4 Hit the done icon.
 
@@ -113,6 +109,14 @@ Choose the create option to save the new file if you are done with the adjusting
 
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 According to the survey, one of the most searched topics is **how to fade music in Garageband**. If you are also facing the same issue, this article will offer you a simple guide on the topic related to fade-in and fade-out features. You can also browse the internet to search for other benefits, and you can explore the application to learn more about its uses.
@@ -137,10 +141,6 @@ After the drag and drop procedure, double click on the file and direct yourself 
 
 ![add audio fade in to clip](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step3 Save the video
 
 Choose the create option to save the new file if you are done with the adjusting part. You can save your file in several formats such as MP3, MKV, WMV, AVI, etc. you can play the track on various devices like iPad, iPod, iPhone, Zune, etc.
@@ -148,7 +148,7 @@ Choose the create option to save the new file if you are done with the adjusting
 ![save the video](https://images.wondershare.com/filmora/guide/add-fade-in-fade-out-markers-timeline.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB&autoplay=1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -179,19 +179,20 @@ According to the survey, one of the most searched topics is **how to fade music 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-optimize-instagram-posts-with-smart-hashtag-selection-tactics/"><u>[New] 2024 Approved Optimize Instagram Posts with Smart Hashtag Selection Tactics</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/new-2024-approved-unlocking-facebook-video-success-key-strategies-revealed/"><u>[New] 2024 Approved Unlocking Facebook Video Success Key Strategies Revealed</u></a></li>
-<li><a href="https://article-files.techidaily.com/new-exploring-the-virtual-frontier-googles-cardboard-meets-samsung-gear/"><u>[New] Exploring the Virtual Frontier Google's Cardboard Meets Samsung Gear</u></a></li>
-<li><a href="https://howto.techidaily.com/11-proven-solutions-to-fix-google-play-store-not-working-issue-on-tecno-phantom-v-flip-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Proven Solutions to Fix Google Play Store Not Working Issue on Tecno Phantom V Flip | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-audience-experience-top-cameras-to-capture-live-music/"><u>2024 Approved Audience Experience Top Cameras to Capture Live Music</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-complete-scrutiny-of-cutmatic-editor/"><u>2024 Approved Complete Scrutiny of CutMatic Editor</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-optimal-technique-integrating-gopro-videos-into-compreited-cinematic-universe/"><u>2024 Approved Optimal Technique Integrating GoPro Videos Into Compreited Cinematic Universe</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-radio-dramas-peak-of-creative-scripting/"><u>2024 Approved Radio Dramas Peak of Creative Scripting</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-screen-genius-ideal-4k-displays-for-editorial-work/"><u>2024 Approved Screen Genius Ideal 4K Displays for Editorial Work</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-zero-cost-green-screens-for-professionals/"><u>2024 Approved Zero-Cost Green Screens for Professionals</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/through-ways-to-amplify-your-video-content-reach-for-2024/"><u>Breakthrough Ways to Amplify Your Video Content Reach for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/exciting-virtual-play-top-7-games-for-youngsters-online/"><u>Exciting Virtual Play: Top 7 Games for Youngsters Online</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/how-to-unlock-stolen-iphone-15-plus-in-different-conditionsin-by-drfone-ios/"><u>How To Unlock Stolen iPhone 15 Plus In Different Conditionsin</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-x50-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Honor X50 | Dr.fone</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-in-2024-creating-captivating-thumbnails-for-youtube/"><u>[New] In 2024, Creating Captivating Thumbnails for YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-mobile-alter-picture-size-on-iphone-easefully/"><u>[New] In 2024, Mastering Mobile Alter Picture Size on iPhone Easefully</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-science-of-choosing-music-for-movie-previews/"><u>[New] In 2024, The Science of Choosing Music for Movie Previews</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/new-quicksnap-win10-recording-master/"><u>[New] QuickSnap Win10 Recording Master</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unlock-the-potential-of-iphone-cinematography-top-8-strategies-for-2024/"><u>[New] Unlock the Potential of iPhone Cinematography Top 8 Strategies for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-champions-of-3d-spatial-displays/"><u>[Updated] Champions of 3D Spatial Displays</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-explore-high-quality-android-videos-top-10-apps-for-2024/"><u>[Updated] Explore High-Quality Android Videos Top 10 Apps for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mastering-headline-economy-utilizing-slug-lines-smartly-for-2024/"><u>[Updated] Mastering Headline Economy Utilizing Slug Lines Smartly for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-quick-color-concealment-in-premiere/"><u>[Updated] Quick Color Concealment in Premiere</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/2024-approved-getting-ahead-with-professional-itunes-capture-methods/"><u>2024 Approved Getting Ahead with Professional iTunes Capture Methods</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/restoring-gpu-operation-in-windows-laptops-win1011/"><u>Restoring GPU Operation in Windows Laptops (Win10/11)</u></a></li>
+<li><a href="https://win-forum.techidaily.com/securing-your-documents-a-step-by-step-guide-to-encrypting-text-files/"><u>Securing Your Documents: A Step-by-Step Guide to Encrypting Text Files</u></a></li>
+<li><a href="https://facebook.techidaily.com/shielding-yourself-from-facebooks-privacy-breach/"><u>Shielding Yourself From Facebook's Privacy Breach</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-role-of-gpt-in-advancing-healthcare-delivery/"><u>The Role of GPT in Advancing Healthcare Delivery</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-tech-titans-talk-bz-microsoft-merge-and-the-dawn-of-next-gen-ai-in-creative-industries-podcast-discussion/"><u>The Tech Titans Talk: BZ-Microsoft Merge and the Dawn of Next-Gen AI in Creative Industries [Podcast Discussion]</u></a></li>
 </ul></div>
 

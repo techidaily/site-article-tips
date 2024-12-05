@@ -1,7 +1,7 @@
 ---
 title: "Mastering Motion Photography with the Latest Yi Technology"
-date: 2024-08-27T13:20:35.872Z
-updated: 2024-08-28T13:20:35.872Z
+date: 2024-12-02T16:38:46.698Z
+updated: 2024-12-04T18:37:23.998Z
 tags: 
   - screen-recording
   - ai video
@@ -114,11 +114,19 @@ Yi 4K is designed with built in Wi-Fi abilities so that users can make direct co
 
 The future firmware update of Yi 4K+ action camera is supposed to bring so many interesting features into this tiny device. It will be extending support towards live streaming facility and raw images will be soon processed. The most interesting addition will be voice command support that will make control actions much easier during adventurous sports recording needs. This device will be offering impressive high performance service while consuming very low power and all ultra HD videos will deliver crisper details with elegant color distributions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 Yi 4K+ is first action camera device to support 60fps frame rate at 4K resolution level and it further provides 8MP support to every still while ensuring crisp and deep details. There are several interesting features inside this tiny action cam including USB-C external mic connectivity and many more. However, you may also find few troubles like it cannot go underwater without protective housing. It not even extends support to live streaming and RAW files cannot be processed. But, even after so many downsides, its amazing video quality makes it standout against all competitors. You must order your new action camera soon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -143,8 +151,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-explore-sj7s-high-definition-action-footage-in-new-review/"><u>[New] Explore SJ7's High-Definition Action Footage in New Review</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-leveraging-zoom-for-optimal-productivity-in-win11-environments/"><u>[New] In 2024, Leveraging Zoom for Optimal Productivity in Win11 Environments</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-path-to-exceptional-editing-with-kinemaster/"><u>[New] In 2024, The Path to Exceptional Editing with Kinemaster</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-top-7-low-cost-video-compacting-tools-for-android-devices/"><u>[New] In 2024, Top 7 Low-Cost Video Compacting Tools for Android Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigating-the-complexities-of-youtubes-subtitles-download-with-3-proven-techniques/"><u>[New] Navigating the Complexities of YouTube's Subtitles Download With 3 Proven Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-cutting-edge-title-generator-for-online-sessions-for-2024/"><u>[Updated] Cutting-Edge Title Generator for Online Sessions for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elevate-your-tiktok-unboxer-experience-for-maximum-likes/"><u>[Updated] Elevate Your TikTok Unboxer Experience for Maximum Likes</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-oppo-find-n3-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for Oppo Find N3 | Dr.fone</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/4-easy-ways-for-your-infinix-note-30-5g-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>4 Easy Ways for Your Infinix Note 30 5G Hard Reset | Dr.fone</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/captivating-snaps-with-snapchats-colorful-cartoon-lens-for-2024/"><u>Captivating Snaps with Snapchat’s Colorful Cartoon Lens for 2024</u></a></li>
+<li><a href="https://driver-error.techidaily.com/ensuring-reliability-of-your-nvidia-codebase/"><u>Ensuring Reliability of Your Nvidia Codebase</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/essential-phone-knowledge-for-expanded-gear-vr-experiences/"><u>Essential Phone Knowledge for Expanded Gear VR Experiences</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-the-10-best-tools-to-bypass-icloud-activation-lock-from-apple-iphone-14-pro-max-you-should-try-out-by-drfone-ios/"><u>In 2024, The 10 Best Tools to Bypass iCloud Activation Lock From Apple iPhone 14 Pro Max You Should Try Out</u></a></li>
+<li><a href="https://article-tips.techidaily.com/outstanding-graphic-revisions-for-2024/"><u>Outstanding Graphic Revisions for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/remove-frp-lock-on-90-gt-by-drfone-android-unlock-remove-google-frp/"><u>Remove FRP Lock on 90 GT</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/turn-off-youtube-previews-on-all-devices-for-2024/"><u>Turn Off YouTube Previews on All Devices for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/unlocking-chatgpt-plus-value-proposition/"><u>Unlocking ChatGPT Plus Value Proposition</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Sky High Selfies Made Easy  DJI Spark Reviewed\""
-date: 2024-08-31T15:27:01.908Z
-updated: 2024-09-01T15:27:01.908Z
+date: 2024-12-01T17:46:37.389Z
+updated: 2024-12-04T22:25:10.439Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
 
 [Check at Amazon](https://www.amazon.com/gp/product/B072JTDRTZ/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B072JTDRTZ&linkId=bec9204052e4183cc85b81f2a73bc8d2)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## First-hand review for DJI Spark
 
 #### 1\.  Unboxing
@@ -54,9 +58,17 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
 
 ![spark vs mavic](https://images.wondershare.com/filmora/article-images/spark-vs-mavic.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ###### #3\. Battery
 
 ![dji spark battery](https://images.wondershare.com/filmora/article-images/dji-spark-battery.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  It can stay in air up to 16 minutes with its 1480mAh LiPo Battery. Yeah, this high end battery makes it powerful enough to let users enjoy long flight time. The total time spent on charging is observed to be one hour and 20 minutes. Here is one interesting news for all buyers, DJI Spark do not limit your charging options. It can be charged with three different modes:
 
@@ -81,6 +93,10 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
  In this mode, you don't need phone or controller to control the drone, it can take off and land in your hand, keep following you when you waving your palm in front of its camera. You make a rectangle in air using your fingers and your intelligent drone will capture a selfie for you. But note that, this feature works only up to 3 meters distance.
 
 ![gesture mode](https://images.wondershare.com/filmora/article-images/gesture-mode.gif)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * By App on Smartphone
 
@@ -110,6 +126,10 @@ Have you gone through DJI Spark videos on YouTube? They are spreading like a vir
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -133,8 +153,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-best-of-the-best-8-cameras-for-top-streaming-experience/"><u>[New] 2024 Approved Best of the Best 8 Cameras for Top Streaming Experience</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-building-effective-podcast-rss-feeds-for-2024/"><u>[New] Building Effective Podcast RSS Feeds for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dive-deep-into-vitas-video-editing-prowess-a-complete-analysis-2024/"><u>[New] Dive Deep Into Vita's Video Editing Prowess - A Complete Analysis, 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-enhance-your-movies-leading-3d-blu-ray-equipment/"><u>[New] Enhance Your Movies Leading 3D Blu-Ray Equipment</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-transform-ordinary-moments-into-extraordinary-art-creating-slow-motion-video-from-still-images-online/"><u>[New] Transform Ordinary Moments Into Extraordinary Art Creating Slow Motion Video From Still Images Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-exploring-every-aspect-of-vitas-complete-editing-app/"><u>[Updated] 2024 Approved Exploring Every Aspect of Vita's Complete Editing App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-sliding-to-victory-celebrating-the-best-in-snowboard-cross-winter-games-22/"><u>[Updated] 2024 Approved Sliding to Victory Celebrating the Best in Snowboard Cross, Winter Games '22</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-hand-tracking-mastery-all-methods-unveiled/"><u>[Updated] Hand-Tracking Mastery All Methods Unveiled</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-how-to-create-unique-ringtone-from-social-media-music-tracks-for-2024/"><u>[Updated] How To Create Unique Ringtone From Social Media Music Tracks for 2024</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-sonic-sweepstakes-top-tunes-for-viral-youtube-short-videos/"><u>[Updated] In 2024, Sonic Sweepstakes Top Tunes for Viral YouTube Short Videos</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/2024-approved-rapid-techniques-mix-up-and-shuffle-youtube-listings/"><u>2024 Approved Rapid Techniques Mix Up and Shuffle YouTube Listings</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/asus-pce-ac56-wifi-card-overcoming-driver-problems-on-windows-1087-solved/"><u>ASUS PCE-AC56 WiFi Card: Overcoming Driver Problems on Windows 10/8/7 - Solved!</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/google-tv-enabled-chromecast-showdown-how-it-measures-up-against-firetv/"><u>Google TV-Enabled Chromecast Showdown: How It Measures Up Against FireTV</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-7-ways-to-unlock-a-locked-honor-90-lite-phone-by-drfone-android/"><u>In 2024, 7 Ways to Unlock a Locked Honor 90 Lite Phone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/master-list-of-affordable-websites-boosting-vector-graphics-skills/"><u>Master List of Affordable Websites Boosting Vector Graphics Skills</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/the-inside-scoop-on-bingchatgpt-token-schemes-strategies-to-spot-and-sidestep-online-crypto-scams/"><u>The Inside Scoop on BingChatGPT Token Schemes - Strategies to Spot and Sidestep Online Crypto Scams</u></a></li>
+<li><a href="https://tiktok-videos.techidaily.com/top-fonts-to-amplify-your-tiktok-presence-in-23-for-2024/"><u>Top Fonts to Amplify Your TikTok Presence in '23 for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.advancedwebranking.com/order/checkout.php?PRODS=4715051&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/14edc6ebfdae2e23bbed83d67f50e983/products/33_awr%20logo.png" border="0"></a>
-<!-- affiliate ads end -->

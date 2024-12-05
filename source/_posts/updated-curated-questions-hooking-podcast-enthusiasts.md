@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Curated Questions  Hooking Podcast Enthusiasts\""
-date: 2024-11-28T00:32:46.852Z
-updated: 2024-12-04T05:40:52.473Z
+date: 2024-12-01T19:01:00.907Z
+updated: 2024-12-04T16:29:23.464Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,14 @@ The best podcast questions to ask guests differ according to your niche and the 
 
 ![podcast questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The best way is to divide your questions into different categories.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Great Icebreaker/Intro Questions
@@ -46,7 +50,7 @@ Icebreaker questions are used to begin an interview or meeting. These are person
 ![icebreaker questions](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-2.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Here are some icebreaker questions that you can ask to start an interview.
@@ -85,10 +89,6 @@ Some leading questions that you can ask are discussed below.
 13. What do you mean by that?
 14. Can you give an example?
 15. What do you suggest to our audience who are facing the same problems?
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Comparison Questions
 
@@ -130,16 +130,12 @@ When we move on to this type of question, typically, it's time to end the show. 
 10. How can listeners contact you online?
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. What's a Good Podcast Interview Question?
 
 After discussing the 50 questions you can ask in a podcast, let's see what a good podcast interview question is. A good interview question is comfortable for the guest and engaging for the listeners, so the guest can answer the question wholeheartedly. Therefore, you need to avoid impolite and aggressive asks during podcasting. Besides, try to ask such questions that your guest is not frequently asked. It may reveal new things about him and make your podcast stand out.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. Tips on How To Come Up and Ask Better Questions
 
@@ -157,7 +153,7 @@ You can get the best information from the person you are interviewing if you do 
 ![ask why](https://images.wondershare.com/filmora/article-images/2022/12/podcast-interview-questions-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 As an interviewer, "why" is your most powerful tool. Guests usually provide surface-level information or opinions. The follow-up question of "why" makes them go further and give deeper details. It will also help your audience understand correctly what the guest wants to say.
@@ -169,6 +165,10 @@ If your guest is overwhelmed by the emotions and has stopped before completing h
 ### What were your feelings when this happened?
 
 Sometimes you want the guest to answer your questions with feelings and emotions. Making your guest answer your questions while drenched in emotions can take your podcast to the next level. Questions like "What were your feelings when this happened?" can take the guest back to the past and make him answer your question with full emotions.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Mirror your guest
 
@@ -187,10 +187,6 @@ So you see how this can continue to move forward by simply mirroring your guest.
 
 The best thing you can extract from someone in a podcast is their story. If you want to pull out a story from someone, phrase it like this, "Tell me about a time when..." After this question, your job is to sit back, listen, and not interrupt the guest.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 4\. Podcast Questions to Avoid Asking
 
 Avoiding asking wrong questions is as important as asking good questions. Some questions will negatively impact your podcast's quality, so avoid asking such questions. Here are some questions that you should not ask.
@@ -200,6 +196,10 @@ Avoiding asking wrong questions is as important as asking good questions. Some q
 * Questions you anticipate will result in a "yes" should be avoided, as a simple "yes" adds little value to the interview for those listening.
 * Similarly, avoid asking questions to which you can predict the answer will be a "no."
 * Avoid questions that might offend your guest.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5\. Should I Send an Advance Interview Questions Podcast?
 
@@ -241,19 +241,18 @@ Consider the following when picking which of the above questions to use on your 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-3dr-solo-unveiling-the-single-user-experience/"><u>[New] '3DR Solo' Unveiling the Single User Experience</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-capturing-stunning-hdr-scenes-with-photoshop-mastery/"><u>[New] In 2024, Capturing Stunning HDR Scenes with PhotoShop Mastery</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-the-art-of-comfortable-virtual-experiences/"><u>[New] In 2024, Mastering the Art of Comfortable Virtual Experiences</u></a></li>
-<li><a href="https://some-skills.techidaily.com/new-top-mobile-vr-experiences-the-leading-10-headsets/"><u>[New] Top Mobile VR Experiences - The Leading 10 Headsets</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-2024-approved-unleashing-creativity-with-mobile-melodies-on-iphone/"><u>[Updated] 2024 Approved Unleashing Creativity with Mobile Melodies on iPhone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/can-adobe-premiere-pro-handle-av1-video-format-for-importexport/"><u>Can Adobe Premiere Pro Handle AV1 Video Format for Import/Export?</u></a></li>
-<li><a href="https://fox-metric.techidaily.com/complimentary-material-tailwind-kit-with-react-integration-and-complete-wfh-solution-unleash-your-creative-potential-at-creative-tim/"><u>Complimentary Material Tailwind Kit with React Integration and Complete WFH Solution - Unleash Your Creative Potential at Creative Tim!</u></a></li>
-<li><a href="https://win-answers.techidaily.com/essential-guide-overcoming-high-ping-issues-in-call-of-duty-warzone/"><u>Essential Guide: Overcoming High Ping Issues in Call of Duty Warzone</u></a></li>
-<li><a href="https://instagram-video-files.techidaily.com/essential-hash-monitors-for-facebook-twitter-instagram-for-2024/"><u>Essential Hash Monitors for Facebook, Twitter, Instagram for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-transfer-music-from-motorola-moto-e13-to-other-android-devices-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Transfer Music from Motorola Moto E13 to Other Android Devices Easily | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-complete-roadmap-implementing-subtitle-track-within-mp4s/"><u>In 2024, Complete Roadmap Implementing Subtitle Track Within MP4s</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-fusing-visuals-with-acoustic-expressionism/"><u>In 2024, Fusing Visuals with Acoustic Expressionism</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-optimal-methods-for-viewing-nba-games-online/"><u>In 2024, Optimal Methods for Viewing NBA Games Online</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/most-innovative-laptop-2023-the-apple-m2-macbook-air-crowned-by-zdnets-product-of-the-year-zdnet/"><u>Most Innovative Laptop 2023 - The Apple M2 MacBook Air Crowned by ZDNet's Product of the Year | ZDNet</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-master-the-art-of-easy-webinar-recordings-windows-and-macos-advice/"><u>[New] 2024 Approved Master the Art of Easy Webinar Recordings Windows & macOS Advice</u></a></li>
+<li><a href="https://extra-information.techidaily.com/new-adjusting-story-video-playback-rate-on-instagram/"><u>[New] Adjusting Story Video Playback Rate on Instagram</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-merge-music-and-graphics-in-ppt/"><u>[New] Merge Music and Graphics in PPT</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-premier-win11-apps-for-film-and-media-editors/"><u>[New] Premier Win11 Apps for Film & Media Editors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unveil-clear-photos-from-iphone-with-our-free-red-eye-corrector-guide/"><u>[New] Unveil Clear Photos From iPhone with Our FREE Red-Eye Corrector Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/updated-in-2024-capture-the-moment-iphone-time-lapse-tutorial/"><u>[Updated] In 2024, Capture the Moment IPhone Time-Lapse Tutorial</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-key-techniques-for-smooth-screen-sharing-on-mobiledesktop/"><u>[Updated] Key Techniques for Smooth Screen Sharing on Mobile/Desktop</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/updated-skaldic-battle-asgard-vs-jotunheim/"><u>[Updated] Skaldic Battle Asgard vs Jotunheim</u></a></li>
+<li><a href="https://techtrends.techidaily.com/a-guide-to-types-of-subtitles-including-cc-sdh-and-encoded-options/"><u>A Guide to Types of Subtitles Including CC, SDH, and Encoded Options</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-unlock-apple-id-on-your-iphone-6s-plus-without-security-questions-by-drfone-ios/"><u>In 2024, How to Unlock Apple ID On your iPhone 6s Plus without Security Questions?</u></a></li>
+<li><a href="https://games-able.techidaily.com/speedy-game-management-with-steams-space-toolkit/"><u>Speedy Game Management with Steam's Space Toolkit</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/unleash-the-power-of-croatian-language-with-these-top-7-benefits/"><u>Unleash the Power of Croatian Language with These Top 7 Benefits!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/your-quick-guide-to-excellent-zoom-meetings-for-2024/"><u>Your Quick Guide to Excellent Zoom Meetings for 2024</u></a></li>
 </ul></div>
 

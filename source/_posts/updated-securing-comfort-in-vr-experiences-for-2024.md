@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Securing Comfort in VR Experiences for 2024"
-date: 2024-08-27T13:20:49.413Z
-updated: 2024-08-28T13:20:49.413Z
+date: 2024-11-29T19:23:55.050Z
+updated: 2024-12-04T21:59:06.231Z
 tags: 
   - screen-recording
   - ai video
@@ -25,6 +25,10 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 ##### Benjamin Arango
 
  Mar 27, 2024• Proven solutions
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 10 ways to prevent Oculus Rift motion sickness
 
@@ -50,6 +54,10 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
 
 **10\. Try not to move your head a lot.** Since motion sickness directly corresponds to movement, reducing your head movement left and right and up and down in one place can help you lower the chances of sickness.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What Oculus have done to reduce motion sickness
 
  With the new, innovative VR devices and the head gear technology has taken a huge leap. Oculus Rift has become widely popular among its enthusiastic users. When Oculus released its first Development kit (DevKit 1) the users experienced the symptoms such as nausea, dizziness, sweating and vomiting. Even Oculus CEO Brendan Iribe experienced “motion sickness” with his own product, while using last year’s “DevKit 1” prototype. These sickness issues were so common while using DevKit 1 that its users called it the “Rift Sickness”.
@@ -57,6 +65,10 @@ thumbnail: https://thmb.techidaily.com/499d16f8fa9d73db2896cc95dd1103614d6afb1a8
  Since Oculus Rift DK1 came to the market, people were really unhappy with the sickness it gave to them. Oculus saw that issue as a big threat, and started to develop DK2 with a much better display. In the original DK1, Oculus Rift used the liquid crystal display (LCD) to display visual in its devices. LCD screen had been of very much advantage because of its brightness, geometric distortion, and less electricity consumption. But it still had been promoting to the sickness issue because of its sluggish motion time response. In replacement of LCD screens, Oculus Rift has introduced OLED (organic light emitting diode) screens which have proved to be a much better idea. Experiments of Oculus Rift with OLED screens have been successful so far in reducing motion sickness to its minimal. OLED has a much faster rate and thus much enhanced positional tracking.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -81,8 +93,22 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-insiders-guide-to-superior-apps-for-vocal-transformation-for-2024/"><u>[New] Insider's Guide to Superior Apps for Vocal Transformation for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-optimal-screen-capture-techniques-tunefab-style-for-2024/"><u>[New] Optimal Screen Capture Techniques - Tunefab Style for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-art-and-science-of-compelling-headlines/"><u>[New] The Art & Science of Compelling Headlines</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-explore-the-advantages-of-switching-to-macos-11-big-sur/"><u>[Updated] 2024 Approved Explore the Advantages of Switching to macOS 11 Big Sur</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-proven-approaches-to-securing-photo-and-video-borders/"><u>[Updated] Proven Approaches to Securing Photo & Video Borders</u></a></li>
+<li><a href="https://games-able.techidaily.com/corsair-hs65-gaming-headset-review-unmatched-portability-meets-reliable-sound-performance-digitaltechnews/"><u>Corsair HS65 Gaming Headset Review: Unmatched Portability Meets Reliable Sound Performance | DigitalTechNews</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/denis-charmet-showcases-innovative-art-through-digiarty-software/"><u>Denis Charmet Showcases Innovative Art Through Digiarty Software</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/in-2024-pioneering-techniques-in-documentary-scripting/"><u>In 2024, Pioneering Techniques in Documentary Scripting</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-things-you-should-know-when-unlocking-total-wireless-of-iphone-8-by-drfone-ios/"><u>In 2024, Things You Should Know When Unlocking Total Wireless Of iPhone 8</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/innovating-highest-standard-canon-sequences-for-2024/"><u>Innovating Highest Standard Canon Sequences for 2024</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/rearrange-screen-alignment-for-windows-users/"><u>Rearrange Screen Alignment for Windows Users</u></a></li>
+<li><a href="https://games-able.techidaily.com/reverting-card-invalid-status-in-sony-gaming-system/"><u>Reverting Card Invalid Status in Sony Gaming System</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-ranked-instagram-tunes-and-secrets-for-exceptional-call-alerts-for-2024/"><u>Top-Ranked Instagram Tunes & Secrets for Exceptional Call Alerts for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/transform-your-imagery-with-these-mobile-montage-leaders/"><u>Transform Your Imagery with These Mobile Montage Leaders</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/turn-your-webm-videos-into-mp3-audio-for-free-easy-steps-for-both-desktop-applications-and-web-solutions/"><u>Turn Your WebM Videos Into MP3 Audio for Free: Easy Steps for Both Desktop Applications and Web Solutions</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=32667153&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.coolmuster.com/uploads/image/20201228/feature02.png" border="0"></a>
-<!-- affiliate ads end -->

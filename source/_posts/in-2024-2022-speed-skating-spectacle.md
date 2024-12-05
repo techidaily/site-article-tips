@@ -1,7 +1,7 @@
 ---
 title: "In 2024, 2022 Speed Skating Spectacle"
-date: 2024-08-27T13:22:34.461Z
-updated: 2024-08-28T13:22:34.461Z
+date: 2024-12-01T19:31:48.015Z
+updated: 2024-12-04T20:18:59.411Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ Putting aside the controversy of getting disqualified in 1000 meter short track 
 
 Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with controversy after the questionable disqualification of South Korean speed skaters - Hwang and Lee in 1000 meter skating. Paying no heed to the controversy and unfortunate loss, skater Hwang Dae-heon captured his first gold medal in his career and brought back everyone’s focus to the game. Check out the short track speed skating highlights and learn how to create a video with highlights of a tournament like Beijing 2022 Olympic Winter Games.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -31,6 +35,10 @@ Here are the main highlights of 1500 meter short track speed skating held at the
 Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Canada’s Steven Dubois wins the silver medal.
 
@@ -48,6 +56,10 @@ Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian na
 
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
@@ -60,9 +72,6 @@ Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awa
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://bluettide.pxf.io/c/5597632/2042332/17092" target="_top" id="2042332"><img src="//a.impactradius-go.com/display-ad/17092-2042332" border="0" alt="BLUETTI NEW LAUNCH AC180T" width="960" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2042332/17092" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -78,8 +87,9 @@ To create such a highlight video on any sports event, there are certain videos e
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
 To create a video based on any sport event such as short track speed skating highlights, you need a professional video editor where you can get all the video effects and elements in one place. We recommend Wondershare Filmora where you get a wide range of video effects and editing tools to make your video stand out easily.
@@ -99,8 +109,9 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=40203538&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/cc4b82e826b52ec41c810301548e8f48/products/audio-to-text-transcription-software.png" border="0">EaseText Audio to Text Converter for Windows (Personal Edition) - An intelligent tool to transcribe & convert audio to text freely </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -111,9 +122,6 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -135,4 +143,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-gopro-versus-polaroid-editing-faces-vs-cameras-that-shoot-them/"><u>[New] GoPro Versus Polaroid Editing Faces Vs. Cameras That Shoot Them</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ideas-for-customizing-your-tiktok-video-scene/"><u>[New] Ideas for Customizing Your TikTok Video Scene</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-in-2024-essential-tips-for-creating-films-with-movie-maker-in-w11/"><u>[New] In 2024, Essential Tips for Creating Films with Movie Maker in W11</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-audio-aficionados-curated-selection-of-free-lut-links/"><u>[Updated] Audio Aficionados' Curated Selection of Free LUT Links</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-break-the-chain-of-interruptions-on-facebook-lives-for-2024/"><u>[Updated] Break the Chain of Interruptions on Facebook Lives for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elite-cutting-edge-tools-devices-for-apps/"><u>[Updated] Elite Cutting-Edge Tools (Devices) for Apps</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-in-2024-exploring-mukbang-culture-in-live-video-formats/"><u>[Updated] In 2024, Exploring Mukbang Culture in Live Video Formats</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-gigglegraphics-eyecatchermemes/"><u>[Updated] In 2024, GiggleGraphics EyeCatcherMemes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-maximizing-your-youtube-videos-viewer-count/"><u>[Updated] In 2024, Maximizing Your YouTube Video's Viewer Count</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unique-14-motion-graphics-showcasing-text/"><u>[Updated] In 2024, Unique 14 Motion Graphics Showcasing Text</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-navigating-the-world-of-ppc-advertising-essential-guidance-for-newbies-on-social-platforms-for-2024/"><u>[Updated] Navigating the World of PPC Advertising Essential Guidance for Newbies on Social Platforms for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/assessing-the-value-proposition-of-itop-recorder-for-2024/"><u>Assessing the Value Proposition of ITop Recorder for 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/decoding-the-benefits-of-hulu-vs-the-added-perks-of-hulu-plus/"><u>Decoding the Benefits of Hulu Vs. The Added Perks of Hulu Plus</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-claude-ai-superior-to-chatgpt-in-the-world-of-advanced-chatbots/"><u>Is Claude AI Superior to ChatGPT in the World of Advanced Chatbots?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/masterclass-enhancing-live-streams-with-360-cameras/"><u>Masterclass Enhancing Live Streams with 360° Cameras</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/streamed-audiovideo-crafts-meetup/"><u>Streamed Audio/Video Crafts Meetup</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlock-your-oppo-find-n3-phone-with-ease-the-3-best-lock-screen-removal-tools-by-drfone-android/"><u>Unlock Your Oppo Find N3 Phone with Ease The 3 Best Lock Screen Removal Tools</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Step-by-Step  Placing Titles on Video Clips with Windows Photos\""
-date: 2024-11-27T07:44:01.793Z
-updated: 2024-12-04T10:05:08.720Z
+date: 2024-11-30T18:47:26.045Z
+updated: 2024-12-04T20:50:16.959Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ Adding the titles/text to video is a great way to explain the people about a cer
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
@@ -56,13 +56,13 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
@@ -75,25 +75,25 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
 * Pin the slider in Attach to a point at the On position
 * To add the 3D moving image, drag the blue anchor to the object you’d like to attach and wait as it process
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To increase or decrease the length of animation time, adjust the slider
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -102,7 +102,7 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -130,22 +130,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-cutting-edge-conversion-tips-avi-to-gif-using-filmora-for-windowsmac-users-for-2024/"><u>[New] Cutting-Edge Conversion Tips AVI to GIF Using Filmora for Windows/Mac Users for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-gopro-hero-4-black-vs-sony-fdr-x1000v-action-camera-which-is-better/"><u>[New] GoPro Hero 4 Black Vs Sony FDR-X1000V Action Camera Which Is Better?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-painless-audio-progression-the-unobtrusive-way/"><u>[New] In 2024, Painless Audio Progression The Unobtrusive Way</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-speech-to-text-magic-free-edition-for-2024/"><u>[New] Speech-to-Text Magic Free Edition for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-inverted-images-conundrum-on-instagram-feed-for-2024/"><u>[New] The Inverted Images Conundrum on Instagram Feed for 2024</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/updated-2024-approved-becoming-an-insta-star-with-simple-steps/"><u>[Updated] 2024 Approved Becoming an Insta-Star with Simple Steps</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-from-conventional-to-cutting-edge-the-shift-from-rgb-to-srgb/"><u>[Updated] 2024 Approved From Conventional to Cutting-Edge The Shift From Rgb to Srgb</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-windows-hdplus-insights-exploring-hdr-video-potential/"><u>[Updated] 2024 Approved Windows HD+ Insights Exploring HDR Video Potential</u></a></li>
-<li><a href="https://network-issues.techidaily.com/clarified-unknown-direct-x-flub-on-legends-of-lol/"><u>Clarified Unknown Direct X Flub on Legends of LoL</u></a></li>
-<li><a href="https://driver-download.techidaily.com/effortless-installation-brother-hl-s3170cdw-driver-downloads/"><u>Effortless Installation: Brother HL-S3170CDW Driver Downloads</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/final-cut-pro-for-beginners-the-definitive-starter-pack/"><u>Final Cut Pro for Beginners The Definitive Starter Pack</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-expert-guide-merging-srt-captions-with-mp4-video-content/"><u>In 2024, Expert Guide Merging SRT Captions with MP4 Video Content</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-reset-gmail-password-on-motorola-moto-g-5g-2023-devices-by-drfone-android/"><u>In 2024, How to Reset Gmail Password on Motorola Moto G 5G (2023) Devices</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/in-2024-streaming-facebook-movies-via-apple-tv/"><u>In 2024, Streaming Facebook Movies via Apple TV</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/iphone-13-mini-backup-password-never-set-but-still-asking-heres-the-fix-drfone-by-drfone-ios/"><u>iPhone 13 mini Backup Password Never Set But Still Asking? Heres the Fix | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/transform-your-office-space-grab-the-multifunctional-docking-station-11-features-in-one-and-save-big-with-44-off-exclusive-offer/"><u>Transform Your Office Space! Grab the Multifunctional Docking Station, 11 Features in One, and Save Big with 44% Off – Exclusive Offer !</u></a></li>
-<li><a href="https://fox-http.techidaily.com/unlocking-the-potential-of-windows-10-for-aspiring-filmmakers/"><u>Unlocking the Potential of Windows 10 for Aspiring Filmmakers</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-pixels-of-laughter-mobile-apps-transform-images/"><u>[New] 2024 Approved Pixels of Laughter Mobile Apps Transform Images</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-restore-lost-airdrop-functionality-with-easy-solutions-for-iosmacos/"><u>[New] Restore Lost Airdrop Functionality with Easy Solutions for iOS/macOS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-snap-to-perfection-editing-strategies-that-work-wonders-for-2024/"><u>[New] Snap to Perfection Editing Strategies That Work Wonders for 2024</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2024-approved-streaming-hd-1080p-on-facebook-tips-and-tricks/"><u>[Updated] 2024 Approved Streaming HD 1080P on Facebook Tips and Tricks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-stream-to-stardom-mastering-live-with-xsplit-or-obs/"><u>[Updated] Stream to Stardom Mastering Live with XSplit or OBS?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-vr-tech-trends-right-now/"><u>[Updated] VR Tech Trends Right Now</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-elite-endorsement-exquisite-websites-to-download-snap-alert-tunes/"><u>In 2024, Elite Endorsement Exquisite Websites to Download Snap Alert Tunes</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-change-google-play-location-on-nokia-c02-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change Google Play Location On Nokia C02 | Dr.fone</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-how-to-change-your-apple-iphone-11-apple-id-on-macbook-by-drfone-ios/"><u>In 2024, How To Change Your Apple iPhone 11 Apple ID on MacBook</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-make-the-most-of-your-apple-iphone-8-lock-screen-with-notifications-by-drfone-ios/"><u>In 2024, How to Make the Most of Your Apple iPhone 8 Lock Screen with Notifications?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-prime-explorations-in-top-livestream-websites/"><u>In 2024, Prime Explorations in Top Livestream Websites</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/troubleshooting-techniques-to-eliminate-screen-stuttering-on-windows-11-devices/"><u>Troubleshooting Techniques to Eliminate Screen Stuttering on Windows 11 Devices</u></a></li>
 </ul></div>
 

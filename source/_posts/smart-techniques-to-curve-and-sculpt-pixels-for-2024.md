@@ -1,7 +1,7 @@
 ---
 title: "Smart Techniques to Curve and Sculpt Pixels for 2024"
-date: 2024-08-27T13:22:50.289Z
-updated: 2024-08-28T13:22:50.289Z
+date: 2024-11-28T17:28:53.388Z
+updated: 2024-12-04T16:23:13.724Z
 tags: 
   - screen-recording
   - ai video
@@ -34,11 +34,19 @@ After creating the new document, open the image that you want to curve. You may 
 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Warp the Image
 
 Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking and holding on the Transform Tool in the toolbar. The Warp Tool is located at the bottom of the Transform Tool's fly-out menu. Alternatively, you may press Ctrl+T or Command+T on your keyboard to open the Transform Tool's fly-out menu and then select the Warp Tool from there.
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
@@ -54,9 +62,17 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
@@ -67,6 +83,10 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -100,8 +120,26 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-premier-5-digital-camera-background-swap-tools-iphone-photos/"><u>[New] 2024 Approved Premier 5 Digital Camera Background Swap Tools IPhone Photos</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-uncompromised-quality-activate-av1-for-youtube-streams/"><u>[New] 2024 Approved Uncompromised Quality Activate AV1 for YouTube Streams</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-expert-tips-for-stunning-photos-on-iphones/"><u>[New] Expert Tips for Stunning Photos on iPhones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-in-depth-look-at-auditory-cutting-techniques/"><u>[New] In 2024, In-Depth Look at Auditory Cutting Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unlock-the-power-of-spotifys-advertising-potential/"><u>[New] In 2024, Unlock the Power of Spotify’s Advertising Potential</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-crypto-clout-how-much-does-the-youtube-gamer-make/"><u>[Updated] 2024 Approved Crypto Clout How Much Does the YouTube Gamer Make?</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/updated-2024-approved-learning-the-art-of-softly-amplifying-audio-tracks/"><u>[Updated] 2024 Approved Learning the Art of Softly Amplifying Audio Tracks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-distinguished-directory-top-ranked-websites-for-snatching-snapalert-melodies/"><u>[Updated] In 2024, Distinguished Directory Top-Ranked Websites for Snatching SnapAlert Melodies</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/updated-navigating-facebooks-memory-lane-with-ease/"><u>[Updated] Navigating Facebook's Memory Lane with Ease</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-srt-to-sub-guide-practical-conversion-methods-for-2024/"><u>[Updated] SRT to SUB Guide Practical Conversion Methods for 2024</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/does-obs-support-av1-encoding-mastering-streaming-with-advanced-video-coding/"><u>Does OBS Support AV1 Encoding? Mastering Streaming with Advanced Video Coding.</u></a></li>
+<li><a href="https://win-blog.techidaily.com/how-to-resolve-the-persistent-black-screen-glitch-on-magic-the-gathering-online-platform/"><u>How to Resolve the Persistent Black Screen Glitch on Magic: The Gathering Online Platform</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-ace-your-workflow-fast-signature-backdrop-elimination/"><u>In 2024, Ace Your Workflow Fast Signature Backdrop Elimination</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-how-to-unlock-sim-card-on-apple-iphone-12-pro-online-without-jailbreak-by-drfone-ios/"><u>In 2024, How to Unlock SIM Card on Apple iPhone 12 Pro online without jailbreak</u></a></li>
+<li><a href="https://extra-information.techidaily.com/sculpting-images-a-beginners-guide-to-pics-distortion/"><u>Sculpting Images A Beginner's Guide to Pics Distortion</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/the-complete-guide-to-edit-your-video-with-youtube-studio-editor-for-2024/"><u>The Complete Guide to Edit Your Video with YouTube Studio Editor for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unleashing-premium-soundtracks-in-your-mp4-files-the-2024-guide/"><u>Unleashing Premium Soundtracks in Your MP4 Files – The 2024 Guide</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/ding-your-spotify-library-to-youtube-music-access-for-2024/"><u>Upgrading Your Spotify Library to YouTube Music Access for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/yokus-island-express-an-unconventional-journey-through-fantastic-quests/"><u>Yoku's Island Express: An Unconventional Journey Through Fantastic Quests</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4694919&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/jutoh-logo-1200x1600.jpg" border="0">Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. </a>
-<!-- affiliate ads end -->

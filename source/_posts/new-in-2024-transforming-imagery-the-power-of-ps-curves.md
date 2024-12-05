@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Transforming Imagery  The Power of PS Curves\""
-date: 2024-11-30T23:17:42.144Z
-updated: 2024-12-04T07:57:38.885Z
+date: 2024-11-30T20:05:19.367Z
+updated: 2024-12-04T16:00:02.495Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ After creating the new document, open the image that you want to curve. You may 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ##### Step3Warp the Image
@@ -50,7 +50,7 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
@@ -64,16 +64,12 @@ Play around with the settings in the options bar. There are quite a few differen
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
 
@@ -83,15 +79,19 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4Save the Image
 
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -127,17 +127,17 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-best-online-hubs-sky-high-dynamic-range-photography/"><u>[New] 2024 Approved Best Online Hubs Sky High Dynamic Range Photography</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-be-a-reddit-pro-the-13-best-ways-to-make-cash-fast-and-easy-for-2024/"><u>[New] Be a Reddit Pro The 13 Best Ways to Make Cash Fast & Easy for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-3d-modeling-software-to-use-for-animation/"><u>[Updated] 2024 Approved 3D Modeling Software to Use for Animation</u></a></li>
-<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-tips-to-make-your-instagram-video-goes-viral/"><u>[Updated] 2024 Approved Tips to Make Your Instagram Video Goes Viral</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unveiling-the-power-of-vivacut/"><u>[Updated] 2024 Approved Unveiling the Power of VivaCut</u></a></li>
-<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-concealing-content-securing-video-data-ethics/"><u>[Updated] In 2024, Concealing Content Securing Video Data Ethics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-top-30-metaverse-gems-diy-meme-ideas-unleashed/"><u>[Updated] Top 30 Metaverse Gems DIY Meme Ideas Unleashed</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/vating-your-audience-youtube-intro-excellence-with-imovie-for-2024/"><u>Captivating Your Audience YouTube Intro Excellence with iMovie for 2024</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/explore-faster-mac-release-of-stellar-product/"><u>Explore Faster Mac – Release of Stellar Product</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-catchemall-celebrate-national-pokemon-day-with-virtual-location-on-samsung-galaxy-xcover-7-drfone-by-drfone-virtual-android/"><u>In 2024, CatchEmAll Celebrate National Pokémon Day with Virtual Location On Samsung Galaxy XCover 7 | Dr.fone</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-the-top-5-android-apps-that-use-fingerprint-sensor-to-lock-your-apps-on-realme-11x-5g-by-drfone-android/"><u>In 2024, The Top 5 Android Apps That Use Fingerprint Sensor to Lock Your Apps On Realme 11X 5G</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/in-2024-top-7-free-apps-for-tiktok-creations-on-macos-devices/"><u>In 2024, Top 7 Free Apps for TikTok Creations on MacOS Devices</u></a></li>
+<li><a href="https://fox-links.techidaily.com/new-2024-approved-prime-selection-top-8-webcams-to-upgrade-streaming/"><u>[New] 2024 Approved Prime Selection Top 8 Webcams to Upgrade Streaming</u></a></li>
+<li><a href="https://twitter-clips.techidaily.com/new-in-2024-innovative-5-websites-eclipsing-twitter/"><u>[New] In 2024, Innovative 5 Websites Eclipsing Twitter</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-tricks-to-download-twitter-videos-and-turn-into-mp3-files/"><u>[Updated] 2024 Approved Tricks to Download Twitter Videos and Turn Into MP3 Files</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-benefits-of-apples-m1-in-post-production-editing-for-2024/"><u>[Updated] Benefits of Apple's M1 in Post-Production Editing for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-exploring-nature-garmin-virb-ultra-30-cam-review-for-2024/"><u>[Updated] Exploring Nature Garmin VIRB Ultra 30 Cam Review for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-auditory-interpretation-made-easy-priceless-access/"><u>[Updated] In 2024, Auditory Interpretation Made Easy, Priceless Access</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-step-by-step-process-for-acquiring-moviemaker-6-on-pcs/"><u>[Updated] Step-by-Step Process for Acquiring Moviemaker 6 on PCs</u></a></li>
+<li><a href="https://win-help.techidaily.com/activate-windows-nations-auto-updater-comprehensive-instructions-from-yl-computing-experts/"><u>Activate Windows Nation's Auto-Updater: Comprehensive Instructions From YL Computing Experts</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/dominant-croatian-language/"><u>Dominant Croatian Language</u></a></li>
+<li><a href="https://apple-account.techidaily.com/how-to-fix-apple-id-verification-code-not-working-from-iphone-se-by-drfone-ios/"><u>How To Fix Apple ID Verification Code Not Working From iPhone SE</u></a></li>
+<li><a href="https://techtrends.techidaily.com/mastering-siri-a-guide-to-voice-activated-reading-on-apple-devices/"><u>Mastering Siri: A Guide to Voice-Activated Reading on Apple Devices</u></a></li>
+<li><a href="https://some-skills.techidaily.com/unleash-creativity-with-these-free-web-photo-editors-for-2024/"><u>Unleash Creativity with These Free Web Photo Editors for 2024</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Decoding UAVs  The Science Behind Airborne Machines\""
-date: 2024-11-27T13:05:33.881Z
-updated: 2024-12-04T02:06:36.670Z
+date: 2024-11-30T16:53:44.076Z
+updated: 2024-12-04T16:30:32.408Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,6 @@ thumbnail: https://thmb.techidaily.com/cd3d45b359655445d3a3fddc84f4f42edd47a1ec8
 
  Major task of a controller is to establish proper communication channel between remote unit and the radio waves. Most of the drones use to work on 2.4 GHz frequency range and many of these controls take help from Wi-Fi networks for making active decisions regarding movements. Many features of a smartphone and drone are same as like both carry GPS, Wi-Fi and many other common sensor units. These onboard sensors help drone to stay in air for long run and make right decisions about its height, direction and other important movements. The landing process is also controlled by propeller system inside and the sensors make decisions about its speed, altitude and motor rotation etc. A drone works like an intelligent air unit that can cover large distance when used with powerful batteries and can bring the hidden information for you like a spy. This is the main reason behind it popularity in military applications.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Popular consumer done manufactures 2017
 
  1\. [DJI Innovations >>](http://www.dji.com/)
@@ -68,7 +64,7 @@ thumbnail: https://thmb.techidaily.com/cd3d45b359655445d3a3fddc84f4f42edd47a1ec8
 ![dji drone logo](https://images.wondershare.com/filmora/article-images/dji-logo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  2\. [Yuneec >>](http://www.yuneec.com/products )
@@ -79,37 +75,29 @@ thumbnail: https://thmb.techidaily.com/cd3d45b359655445d3a3fddc84f4f42edd47a1ec8
 
 ![parrot drone logo](https://images.wondershare.com/filmora/article-images/parrot-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  4\. [3D Robotics >>](http://3drobotics.com/ )
 
 ![3d robotics drone logo](https://images.wondershare.com/filmora/article-images/3d-robotics-logo.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  5\. [Hubsun >>](http://www.hubsan.com/ )
 
 ![hubsan drone logo](https://images.wondershare.com/filmora/article-images/hubsan-logo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  6\. [Syma Toy >>](http://www.symatoys.com/ )
 
 ![syma toy drone logo](https://images.wondershare.com/filmora/article-images/syma-toy-logo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  7\. [Autel Robotics >>](https://www.autelrobotics.com )
 
 ![Autel logo](https://images.wondershare.com/filmora/article-images/autel-robotics-logo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  8\. [Xiro >>](http://xirodrone.com/ )
 
@@ -119,15 +107,27 @@ thumbnail: https://thmb.techidaily.com/cd3d45b359655445d3a3fddc84f4f42edd47a1ec8
 
 ![vantage drone logo](https://images.wondershare.com/filmora/article-images/vantage-robotics-logo.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  10\. [Horizon Hobby >>](http://www.horizonhobby.com/category/multirotor )
 
 ![Horizon Hobby logo](https://images.wondershare.com/filmora/article-images/horizon-hobby-logo.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JNxZ4Z6BVCg?si=522oz1OPSQDhNYWT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Summary
 
  There is no doubt to say that drones are one of the most wonderful and precious advancement of technology. Presently almost all countries are developing their drones for different applications. There are still some clauses for improvements and many professionals are continuously working on it. Drone carrying camera units inside them are more useful for commercial as well as military applications and they are being developed by almost all top companies in the world. It is a combination of all advanced technologies like micro controllers, GPS, Wi-Fi and sensor units- they all work in perfect coherence to deliver awesome performance for different applications. Most of the countries these days have decided their specific rule set for drone flights and few restrictions are poses on their weight carrying capacity. If you want to use drones for commercial applications then it is important to take permission from CAA.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -154,14 +154,18 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-savvy-sentries-of-the-mind-top-quizzes/"><u>[New] 2024 Approved Savvy Sentries of the Mind Top Quizzes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-framed-facets-guide-to-the-best-apps-and-sites-for-frame-upgrades/"><u>[New] In 2024, Framed Facets Guide to the Best Apps & Sites for Frame Upgrades</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-leading-sites-for-3d-type-artistry/"><u>[New] Leading Sites for 3D Type Artistry</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-2024-approved-the-ultimate-guide-to-choosing-the-most-effective-9-multimedia-devices-ios-android/"><u>[Updated] 2024 Approved The Ultimate Guide to Choosing the Most Effective 9 Multimedia Devices (iOS, Android)</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/updated-effortless-harmony-creating-engaging-and-organized-youtube-playlists-for-2024/"><u>[Updated] Effortless Harmony Creating Engaging and Organized YouTube Playlists for 2024</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/explore-the-best-7-ai-powered-devices-to-tackle-complex-math-puzzles/"><u>Explore the Best 7 AI-Powered Devices to Tackle Complex Math Puzzles</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-can-we-unlock-our-oppo-reno-11f-5g-phone-screen-by-drfone-android/"><u>In 2024, How Can We Unlock Our Oppo Reno 11F 5G Phone Screen?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/skyward-file-fortresses-identifying-top-cloud-titans-for-2024/"><u>Skyward File Fortresses Identifying Top Cloud Titans for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/two-ways-to-sync-contacts-from-vivo-v30-lite-5g-to-gmail-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Two Ways to Sync Contacts from Vivo V30 Lite 5G to Gmail | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-how-to-rejuvenate-old-memories-with-modern-instagram-features/"><u>[New] How to Rejuvenate Old Memories with Modern Instagram Features</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/n-2024-integrating-video-content-bringing-youtube-into-powerpoint/"><u>[New] In 2024, Integrating Video Content Bringing YouTube Into PowerPoint</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-ultimate-guide-to-voice-changes-experts-handbook-for-morphvox-transformation/"><u>[Updated] 2024 Approved The Ultimate Guide to Voice Changes Expert's Handbook for MorphVOX Transformation</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-unlocking-the-potential-of-bandicam-your-ultimate-guide/"><u>[Updated] In 2024, Unlocking the Potential of Bandicam – Your Ultimate Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-thankful-compilation-professional-and-personalized-otus/"><u>[Updated] Thankful Compilation Professional & Personalized OTUs</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-the-newest-driver-update-for-your-netgear-a6100-on-windows-compatible-versions-included/"><u>Get the Newest Driver Update for Your Netgear A6100 on Windows - Compatible Versions Included</u></a></li>
+<li><a href="https://change-location.techidaily.com/how-to-come-up-with-the-best-pokemon-team-on-vivo-y27-5g-drfone-by-drfone-virtual-android/"><u>How to Come up With the Best Pokemon Team On Vivo Y27 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-free-ai-hearing-and-handling-software/"><u>In 2024, Free AI Hearing and Handling Software</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-how-to-changefake-your-infinix-gt-10-pro-location-on-viber-drfone-by-drfone-virtual-android/"><u>In 2024, How to Change/Fake Your Infinix GT 10 Pro Location on Viber | Dr.fone</u></a></li>
+<li><a href="https://windows11.techidaily.com/overcome-could-not-initialize-vm-error-on-pc/"><u>Overcome 'Could Not Initialize VM' Error on PC</u></a></li>
+<li><a href="https://article-tips.techidaily.com/step-by-step-from-twitter-videosyoutube-songs-to-scribbled-mp3-files-for-2024/"><u>Step-by-Step From Twitter Videos/YouTube Songs to Scribbled MP3 Files for 2024</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/streamlining-google-meets-with-efficient-snap-photography-tips-for-2024/"><u>Streamlining Google Meets with Efficient Snap Photography Tips for 2024</u></a></li>
+<li><a href="https://techidaily.com/three-solutions-to-hard-reset-oppo-find-x7-drfone-by-drfone-reset-android-reset-android/"><u>Three Solutions to Hard Reset Oppo Find X7? | Dr.fone</u></a></li>
 </ul></div>
 

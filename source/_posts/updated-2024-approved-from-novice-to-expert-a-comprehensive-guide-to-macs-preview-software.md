@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  From Novice to Expert  A Comprehensive Guide to Mac's Preview Software\""
-date: 2024-08-27T13:15:45.630Z
-updated: 2024-08-28T13:15:45.630Z
+date: 2024-12-05T00:25:42.798Z
+updated: 2024-12-10T16:00:40.084Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ The **Preview app** is a built-in program in macOS, and works as a default viewe
 
 That said, the sections below explain **how to use Preview on Mac** for elementary picture editing like rotating, cropping, adding annotations, etc.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1: How to Use Preview to Edit Images \[Complete Guide\]
 
 Being the default image editor for Mac, Apple tried to make the **Preview app** as simple as possible. Therefore, modifying the photos in the program isn’t much complicated as compared to its competitors from different vendors.
@@ -51,8 +55,9 @@ As mentioned earlier, the **Preview app** is a default photo viewer on Mac that 
 * Alternatively, click **Tools** from the top, and choose your preferred editing option from the menu
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4535075&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/GU-500_672.png" border="0">Glary Utilities PRO -  Premium all-in-one utility to clean, speed up, maintain and protect your PC</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Show Markup Tools in Preview on Mac
 
 Markup Tools gives easy access to the editing tools the **Preview app** has. By default, Markup Tools is kept hidden, but automatically becomes visible when you make some changes to the image. However, you can follow the process given below to manually show Markup Tools in Preview:
@@ -67,9 +72,6 @@ Click the **Hide Markup Tools** icon from the upper-right area to hide **Markup 
 
 **Note:** Throughout this demonstration, the **Markup Toolbar** is kept visible to access the editing tools easily.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075471/7443" target="_top" id="2075471"><img src="//a.impactradius-go.com/display-ad/7443-2075471" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075471/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Crop in Preview
 
 In order to crop a photo in the **Preview app**:
@@ -86,9 +88,6 @@ Drag the mouse pointer over the area of the photo you want to keep. If need be, 
 
 Keeping the area of interest on the photo selected, click **Crop** from the **Markup Toolbar** at the top to crop the image.
 
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Rotate Image in Preview
 
 Rotating an image in the **Preview app** is fairly simple. To do so:
@@ -102,8 +101,9 @@ Use the method explained above to open the photo in Preview.
 Click the **Rotate Left** icon from the upper-right area of the standard toolbar to rotate the image anticlockwise. Alternatively, you can also click **Tools** from the top, and choose your preferred rotation direction or flipping orientation from the menu that comes down next.
 
 <!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1596691/17882" target="_top" id="1596691"><img src="//a.impactradius-go.com/display-ad/17882-1596691" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1596691/17882" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Add Text to Image in Preview
 
 The **Preview app** even lets you annotate the images with ease. To add text to a photo:
@@ -137,8 +137,9 @@ Once the background portion of the image gets selected (colored in red), without
 **Note:** Usually, not entire background could be selected in a single go, especially when there are multiple objects in the photo. In such a situation, you must repeat the process multiple times to get rid of all the unwanted objects/areas.
 
 <!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1496243/17238" target="_top" id="1496243"><img src="//a.impactradius-go.com/display-ad/17238-1496243" border="0" alt="" width="1000" height="1221"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1496243/17238" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### How to Combine Images into One
 
 This process is generally used to place an object present in one image over the background of the other photo. A good example could be to place a picture of a fish on to a second photo that has a sea or river. The **Preview app** lets you do this easily using the following steps:
@@ -168,8 +169,9 @@ After opening an image, click **File** from the menu bar at the top, and click *
 Choose a destination folder in the **Where** field, select your preferred format from the **Format** drop-down list, and click **Save** to convert the image.
 
 <!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42296855&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/recode/Nero_Recode_Screen_2.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Part 2: FAQs About Preview App on Mac
 
 #### What is the Preview App?
@@ -227,4 +229,26 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unveiling-the-power-of-zoom-in-enhancing-your-youtube-experience/"><u>[New] 2024 Approved Unveiling the Power of Zoom in Enhancing Your YouTube Experience</u></a></li>
+<li><a href="https://fox-access.techidaily.com/new-best-kept-secrets-elite-mac-speech-apps-youre-missing-out-on-for-2024/"><u>[New] Best-Kept Secrets Elite Mac Speech Apps You're Missing Out On for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-digital-dreamscape-mapping-vrs-progress/"><u>[New] In 2024, Digital Dreamscape Mapping VR's Progress</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-most-reliable-iphones-podcast-services/"><u>[New] Most Reliable iPhones Podcast Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-ultimate-guide-to-stretched-seconds-capturing-slow-mo-videos-using-mobile-apps-and-internet-platforms/"><u>[New] The Ultimate Guide to Stretched Seconds Capturing Slow-Mo Videos Using Mobile Apps and Internet Platforms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elite-ringtones-selection-high-quality-sites/"><u>[Updated] Elite Ringtones Selection High-Quality Sites</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-revolutionize-iphone-images-turn-them-sideways-and-upside-down/"><u>[Updated] In 2024, Revolutionize iPhone Images Turn Them Sideways & Upside Down</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unlocking-tiktok-video-potential-with-zoom/"><u>[Updated] In 2024, Unlocking TikTok Video Potential with Zoom</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/2024-approved-ideal-episodic-unveiling-schedule/"><u>2024 Approved Ideal Episodic Unveiling Schedule</u></a></li>
+<li><a href="https://fake-location.techidaily.com/all-must-knows-to-use-fake-gps-go-location-spoofer-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>All Must-Knows to Use Fake GPS GO Location Spoofer On Tecno Spark 10C | Dr.fone</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/nce-appreciation-assessment-self-and-seekers-vs-rival-repertoires-for-2024/"><u>Audience Appreciation Assessment Self and Seekers Vs. Rival Repertoires for 2024</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/boosting-bard-7-techniques-from-palm-2-improvements/"><u>Boosting Bard: 7 Techniques From PaLM 2 Improvements</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/get-your-thrustmaster-t300-working-latest-driver-downloads-for-win10win11-users/"><u>Get Your Thrustmaster T300 Working: Latest Driver Downloads for Win10/Win11 Users</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-honor-70-lite-5g-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Honor 70 Lite 5G Without PUK Codes</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/in-2024-best-practices-for-youtube-to-igtv-transformation/"><u>In 2024, Best Practices for YouTube to IGTV Transformation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-in-depth-review-of-dji-mavic-pro-eyewear-tech/"><u>In 2024, In-Depth Review of DJI Mavic Pro Eyewear Tech</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-top-4-sim-location-trackers-to-easily-find-your-lost-vivo-x100-device-by-drfone-android/"><u>In 2024, Top 4 SIM Location Trackers To Easily Find Your Lost Vivo X100 Device</u></a></li>
+<li><a href="https://mondly-stories.techidaily.com/learning-unleashed-commemorating-1500-daily-fee-free-education/"><u>Learning Unleashed: Commemorating 1500 Daily Fee-Free Education</u></a></li>
+<li><a href="https://article-tips.techidaily.com/youtube-comment-discovery-a-step-by-step-walkthrough/"><u>YouTube Comment Discovery A Step-by-Step Walkthrough</u></a></li>
+</ul></div>
 

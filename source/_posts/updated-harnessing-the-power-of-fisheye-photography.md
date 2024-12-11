@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Harnessing the Power of Fisheye Photography"
-date: 2024-08-27T13:17:36.722Z
-updated: 2024-08-28T13:17:36.722Z
+date: 2024-12-09T22:50:33.742Z
+updated: 2024-12-10T23:59:10.819Z
 tags: 
   - screen-recording
   - ai video
@@ -37,8 +37,9 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 ![Panohead for Fisheye lens](https://images.wondershare.com/filmora/article-images/panohead-for-fishlens.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://bluettius.sjv.io/c/5597632/2027209/17108" target="_top" id="2027209"><img src="//a.impactradius-go.com/display-ad/17108-2027209" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2027209/17108" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 2. Leveling and rotating
 
  Other than setting up and calibrating the equipment in the right manner, it is important to keep the camera steady and leveled as you make the rotations to take shots. For leveling, it is recommended to use an appropriate leveling base, while for rotation, using a panning clamp on top of the ballhead is highly recommended.
@@ -46,8 +47,13 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 ![Panning clam on ballhead](https://images.wondershare.com/filmora/article-images/panning-clam-on-ballhead.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=174416&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.easygifanimator.net/images/gif-animator.png" border="0">Easy GIF Animator is a powerful animated GIF editor and the top tool for creating animated pictures, banners, buttons and GIF videos. You get extensive animation editing features, animation effects, unmatched image quality and optimization for the web. No other GIF animation software matches our features and ease of use, that's why Easy GIF Animator is so popular.</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 3. The actual shooting
 
  For a full frame camera with 15mm fisheye lens in the portrait position, you will require a total of six shot rounds and 1 up to complete a full sphere. If you were using a crop-sensor camera, you will need to have a 10mm fisheye lens to achieve the same sequence.
@@ -61,8 +67,9 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
  In normal photography, it always pays to remember what to include and what to exclude in your shots. When it comes to shooting 360s, it becomes more complicated since everything is included. For you to take successful 360s with fisheye therefore, you need to consider keenly where you stand. The fisheye lens will introduce a lot of space between you and the subject, hence you must consider how close or far away you are from the subject so that the pieces of the compositional puzzle will fall in place smoothly both in the horizontal and vertical planes.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Stitching 360 degrees panoramas after shooting
 
  To stitch 360s taken by fisheye lenses after shooting, you will need panorama software like [Autopano Pro](http://www.kolor.com/) or [PTGui](https://www.ptgui.com/). For Autopano Pro, you begin by importing the images into the software and ensuring that the EXIF are displayed correctly on the program. With the right settings in place, the next step is to launch the direct stitching feature if you don’t want to go the manual way. Once the stitching is done, it will be important to present the output online. This can be done using [Pano2VR](http://www.ggnome.com/pano2vr) or you could simply upload the finished panoramas to [360cities](https://www.360cities.net/) for online viewing.
@@ -71,9 +78,6 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 
 [How to stitch GoPro clips into 360 videos >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-leads-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## What's fisheye lenses
 
  Fisheye lens refers to an ultra wide angle lens used to produce strong visual distortions with the aim of creating a wide hemispherical or panoramic image. Fisheye lenses are able to achieve very wide angles of view not through the production of straight lines of perspectives, but through a special mapping which makes the resulting images have the characteristic convex non-rectilinear appearance.
@@ -84,9 +88,6 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 
 ![create 360 photos with fisheye lens](https://images.wondershare.com/filmora/article-images/fisheye-lens-image.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=35038891&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.dupinout.com/wp-content/uploads/2021/12/DupInOut-New-Duplicate-Scan-Tab.png" border="0"></a>
-<!-- affiliate ads end -->
  Conclusion
 
  Fisheye lenses have been around for a while now and the process of creating 360 panoramas with them may not be very challenging, but great results are achieved through practice and proper stitching. Once the photos are taken, you can use premium panorama software like Autopano Pro or you can use free options like the Microsoft ICE or Hugin. Ones stitching are done, it is imperative to have the final works uploaded online for others to view.
@@ -94,8 +95,9 @@ thumbnail: https://thmb.techidaily.com/f9a9cc9d25c2277c00a95f3b41983be5b23439a73
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Benjamin Arango
 
 Benjamin Arango is a writer and a lover of all things video.
@@ -119,4 +121,23 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://extra-information.techidaily.com/new-best-practices-for-free-clipart-use-in-projects/"><u>[New] Best Practices for Free Clipart Use in Projects</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-beyond-one-viewpoint-the-ultimate-review-of-best-11-bridge-cams/"><u>[New] In 2024, Beyond One Viewpoint The Ultimate Review of Best 11 Bridge Cams</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-buy-youtube-subscribers-hundreds-of-subscribers-for-5/"><u>[Updated] 2024 Approved Buy YouTube Subscribers - Hundreds of Subscribers for $5?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-exploring-every-frame-a-deep-dive-into-polaroids-xs-action-camera/"><u>[Updated] 2024 Approved Exploring Every Frame A Deep Dive Into Polaroid's XS Action Camera</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-streamline-accessibility-a-compreenas-top-free-tts-apps-list-for-mac-users/"><u>[Updated] 2024 Approved Streamline Accessibility A Compreenas Top Free TTS Apps List for Mac Users</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-how-to-change-youtube-video-playback-speed-desktopmobile/"><u>[Updated] How to Change YouTube Video Playback Speed [Desktop/Mobile]</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-checklist-for-selecting-prime-streaming-services-of-cricket/"><u>[Updated] The Ultimate Checklist for Selecting Prime Streaming Services of Cricket</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unleash-creativity-with-canons-time-lapse-capabilities/"><u>[Updated] Unleash Creativity with Canon's Time-Lapse Capabilities</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/3-solutions-to-find-your-honor-magic-6-current-location-of-a-mobile-number-drfone-by-drfone-virtual-android/"><u>3 Solutions to Find Your Honor Magic 6 Current Location of a Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://games-able.techidaily.com/fast-and-furious-boost-your-counter-strike-fps/"><u>Fast and Furious: Boost Your Counter-Strike FPS</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/24-profit-making-on-youtube-breakdown-of-critical-view-criteria/"><u>In 2024, Profit-Making on YouTube Breakdown of Critical View Criteria</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-virtual-worlds-with-top-tier-game-engines-2023/"><u>Mastering Virtual Worlds with Top-Tier Game Engines, 2023</u></a></li>
+<li><a href="https://techidaily.com/simple-ways-to-get-lost-videos-back-from-lava-yuva-2-by-fonelab-android-recover-video/"><u>Simple ways to get lost videos back from Lava Yuva 2</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-digital-sound-artists-guide-discovering-no-cost-audio-effect-solutions/"><u>The Digital Sound Artist's Guide Discovering No-Cost Audio Effect Solutions</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/top-4-enhancements-needed-in-chatgpts-plugin-hub-what-users-are-requesting/"><u>Top 4 Enhancements Needed in ChatGPT's Plugin Hub - What Users Are Requesting</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/unveiling-the-positive-aspects-and-negative-points-of-chatgpt-plus/"><u>Unveiling The Positive Aspects And Negative Points Of ChatGPT Plus</u></a></li>
+</ul></div>
 

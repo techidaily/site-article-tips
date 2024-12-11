@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Yuneec Typhoon H Examined  A Drone Review Perspective\""
-date: 2024-08-27T13:15:22.292Z
-updated: 2024-08-28T13:15:22.292Z
+date: 2024-12-10T00:08:27.518Z
+updated: 2024-12-11T02:03:13.939Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/423415d175d6eec024525c4afdad758a2e4f56118
 ![yuneec typhoon h 4k](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-4k.jpg)
 
 [Check at Amazon](https://www.amazon.com/gp/product/B01AT4BKFU/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B01AT4BKFU&linkId=e78ed50f4be15f8e7659a71d593af0c9)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Pros and Cons of Typhoon H
 
@@ -85,17 +89,26 @@ thumbnail: https://thmb.techidaily.com/423415d175d6eec024525c4afdad758a2e4f56118
 
 ![yuneec typhoon h controller](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-controller.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The controller part is really interesting with few additional features as compared to its predecessors. You will be able to access button and knobs but one new addition to controller is in form of its built in type 7 inch touchscreen that can display the telemetry data on continuous basis. Here is good news for professionals; it is possible to connect this drone to more than one controller at a time so that few highly customized shoots can be gathered. Filmmakers love to access these advanced features.
 
 #### 7\.  Camera
 
 ![yuneec typhoon h camera](https://images.wondershare.com/filmora/article-images/yuneec-typhoon-h-camera.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  The drone camera can provide 4K recording facility whereas users can also switch between 2.5K and 1080p level as per need. The FPS ratings can be shifted for better results. Results can be enhanced with its ½.3” CMOS sensor and the developers also claim to serve with video transmission range of about 400 meters. The 360 degree gimbal is also available with this drone and its results are professional looking with advantage of sonar sensor.
 
 <!-- affiliate ads begin -->
-<a href="https://cowinaudio.pxf.io/c/5597632/1116855/13794" target="_top" id="1116855"><img src="//a.impactradius-go.com/display-ad/13794-1116855" border="0" alt="" width="767" height="285"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1116855/13794" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
  If we consider all advanced features then there is no doubt to say that Typhoon H is one of the fantastic units for hexacopter lovers. It is much easier to control for beginners as well as professionals whereas the results for footage and stills are really impressive. The best part is its ability to fold up into a compact size so that users can take it to any far location with ease. Although you may find the battery issue as it takes about 2 hours to get completely charged but the performance on rest all parameters is impressive. And all these features are available at very suitable price range. Most of filmmakers love to record their aerial shots with this device as its dual operation mode makes it suitable for serious filming needs.
@@ -103,8 +116,9 @@ thumbnail: https://thmb.techidaily.com/423415d175d6eec024525c4afdad758a2e4f56118
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033101&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Elite.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UCqHbpxQGP4?si=XGkajFHdqyoKNAFM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Max Wales
 
 Max Wales is a writer and a lover of all things video.
@@ -128,4 +142,19 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-footage.techidaily.com/new-in-2024-culinary-callings-30-unique-show-title-suggestions/"><u>[New] In 2024, Culinary Callings 30 Unique Show Title Suggestions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unveiling-iphone-features-podcast-audiophiles-guide/"><u>[New] In 2024, Unveiling iPhone Features - Podcast Audiophiles Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-crafting-ae-titles-with-maximum-impression/"><u>[Updated] 2024 Approved Crafting AE Titles with Maximum Impression</u></a></li>
+<li><a href="https://article-posts.techidaily.com/updated-2024-approved-superior-webcam-gear-for-podcasters/"><u>[Updated] 2024 Approved Superior Webcam Gear for Podcasters</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ultimate-ringtone-bazaar-navigating-online-sound-archives/"><u>[Updated] 2024 Approved Ultimate Ringtone Bazaar Navigating Online Sound Archives</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elevate-your-freefire-presence-with-top-tips-and-tricks/"><u>[Updated] In 2024, Elevate Your FreeFire Presence with Top Tips and Tricks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-inside-the-labyroud-of-vrs-latest-creations/"><u>[Updated] In 2024, Inside the Labyroud of VR's Latest Creations</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-in-2024-solving-the-puzzle-of-nonexistent-facebook-video-suggests/"><u>[Updated] In 2024, Solving the Puzzle of Nonexistent Facebook Video Suggests</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-crafting-cinematic-content-with-video-enhance-v22/"><u>In 2024, Crafting Cinematic Content with Video Enhance V2.2</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/in-2024-steps-to-acquire-fcp-for-zero-dollars/"><u>In 2024, Steps to Acquire FCP for Zero Dollars</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-catch-the-regional-located-pokemon-for-vivo-y78t-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate Guide to Catch the Regional-Located Pokemon For Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://ai-live-streaming.techidaily.com/new-2024-approved-amazon-live-for-beginners-features-pro-tips-and-future-trends/"><u>New 2024 Approved Amazon Live for Beginners Features, Pro Tips & Future Trends</u></a></li>
+</ul></div>
 

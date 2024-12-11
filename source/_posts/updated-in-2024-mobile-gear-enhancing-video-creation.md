@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mobile Gear  Enhancing Video Creation\""
-date: 2024-08-22T16:50:48.520Z
-updated: 2024-08-23T16:50:48.520Z
+date: 2024-12-03T21:39:57.054Z
+updated: 2024-12-10T22:25:37.716Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ A smartphone with a great camera is all you need to record great videos, but you
 
 The best smartphone accessories are lightweight and require as little setup as possible. One of the best things about making videos on your phone is that it allows you to be spontaneous and record life as it happens. A great smartphone accessory will not make it any more complicated to record on the go.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Smartphone Accessories for Making Videos
 
 Here are four of the best accessories for shooting videos on your smartphone:
@@ -37,6 +41,10 @@ Here are four of the best accessories for shooting videos on your smartphone:
 #### 1\. Clip-On Lenses
 
 ![tips on lenses](https://images.wondershare.com/filmora/article-images/accessories-clip-on-lenses.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 When you use a DSLR you generally have a lot more control over your images than when you record using other kinds of cameras. Part of this is due to the variety of lenses that are available for DSLRs. Most cameras only have the one built-in lens, but DSLRs have detachable lenses you can change to create different effects. Using Clip-On Lenses you can adjust the built-in lens of your smartphone camera to create these same kinds of effects.
 
@@ -46,6 +54,10 @@ Clip-On Lenses are tiny, which makes them convenient for carrying around. Using 
 
 ![pistol grip](https://images.wondershare.com/filmora/article-images/accessories-pistol-grip.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 It will not matter how clear and sharp your videos are if they are shaky. To avoid the stereotypically shaky ‘cellphone vid’ look you will need to stabilize your phone while you record, and there are a lot of ways you can do that. Mounting your phone on a Pistol Grip is one of them.
 
 Smartphones mounted on Pistol Grips will record more stable footage while you walk around with them, and the many Pistol Grips will also attach to a tripod or monopod. If you already have a tripod for a different camera a pistol grip will allow you to use it for your smartphone as well without purchasing a second tripod mount. Pistol Grips for mobile phones cost around $15.
@@ -53,6 +65,10 @@ Smartphones mounted on Pistol Grips will record more stable footage while you wa
 #### 3\. Selfie Stick
 
 ![selfiestick](https://images.wondershare.com/filmora/article-images/accessories-selfiestick.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Selfie Sticks are great for more than just taking selfies; using a selfie stick also helps you record more stable videos. Besides holding a selfie stick the way you normally do, with your hand on the grip, you can use your selfie stick a lot like you would a monopod. Simply place the handle on the floor, extend your selfie stick to the height you want to record at, and hold it still while you film. Your footage will be from one stable height.
 
@@ -67,6 +83,10 @@ One of the biggest obstacles when shooting smartphone videos is capturing adequa
 LAV Mics, also called lavalier or lapel mics, are a popular choice because they are so portable. A LAV Mic will clip right on to your shirt for maximum flexibility while recording on the go. You can get a wired LAV Mic specifically for smartphones for $50.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -91,8 +111,20 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-debunking-photoshake-is-it-essential-or-excessive/"><u>[New] Debunking PhotoShake Is It Essential or Excessive?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-dji-drone-masterpiece-analysis-for-2024/"><u>[New] DJI Drone Masterpiece Analysis for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-engineering-engrossing-movie-excerpts/"><u>[New] Engineering Engrossing Movie Excerpts</u></a></li>
+<li><a href="https://youtube-help.techidaily.com/new-from-viewers-to-profits-an-authoritative-guide-on-youtube-revenue-and-popularity-analysis/"><u>[New] From Viewers to Profits An Authoritative Guide on YouTube Revenue and Popularity Analysis</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-focus-on-the-frame-master-logitech-cam-edits/"><u>[Updated] Focus on the Frame Master Logitech Cam Edits</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-best-matches-top-ten-gimbals-for-quality-shoots/"><u>[Updated] In 2024, Best Matches Top Ten Gimbals for Quality Shoots</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-no-hassle-no-money-10-official-passport-pictures-from-our-generator/"><u>[Updated] In 2024, No Hassle, No Money 10 Official Passport Pictures From Our Generator</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/updated-navigating-youtubes-privacy-controls-for-video-accessibility/"><u>[Updated] Navigating YouTube's Privacy Controls for Video Accessibility</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-superior-selections-high-capacity-cloud-options/"><u>2024 Approved Superior Selections High-Capacity Cloud Options</u></a></li>
+<li><a href="https://article-files.techidaily.com/dynamic-enhancements-for-your-tiktok-projects/"><u>Dynamic Enhancements for Your TikTok Projects</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-remove-screen-lock-pin-on-lava-yuva-3-pro-like-a-pro-5-easy-ways-by-drfone-android/"><u>How To Remove Screen Lock PIN On Lava Yuva 3 Pro Like A Pro 5 Easy Ways</u></a></li>
+<li><a href="https://win11.techidaily.com/master-the-digital-age-essential-keys-fan-deal-at-lowest-price-on-windows-11-612lifetime/"><u>Master the Digital Age - Essential Keys Fan Deal at Lowest Price on Windows 11, $6.12/Lifetime</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/top-apps-and-online-tools-to-track-lava-yuva-2-pro-phone-withwithout-imei-number-by-drfone-android/"><u>Top Apps and Online Tools To Track Lava Yuva 2 Pro Phone With/Without IMEI Number</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4699091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/bccefcc1b1eee9eca3ae4f5c1a281482/products/1_jutoh-logo-1200x1600.jpg" border="0">Jutoh Plus -  Jutoh is an ebook creator for Epub, Kindle and more. It's fast, runs on Windows, Mac, and Linux, comes with a cover design editor, and allows book variations to be created with alternate text, style sheets and cover designs. Jutoh Plus adds scripting so you can automate ebook import and creation operations. It also allows customisation of ebook HTML via templates and source code documents; and you can create Windows CHM and wxWidgets HTB help files. </a>
-<!-- affiliate ads end -->

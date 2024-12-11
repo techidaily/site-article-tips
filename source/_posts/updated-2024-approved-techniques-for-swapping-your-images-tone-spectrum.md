@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Techniques for Swapping Your Image's Tone Spectrum\""
-date: 2024-08-27T13:13:53.459Z
-updated: 2024-08-28T13:13:53.459Z
+date: 2024-12-07T19:03:40.136Z
+updated: 2024-12-11T02:49:27.566Z
 tags: 
   - screen-recording
   - ai video
@@ -54,6 +54,10 @@ Besides creating image negatives, the Preview app lets you convert image files a
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color-original.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Clicking on the **Adjust Color feature** will bring up the color adjustment panel that contains **Black Level and White Level** sliders. To invert the colors in the photo you have to drag the **Black Level slider to the right** and the **White Level Slider to the left.**
 
 ![ Invert image color](https://images.wondershare.com/filmora/article-images/mac-preview-invert-color.jpg)
@@ -67,6 +71,10 @@ You can experiment with the values you assign to each of these sliders in order 
 **Compatibility:** Online platform
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/pinetools-invert-image-colors.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 The platform’s homepage contains a number of categories of tools such as **Colors, Numbers, Text and Lists or Images**. Clicking on the **Images category** will grant you the access to all photo editing tools PineTools offers, so you just have to click on the **Invert Colors** options to start the process of inverting a photo online. Once the **Invert Colors window** loads, you can click on the **Choose File button** to select a photo you’d like to invert. When the upload is completed, simply click on the **Invert button** located near the bottom of the screen and the platform will automatically invert the colors in your photo. To save the watermark-free image with inverted colors you just have to click on **PNG, JPEG or WEBP file** formats that are displayed above the preview of the picture.
 
@@ -87,6 +95,10 @@ In addition to a rich selection of effects you can apply to images, tjshome also
 **Compatibility:** macOS, Windows
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/ps-convert-color.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After you open a photo in Adobe Photoshop, you can invert it in just a few clicks. **Expand the Image menu** and the go-to **Adjustments submenu** where you can find the **Invert option**. Alternatively, you can use the **CTRL+I** shortcut if you are a PC user or a **Command+I** if you are using a Mac computer. Moreover, Photoshop lets you **mask parts of a photo** which enables you to precisely define an area of an image you’d like to invert. Other photo editing tools like **Curves, Brightness/Contrast or Photo Filter** can make an image with inverted colors look more convincing. Keep in mind that working with multiple layers requires a lot of patience because failing to mask an object properly can produce some unwanted side issues.
 
@@ -114,6 +126,10 @@ Creating a negative of photos you take with your phone can be fun, so why not us
 
 ![ Covert color](https://images.wondershare.com/filmora/article-images/negative-photo-effects-hd.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Inverting the colors in a photo with Negative Photo Effect HD is easy since you just have to select a photo from the gallery or use the iPhone’s camera to snap a new one and apply the **negative photo effect**. You can highlight the area of the photo you’d like to invert with your finger or use some of the app’s photo editing tools to enhance the colors in the negative photo. You can save or share the photos you created, but if you use the free version of the app your photos will be watermarked unless you purchase the **Free Ads and Watermark package** for **$2.99.**
 
 **Conclusion**
@@ -121,6 +137,10 @@ Inverting the colors in a photo with Negative Photo Effect HD is easy since you 
 Inverting colors in a photo is not a complicated process, but finding creative ways to use the negative image effect is since images with inverted colors are best used within a pre-defined context. Do you often create images with inverted colors? Leave a comment below and let us know your favorite method of creating image negatives.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -145,8 +165,23 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://fox-helps.techidaily.com/new-2024-approved-deciphering-hand-tracking-methodologies/"><u>[New] 2024 Approved Deciphering Hand Tracking Methodologies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unparalleled-pc-sound-control/"><u>[New] 2024 Approved Unparalleled PC Sound Control</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-restore-pristine-photos-easily-discover-top-10-online-enhancers/"><u>[New] Restore Pristine Photos Easily Discover Top 10 Online Enhancers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-most-popular-stock-photo-meme-and-their-stories/"><u>[New] The Most Popular Stock Photo Meme and Their Stories</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-backgroundannihilator-professional-erase-software/"><u>[Updated] BackgroundAnnihilator Professional Erase Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mastering-mixer-streams-on-macos-a-step-by-step-guide-for-2024/"><u>[Updated] Mastering Mixer Streams on macOS A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/2024-approved-guesting-without-glitches-live-tiktok-conversations/"><u>2024 Approved Guesting Without Glitches Live TikTok Conversations</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/2024-approved-the-ultimate-guide-to-automated-mac-lecture-recording/"><u>2024 Approved The Ultimate Guide to Automated Mac Lecture Recording</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/boost-your-work-efficiency-with-the-flip-out-laptop-monitor-exclusive-93-discount-on-prime-day-insider-tips/"><u>Boost Your Work Efficiency with the Flip-Out Laptop Monitor: Exclusive $93 Discount on Prime Day - Insider Tips</u></a></li>
+<li><a href="https://win-studio.techidaily.com/fixing-critical-error-102-on-platform-xyz-step-by-step-guide/"><u>Fixing Critical Error #102 on Platform XYZ – Step-by-Step Guide</u></a></li>
+<li><a href="https://win11.techidaily.com/free-ways-to-expand-your-pcs-hard-drive-space-on-windows/"><u>Free Ways to Expand Your PC's Hard Drive Space on Windows</u></a></li>
+<li><a href="https://article-tips.techidaily.com/logging-live-audio-on-the-go-a-user-friendly-manual/"><u>Logging Live Audio On-the-Go A User-Friendly Manual</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/mastering-the-art-of-igtv-on-instagram-stories-for-2024/"><u>Mastering the Art of IGTV on Instagram Stories for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-tale-of-two-chips-examining-m1-pro-and-m1-max-variances-for-2024/"><u>The Tale of Two Chips Examining M1 Pro and M1 Max Variances for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-checklist-for-podcast-rss-feed-generation-for-2024/"><u>The Ultimate Checklist for Podcast RSS Feed Generation for 2024</u></a></li>
+<li><a href="https://ai-video.techidaily.com/updated-in-2024-the-ever-changing-era-of-ai-video-translation-a-reality-to-be-fulfilled/"><u>Updated In 2024, The Ever-Changing Era of AI Video Translation A Reality to Be Fulfilled</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://godlikehost.sjv.io/c/5597632/1920054/21774" target="_top" id="1920054"><img src="//a.impactradius-go.com/display-ad/21774-1920054" border="0" alt="" width="320" height="100"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1920054/21774" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Leveraging Patient Stories  A Guide to Powerful Videography\""
-date: 2024-08-27T13:13:42.190Z
-updated: 2024-08-28T13:13:42.190Z
+date: 2024-12-07T16:48:35.252Z
+updated: 2024-12-10T19:51:02.446Z
 tags: 
   - screen-recording
   - ai video
@@ -19,6 +19,10 @@ thumbnail: https://thmb.techidaily.com/c60589952f8c878c66c4d03c2dc7430570638a52b
 ## Leveraging Patient Stories: A Guide to Powerful Videography
 
 If you want to learn how to create video testimonials that convert, then this post is for you. It's time to stop wasting time and money on ineffective videos that don't get results. If you follow the tips below, you'll have a solid strategy for creating professional-looking testimonial videos that your customers will love and share.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Identify Your Perfect Customer
 
@@ -44,9 +48,6 @@ It may seem like a daunting task, but there are several ways you can go about de
 
 ![include strong opinion](https://images.wondershare.com/filmora/article-images/2022/07/include-strong-opinion.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 * Use the word “I”.
 * Use the word “we”.
 * Use the word “you”.
@@ -57,29 +58,28 @@ It may seem like a daunting task, but there are several ways you can go about de
 
 ![keep video short and sweet](https://images.wondershare.com/filmora/article-images/2022/07/keep-video-short-and-sweet.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 When creating your video testimonial, you want to keep it short and sweet. After all, that's the point of using video testimonials in the first place! Make sure you have a tight script with a few specific questions written down. You should also plan out how you're going to arrange these questions into a flow.
 
 When asking someone for their thoughts on a topic or issue, there's always going to be some variation in how people respond. Some will talk about personal experiences; others will talk about what they've learned from others' experiences; still, others might share some advice for future generations who might encounter similar problems. The key here is that your main objective is not necessarily the information itself (though this can help), but rather the emotion behind it—what effect does this experience have on your audience?
 
 Asking open-ended questions allows people greater freedom when responding—and while this may sound like an ideal situation when creating content, it often results in less-than-ideal responses when creating content at scale since you won't always get exactly what you want out of every shot.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Lighting, Sound, and Video Quality Matter
 
 ![lighting sound video quality](https://images.wondershare.com/filmora/article-images/2022/07/lighting-sound-video-quality.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 Lighting, sound, and video quality matter.
 
 This is a given. If you want your testimonial videos to be effective and believable, they need to be properly lit, recorded with good audio quality, and captured in high resolution. While these may seem like obvious must-haves for any video production project—and they are—it's important to remember that there are many factors at play when it comes to how your audience will perceive the final product.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Really Listen to Your Prospects
 
 ![listen to your prospects](https://images.wondershare.com/filmora/article-images/2022/07/listen-to-your-prospects.jpg)
@@ -88,25 +88,22 @@ When you're listening to your customers, don't just take notes on what they say.
 
 If someone says "I love this product," but then shows their eyes darting around nervously, that could mean that they're worried about saying something nice about the product because it's not really meeting their needs. If someone says "It's okay," but he or she is nodding along with enthusiasm when talking about it, that probably means he or she really does like it!
 
-<!-- affiliate ads begin -->
-<a href="https://store.absolute.com/order/checkout.php?PRODS=4601998&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/ef70e26a0b5da778eda3f48014d087cd/728x90_larger-shield.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Beware of Skeptics and Negative Nellies
 
 ![beware skeptics](https://images.wondershare.com/filmora/article-images/2022/07/beware-skeptics.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You might have skeptics and negative nellies in your audience. They're the ones who are less likely to buy, but more likely to be negative about everything.
 
 These people will try to poke holes in what you've done and make it sound like your product or service isn't worth buying no matter what you do for them. Luckily for us, there are a few things we can do about this!
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698827&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/dex3REpage-newmainscreenshot.png" border="0">DEX 3 RE is Easy-To-Use DJ Mixing Software for MAC and Windows Designed for Today's Versatile DJ. 
-
- Mix from your own library of music, iTunes or use the Pulselocker subsciprtion service for in-app access to over 44 million songs. Use with over 85 supported DJ controllers or mix with a keyboard and mouse.  
-
- DEX 3 RE is everything you need without the clutter - the perfect 2-deck mixing software solution for mobile DJs or hard-core hobbiests.  
- PCDJ DEX 3 RE (DJ Software for Win & MAC - Product Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 If you're looking to boost your sales with testimonial videos, then you need to be sure that they reflect the quality of your product or service. Customers will be more likely to trust a testimonial if it's given by someone who seems authentic and honest in their praise. Try these tactics out for yourself and see what results in you get!
@@ -114,7 +111,6 @@ If you're looking to boost your sales with testimonial videos, then you need to 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
-
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
 
@@ -140,4 +136,22 @@ If you're looking to boost your sales with testimonial videos, then you need to 
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-macos-sierra-switching-back-to-os-x-el-capitan/"><u>[New] 2024 Approved MacOS Sierra Switching Back To OS X El Capitan</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-comparing-cloud-providers-who-offers-what-price-for-2024/"><u>[New] Comparing Cloud Providers Who Offers What Price for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-asmr-and-you-understanding-its-healing-power/"><u>[New] In 2024, ASMR and You Understanding Its Healing Power</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-transforming-imagery-the-power-of-ps-curves/"><u>[New] In 2024, Transforming Imagery The Power of PS Curves</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-pinnacle-video-devices-for-windows-11-enthusiasts-for-2024/"><u>[New] Pinnacle Video Devices for Windows 11 Enthusiasts for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/illy-sphere-the-most-amusing-youtuber-shows-today-for-2024/"><u>[New] Silly Sphere The Most Amusing YouTuber Shows Today for 2024</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/updated-a-critical-look-at-the-leading-economically-friendly-lut-sources/"><u>[Updated] A Critical Look at the Leading, Economically Friendly LUT Sources</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-how-to-join-an-existing-zoom-call-effortlessly-android-style/"><u>[Updated] In 2024, How to Join an Existing Zoom Call Effortlessly (Android Style)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-in-2024-ranking-the-ultimate-10-free-online-subtitle-makers-srt/"><u>[Updated] In 2024, Ranking the Ultimate 10 Free Online Subtitle Makers (Srt)</u></a></li>
+<li><a href="https://techidaily.com/how-to-transfer-data-from-apple-iphone-15-pro-max-to-other-iphone-14-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From Apple iPhone 15 Pro Max To Other iPhone 14 devices? | Dr.fone</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/in-2024-commanding-your-computer-with-ease-gratis/"><u>In 2024, Commanding Your Computer With Ease, Gratis</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-how-meizu-21-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Meizu 21 Mirror Screen to PC? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-magix-image-handling-insights-reviewed/"><u>In 2024, MAGIX Image Handling Insights Reviewed</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/securing-sensitive-information-with-curated-ai-solutions/"><u>Securing Sensitive Information with Curated AI Solutions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unlocking-the-power-of-srt-editing-for-mac-users-for-2024/"><u>Unlocking the Power of SRT Editing for Mac Users for 2024</u></a></li>
+</ul></div>
 

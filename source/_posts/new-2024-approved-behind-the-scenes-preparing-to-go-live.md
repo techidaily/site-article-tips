@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Behind the Scenes  Preparing to Go Live\""
-date: 2024-11-27T22:52:53.006Z
-updated: 2024-12-04T19:17:09.608Z
+date: 2024-12-04T00:43:14.641Z
+updated: 2024-12-10T17:52:01.410Z
 tags: 
   - screen-recording
   - ai video
@@ -32,7 +32,7 @@ Now you know the basics, let's get started!
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1\. What camera do you need?
@@ -46,7 +46,7 @@ Panasonic LUMIX GH4
 A camcorder or webcam will work perfectly for live streaming as long as the camera able to shoot at a minimum of 720p HD, 24fps. It's totally fine to start off with the webcam on your laptop, or a better webcam. I have used the Logitech C922 for streaming and it works like a charm. The Mevo Plus helps you on great quality when you use a mobile device. After that you run your program into a software such as OBS where you can apply filters to improve your image, which you will be using to also live stream onto the actual platform such as YouTube or Twitch. A plus is that you don't need a memory card for streaming as you're not recording on the camera itself.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. What microphone do you need?
@@ -76,7 +76,7 @@ Streamlabs was originally a live streaming tool that streamers use with other li
 ![streamlabs](https://images.wondershare.com/filmora/article-images/streamlabs-desktop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Nvidia ShadowPlay**
@@ -86,7 +86,7 @@ Nvidia ShadowPlay is designed for gamers and comes combined with Nvidia GeForce 
 ![nivdia shadowplay](https://images.wondershare.com/filmora/article-images/shadowplay-record.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ShadowPlay's DVR-style Instant Replay mode can be used by pressing a hotkey to save the last 30 seconds of your content to your hard drive or share to Twitch or YouTube. You can manually record videos for as long as you like because ShadowPlay is hardware accelerated. You can make up to a 15-second GIFs from your ShadowPlay video to ceate highlights, edit them afterwards with color grading effects, adding music, text, and upload it to Facebook, YouTube or Vimeo.
@@ -126,7 +126,7 @@ You likely have heard about this program. Restream is a complete and professiona
 The most significant of all features is the Ecamm Live integration. This allows you to read the chat of different platforms from the same place. The video quality that Restream employs is the best with barely any latency and delay!
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/f3PFn06LijE?si=zHrmlTOzrKxXe-k4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HaM818fFKXQ?si=ZZLA4lFSHSgCpSE0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Wrapping it up
@@ -163,21 +163,17 @@ Live streaming is quite a wide topic, and each streaming experience is different
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/024-approved-optimizing-content-editing-youtube-descriptions-and-titles-for-growth/"><u>[New] 2024 Approved Optimizing Content Editing YouTube Descriptions & Titles for Growth</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-timelapse-with-iphone-a-step-by-step-guide/"><u>[New] 2024 Approved Timelapse with iPhone A Step-by-Step Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/new-crafting-effective-youtube-thumbnails-and-banners-for-2024/"><u>[New] Crafting Effective YouTube Thumbnails & Banners for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-ultimate-guide-to-4k-blade-camera-imaging/"><u>[New] In 2024, The Ultimate Guide to 4K Blade Camera Imaging</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-innovative-zooid-conceptual-models/"><u>[New] Innovative Zooid Conceptual Models</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-excellent-collection-advanced-webcam-supports/"><u>[Updated] In 2024, Excellent Collection Advanced Webcam Supports</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-newcomers-elite-entryway-list-for-zooids/"><u>[Updated] In 2024, Newcomers’ Elite Entryway List for Zooids</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-mastering-windows-11-with-top-tips-for-2024/"><u>[Updated] Mastering Windows 11 with Top Tips for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-preserving-sound-integrity-with-ffmpeg-extract/"><u>[Updated] Preserving Sound Integrity with FFmpeg Extract</u></a></li>
-<li><a href="https://article-tips.techidaily.com/expert-guidelines-to-improve-zoom-on-chromeos-for-2024/"><u>Expert Guidelines to Improve Zoom on ChromeOS for 2024</u></a></li>
-<li><a href="https://ios-unlock.techidaily.com/forgot-iphone-12-mini-backup-password-heres-what-to-do-by-drfone-ios/"><u>Forgot iPhone 12 mini Backup Password? Heres What to Do</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/gpu-glimpse-new-radeon-unleashed-for-2024/"><u>GPU Glimpse New Radeon Unleashed for 2024</u></a></li>
-<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-successfully-bypass-icloud-activation-lock-on-apple-iphone-14-pro-by-drfone-ios/"><u>In 2024, How to Successfully Bypass iCloud Activation Lock on Apple iPhone 14 Pro</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/pc-version-of-madden-nfl-20-how-to-fix-common-game-crashing-issues/"><u>PC Version of Madden NFL 20: How To Fix Common Game-Crashing Issues</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/transformer-gratuitement-une-image-tga-en-format-jpeg-avec-movavi/"><u>Transformer Gratuitement Une Image TGA en Format JPEG Avec Movavi</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-guide-making-wd-my-passport-ultra-visible-to-your-windows-pc/"><u>Troubleshooting Guide: Making WD My Passport Ultra Visible to Your Windows PC</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/new-crafting-an-irresistible-brand-image-on-your-fb-page/"><u>[New] Crafting an Irresistible Brand Image on Your FB Page</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-final-say-on-ricohs-theta-s-vision-system/"><u>[New] The Final Say on Ricoh's Theta S Vision System</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ranking-the-ultimate-10-free-online-subtitle-makers-srt/"><u>[Updated] 2024 Approved Ranking the Ultimate 10 Free Online Subtitle Makers (Srt)</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/academic-breakthroughs-through-ai-techniques/"><u>Academic Breakthroughs Through AI Techniques</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/configuring-your-computers-energy-management-a-guide-by-yl-computing-and-yl-software/"><u>Configuring Your Computer's Energy Management: A Guide by YL Computing & YL Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/enhance-your-laptops-look-with-these-8-choices-for-2024/"><u>Enhance Your Laptop's Look with These 8 Choices for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/essential-list-top-10-free-copyright-safe-chants-for-calm/"><u>Essential List Top 10 Free, Copyright-Safe Chants for Calm</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/how-to-effectively-download-huge-quantities-of-tiktok-content/"><u>How to Effectively Download Huge Quantities of TikTok Content</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Realme Narzo N55? | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/restoring-your-teamwork-in-valorant-repairing-the-voice-chat-functionality/"><u>Restoring Your Teamwork in Valorant: Repairing the Voice Chat Functionality</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/solve-your-windows-device-and-mobile-hotspot-connection-issues-with-these-expert-troubleshooting-steps/"><u>Solve Your Windows Device and Mobile Hotspot Connection Issues with These Expert Troubleshooting Steps!</u></a></li>
+<li><a href="https://fox-where.techidaily.com/ultimate-step-by-step-strategy-for-eradicating-chinese-malware-from-your-system/"><u>Ultimate Step-by-Step Strategy for Eradicating Chinese Malware From Your System</u></a></li>
 </ul></div>
 

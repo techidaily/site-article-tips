@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Viral Visuals  Stories of Success for 2024\""
-date: 2024-12-01T21:08:44.696Z
-updated: 2024-12-05T00:14:13.814Z
+date: 2024-12-09T17:31:31.180Z
+updated: 2024-12-10T21:20:12.019Z
 tags: 
   - screen-recording
   - ai video
@@ -27,13 +27,13 @@ So, what are the most popular stock photo memes, and how did they reach this sta
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part1: Hide the Pain Harold
 
 ![hide the pain harold](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Since 2011, Hide the Pain Harold continues to rank as one of the world's most popular stock photo memes. Here are some numbers to show you how popular the meme is.
 
@@ -52,27 +52,15 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
 
 ![distracted boyfriend](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The original photo is the work of Antonio Guillem, who uploaded it on iStock in November 2015\. Initially, the photo was labeled as a lisloyal man with his girlfriend looking at another girl and required purchasing the proper license to use it.
 
 ![original photo](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 According to Meme Documentation, the first version of the Distracted boyfriend theme dates back to January 2017\. Prog Snob, a Turkish progressive rock group on Facebook, posted the meme on their page to reference Phil Collin's distraction from progressive rock by pop music. However, it was the August 2017 Twitter version referencing the youth's feelings towards capitalism and socialism that went viral.
 
@@ -88,10 +76,14 @@ The latest version of Distracted boyfriend is a compilation of photos featuring 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8U3ooyFiAB4?si=yXPQrDhMBEJwN2EZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part3: I Bet He's Thinking About Other Women
 
@@ -119,9 +111,17 @@ According to sources, the stock photo meme was first featured on Twitter in Dece
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fJlICvacgJY?si=jNeijBVj7ia4ammA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
 
@@ -138,14 +138,10 @@ In addition, the post received over 91,700 points, with 95% of upvotes, within a
 
 The photo is available on most stock photo websites, such as Adobe and Tumblr. Furthermore, you will find other hilarious versions of Bonjour Bear under the subreddits r/dankmemes and r/memes on Reddit.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qObsqoJB9LI?si=ppqxfXzP0UL4J6Tp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part5: FAQs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### 1\. Can you use stock photos for memes?
@@ -157,6 +153,10 @@ This is because not all stock photo providers offer their images with a creative
 ### 2\. Does copyright law protect memes?
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_1g4U13PBk0?si=xJLJtlc4hKBTBH8M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Can you use watermarked stock photos to create memes?
 
@@ -194,20 +194,17 @@ Therefore, always perform stock image reverse searches to verify the image permi
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-tablets-exclusively-designed-for-amateur-and-professional-photographers/"><u>[New] 2024 Approved Top Tablets Exclusively Designed for Amateur and Professional Photographers</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-the-essentials-of-screen-capture-with-fraps/"><u>[New] The Essentials of Screen Capture with Fraps</u></a></li>
-<li><a href="https://tiktok-videos.techidaily.com/new-the-ultimate-guide-to-your-unique-tiktok-hash-code-for-2024/"><u>[New] The Ultimate Guide to Your Unique TikTok Hash Code for 2024</u></a></li>
-<li><a href="https://extra-hints.techidaily.com/updated-comparative-analysis-of-winning-drawing-software/"><u>[Updated] Comparative Analysis of Winning Drawing Software</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-expert-tips-for-efficient-youtube-to-mpeg-transcoding-for-2024/"><u>[Updated] Expert Tips for Efficient YouTube-to-MPEG Transcoding for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-exploring-m1s-potential-in-streamlining-editing-tasks-for-2024/"><u>[Updated] Exploring M1’s Potential in Streamlining Editing Tasks for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-from-bright-to-deep-premiere-pro-magic-for-2024/"><u>[Updated] From Bright to Deep Premiere Pro Magic for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-gamers-crossroads-oculus-or-playstation-vr-for-2024/"><u>[Updated] The Ultimate Gamer’s Crossroads Oculus or PlayStation VR for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-cutting-edge-commerce-vrs-role-in-modernizing-industries/"><u>2024 Approved Cutting-Edge Commerce VR's Role in Modernizing Industries</u></a></li>
-<li><a href="https://fox-http.techidaily.com/2024-approved-reflex-product-assembly/"><u>2024 Approved Reflex Product Assembly</u></a></li>
-<li><a href="https://article-tips.techidaily.com/audiophiles-choice-best-microphones-for-podcasting/"><u>Audiophile's Choice Best Microphones for Podcasting</u></a></li>
-<li><a href="https://extra-information.techidaily.com/cross-media-content-crafting-zone/"><u>Cross-Media Content Crafting Zone</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/in-2024-how-can-i-get-more-stardust-in-pokemon-go-on-tecno-camon-20-pro-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How can I get more stardust in pokemon go On Tecno Camon 20 Pro 5G? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-top-6-appsservices-to-trace-any-realme-narzo-60x-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>In 2024, Top 6 Apps/Services to Trace Any Realme Narzo 60x 5G Location By Mobile Number | Dr.fone</u></a></li>
-<li><a href="https://graphic-issues.techidaily.com/revolutionize-your-visuals-latest-hd-6950-driver-update-on-win10/"><u>Revolutionize Your Visuals: Latest HD 6950 Driver Update on Win10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-adding-dynamic-blurs-to-ai-designed-graphics/"><u>[New] Adding Dynamic Blurs to AI-Designed Graphics</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-how-to-capture-and-share-your-favorite-pics-on-social-platforms-with-obs/"><u>[New] How to Capture and Share Your Favorite Pics on Social Platforms with OBS</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-in-2024-quick-advice-preserving-gotomeetings-with-minimal-fuss/"><u>[New] In 2024, Quick Advice Preserving GoToMeetings with Minimal Fuss</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-snapedit-story-complete-video-editor-features/"><u>[New] SnapEdit Story – Complete Video Editor Features</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-capturing-attention-the-power-of-these-top-10-tags/"><u>[Updated] Capturing Attention The Power of These Top 10 Tags</u></a></li>
+<li><a href="https://fox-info.techidaily.com/updated-effective-methods-for-downloading-audio-tracks-from-pinterest-videos/"><u>[Updated] Effective Methods for Downloading Audio Tracks From Pinterest Videos</u></a></li>
+<li><a href="https://screen-mirroring-recording.techidaily.com/updated-expert-techniques-for-ps4-gameplay-documentation/"><u>[Updated] Expert Techniques for PS4 Gameplay Documentation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-remarkable-appraisal-and-other-recommendations-for-2024/"><u>[Updated] Remarkable Appraisal & Other Recommendations for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-simplifying-massive-media-swap-iphone-to-mac-file-relocation-for-2024/"><u>[Updated] Simplifying Massive Media Swap IPhone-to-Mac File Relocation for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-vhs-chronicles-revisiting-the-comical-tale/"><u>[Updated] VHS Chronicles Revisiting 'The Comical Tale'</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/quality-improvement-for-skype-video-calls/"><u>Quality Improvement for Skype Video Calls</u></a></li>
+<li><a href="https://fake-location.techidaily.com/the-best-8-vpn-hardware-devices-reviewed-on-poco-c65-drfone-by-drfone-virtual-android/"><u>The Best 8 VPN Hardware Devices Reviewed On Poco C65 | Dr.fone</u></a></li>
 </ul></div>
 

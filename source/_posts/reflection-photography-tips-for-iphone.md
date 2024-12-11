@@ -1,7 +1,7 @@
 ---
 title: "Reflection Photography Tips for iPhone"
-date: 2024-08-27T13:17:17.287Z
-updated: 2024-08-28T13:17:17.287Z
+date: 2024-12-04T02:30:33.485Z
+updated: 2024-12-10T17:11:03.088Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 
  So let's get snapping!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips For Perfect Reflective Photography With Your iPhone
 
 #### 1\.  The Surface
@@ -43,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
  A Well Polished Table
 
 ![reflection-surface](https://images.wondershare.com/filmora/article-images/reflection-surface.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A Crystal/Glass Ball
 
@@ -80,6 +88,10 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 
 ![awful-composition](https://images.wondershare.com/filmora/article-images/awful-composition.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\.  Reality and Reflection
 
  Don't just focus on the reflection, these tend to distract from how good the reflection is. Of course if the reflective surface reflects too well and you just focus on that. The image might come out as looking the same as if you had just pointed and shot the subject.
@@ -97,6 +109,10 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
  It is also just good photography practice to have your subjects bend and distort the light. The contrasts make for an aesthetically beautiful image, and makes post production optimization even easier.
 
 ![make-use-of-texture](https://images.wondershare.com/filmora/article-images/make-use-of-texture.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Post Production Reflective Effects
 
@@ -135,6 +151,10 @@ thumbnail: https://thmb.techidaily.com/72ad6224a96d1332d870ccac31eeed89a25da9895
 
 ![photo-mirror-effects-reflection-editor](https://images.wondershare.com/filmora/article-images/photo-mirror-effects-reflection-editor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lCpzYpVPIZA?si=hNte-mPRIzjvqpRy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Another great choice for getting started with reflective photography. It has some mid range editing features, but this is made up in it's easy of use. Perhaps one of the best free reflective photography apps and you can even share the images directly to your social media feeds.
 
  The app also has a large library of free and premium templates for you to use...
@@ -164,8 +184,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-creating-impressive-google-collage-with-minimal-haste/"><u>[New] In 2024, Creating Impressive Google Collage with Minimal Haste</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-your-ringtone-solution-top-4-sites-revealed-here/"><u>[New] In 2024, Your Ringtone Solution Top 4 Sites Revealed Here</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-prime-retro-elements-reviving-classic-vhs-tricks-for-2024/"><u>[New] Prime Retro Elements Reviving Classic VHS Tricks for 2024</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-2024-approved-a-celebs-brief-appearance-scrutiny/"><u>[Updated] 2024 Approved A Celeb’s Brief Appearance Scrutiny</u></a></li>
+<li><a href="https://extra-information.techidaily.com/updated-crafting-gentle-volume-declines-in-premiere-pro-videos/"><u>[Updated] Crafting Gentle Volume Declines in Premiere Pro Videos</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-the-perfect-method-for-saving-camera-images-on-snapchat/"><u>2024 Approved The Perfect Method for Saving Camera Images on Snapchat</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/experience-powerful-pc-gaming-at-a-bargain-msi-bravo-with-nvidia-rtx-amoled-for-less-than-1k/"><u>Experience Powerful PC Gaming at a Bargain – MSI Bravo with NVIDIA RTX Amoled for Less than $1K</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/hololens-analysis-a-3d-interface-revolution-by-microsoft-for-2024/"><u>HoloLens Analysis A 3D Interface Revolution by Microsoft for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/overcoming-absence-of-color-in-game-feed/"><u>Overcoming Absence of Color in Game Feed</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/proven-youtube-seo-tricks-boosting-video-reach-and-visibility-for-2024/"><u>Proven YouTube SEO Tricks Boosting Video Reach and Visibility for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-art-of-textual-dimension-mastering-adobe-illustrator-for-2024/"><u>The Art of Textual Dimension Mastering Adobe Illustrator for 2024</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->

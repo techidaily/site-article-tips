@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Love and Light  Nine Essential Filmora Elements\""
-date: 2024-11-29T22:52:02.069Z
-updated: 2024-12-04T20:16:01.851Z
+date: 2024-12-08T23:54:03.194Z
+updated: 2024-12-11T03:59:56.248Z
 tags: 
   - screen-recording
   - ai video
@@ -25,10 +25,6 @@ thumbnail: https://thmb.techidaily.com/799b62d064a45ec31383dad7a037b165e61e53db2
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 1\. Drag and Drop Feature
 
 The first feature that we're going to look at is the drag and drop feature. This feature makes it easy for you to add video, audio, and images to your project. You can simply drag and drop them into the media library and they will be added automatically.
@@ -40,10 +36,6 @@ Video Reference: 01 – Drag and Drop Features
 The next feature that we're going to look at is the trim and split editing tools. This feature allows you to easily trim and split your videos. You can simply drag the slider to the beginning or end of the clip that you want to trim, and then hit the scissors icon to cut it. You can also split your clips by hitting the split button.
 
 Video Reference: 02 – Trim and Split Tools
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Free Stock Media
 
@@ -57,6 +49,10 @@ If you're looking for music tracks or sound effects to use in your video, Wonder
 
 Video Reference: 04 – Music Tracks and Sound Effects
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 5\. Build-in Preset Templates
 
 If you're not a professional video editor, then you'll love this next feature. Wondershare Filmora Video Editor comes with built-in preset templates that you can use to create amazing videos. All you have to do is select a template, add your media, and export your video.
@@ -64,7 +60,7 @@ If you're not a professional video editor, then you'll love this next feature. W
 Video Reference: 05 – Build-in Preset Templates
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Titles and Text Effects
@@ -74,7 +70,7 @@ Wondershare Filmora Video Editor also comes with built-in titles and text effect
 Video Reference: 06 – Titles and Text Effects
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 7\. Easy-to-Use Transition Effects
@@ -89,6 +85,10 @@ Wondershare Filmora Video Editor comes with over 3000 amazing elements that you 
 
 Video Reference: 08 – Over 3000 Amazing Elements
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 9\. Wide Selection of Aspect Ratio
 
 The Wondershare Filmora Video Editor also allows you to choose from a wide selection of aspect ratios. This gives you more control over how your video will look. You can choose from standard aspect ratios like 4:3 and 16:9, or you can choose from more creative aspect ratios like 21:9 and 4.5.
@@ -102,7 +102,7 @@ When you're done editing your video, you can easily export it to your computer. 
 Video Reference: 10 – Wide Selection of Aspect Ratio
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -134,18 +134,14 @@ Video Reference: 01 – Drag and Drop Features
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-a-guide-to-the-avant-garde-of-the-internets-av-masters/"><u>[New] 2024 Approved A Guide to the Avant-Garde of the Internet's AV Masters</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/024-approved-unveiling-purchasing-illegitimate-views-online/"><u>[New] 2024 Approved Unveiling Purchasing Illegitimate Views Online</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-the-seamless-journey-of-filming-and-editing-haul-videos/"><u>[New] The Seamless Journey of Filming and Editing Haul Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-unveiling-hdrs-impact-on-improved-video-workflow/"><u>[Updated] Unveiling HDR's Impact on Improved Video Workflow</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/2024-approved-old-masters-legacy-images-without-limits/"><u>2024 Approved Old Masters' Legacy Images Without Limits</u></a></li>
-<li><a href="https://media-tips.techidaily.com/effortless-mp4-to-ogg-file-transformation-tips-for-pcs-macs-and-cloud-services-top-7-strategies/"><u>Effortless MP4-to-OGG File Transformation Tips for PCs, Macs & Cloud Services - Top 7 Strategies</u></a></li>
-<li><a href="https://iphone-location.techidaily.com/find-my-app-troubleshooting-no-location-found-vs-location-not-available-and-how-to-fix-them-on-apple-iphone-x-drfone-by-drfone-virtual-ios/"><u>Find My App Troubleshooting No Location Found vs. Location Not Available & How to Fix Them On Apple iPhone X | Dr.fone</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/garmins-ultimate-sports-timepiece-enduro-is-set-to-outshine-apple-in-the-ultra-endurance-race-zdnet/"><u>Garmin's Ultimate Sports Timepiece: Enduro 지니어 Is Set to Outshine Apple in the Ultra-Endurance Race | ZDNET</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-create-dramatic-effects-top-strategies-for-epic-gopro-videos/"><u>In 2024, Create Dramatic Effects Top Strategies for Epic GoPro Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-iphones-quickest-way-to-record-time-lapse-photos/"><u>In 2024, IPhone's Quickest Way to Record Time-Lapse Photos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/step-by-step-srt-addition-to-mp4s-for-next-level-audio/"><u>Step-by-Step SRT Addition to MP4s for Next-Level Audio</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/universal-unlock-pattern-for-tecno-spark-20-proplus-by-drfone-android/"><u>Universal Unlock Pattern for Tecno Spark 20 Pro+</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unravel-costs-liberating-your-vob-experience-pcmac/"><u>Unravel Costs Liberating Your VOB Experience (PC/Mac)</u></a></li>
+<li><a href="https://extra-skills.techidaily.com/new-prime-image-hoarders-destination-list/"><u>[New] Prime Image Hoarders' Destination List</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-skys-the-limit-with-dji-spark-an-in-depth-miniature-drone-study-for-2024/"><u>[New] Sky's the Limit with DJI Spark An In-Depth Miniature Drone Study for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ultimate-guide-for-elevating-videos-from-basic-sdr-to-breathtaking-hdr-splendor/"><u>[Updated] 2024 Approved Ultimate Guide for Elevating Videos From Basic SDR to Breathtaking HDR Splendor</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-premium-cameras-for-claymation-artists-for-2024/"><u>[Updated] Premium Cameras for Claymation Artists for 2024</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/error-free-watching-guaranteed-deciphering-and-fixing-video-file-playback-failure-code-aturity-224003/"><u>Error-Free Watching Guaranteed: Deciphering and Fixing 'Video File Playback Failure' (Code Aturity 224003)</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/in-2024-everything-you-need-to-know-about-lock-screen-settings-on-your-motorola-moto-g04-by-drfone-android/"><u>In 2024, Everything You Need to Know about Lock Screen Settings on your Motorola Moto G04</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-how-to-get-and-use-pokemon-go-promo-codes-on-realme-11-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How to Get and Use Pokemon Go Promo Codes On Realme 11 Pro | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-parrots-next-gen-ar-drone-evaluation/"><u>In 2024, Parrot's Next-Gen AR Drone Evaluation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/spectaculum-of-sight-top-picks-for-professional-8k/"><u>Spectaculum of Sight Top Picks for Professional 8K</u></a></li>
 </ul></div>
 

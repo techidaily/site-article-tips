@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Proven Methods to Prevent Photos App Freezes in Windows 10\""
-date: 2024-12-07T21:31:32.957Z
-updated: 2024-12-11T03:26:36.071Z
+date: 2024-12-11T00:37:51.611Z
+updated: 2024-12-17T05:47:00.078Z
 tags: 
   - screen-recording
   - ai video
@@ -46,14 +46,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to fix Windows 10 Photos app crashes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
 
@@ -65,10 +61,6 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hXIq2G0nShk?si=5Z4Fwv7ZB6oKWsdd" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -86,6 +78,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -95,6 +91,10 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -108,7 +108,7 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -128,11 +128,11 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,20 +159,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-essential-livestream-providers-the-ultimate-list/"><u>[New] 2024 Approved Essential Livestream Providers The Ultimate List</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-beyond-the-basics-advanced-video-splitting-for-2024/"><u>[New] Beyond the Basics Advanced Video Splitting for 2024</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-spotlight-on-top-10-phone-videographers/"><u>[New] Spotlight on Top 10 Phone Videographers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-windowed-world-of-video-editing-a-selective-recommendation-guide-for-2024/"><u>[New] Windowed World of Video Editing A Selective Recommendation Guide for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-essential-tips-for-navigating-zoom-meetings-on-win10/"><u>[Updated] In 2024, Essential Tips for Navigating Zoom Meetings on WIN10</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-flawless-cross-sound-mixing-in-audacity-pro/"><u>[Updated] In 2024, Flawless Cross-Sound Mixing in Audacity Pro</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-metaverse-quest-10-innovative-sci-fi-films-worldwide-travels/"><u>[Updated] In 2024, Metaverse Quest 10 Innovative Sci-Fi Films Worldwide Travels</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-is-sns-hdr-pro-worth-your-investment-a-critical-look-for-2024/"><u>[Updated] Is SNS HDR Pro Worth Your Investment A Critical Look for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/5-ways-to-track-tecno-pova-6-pro-5g-without-app-drfone-by-drfone-virtual-android/"><u>5 Ways to Track Tecno Pova 6 Pro 5G without App | Dr.fone</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/all-about-ipads-and-texting-a-comprehensive-guide-to-sending-messages-effortlessly/"><u>All About iPads & Texting: A Comprehensive Guide to Sending Messages Effortlessly</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/creative-journey-combining-mindmaps-and-chatai/"><u>Creative Journey: Combining Mindmaps & ChatAI</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-recover-old-call-logs-from-your-itel-p55-5g-by-fonelab-android-recover-call-logs/"><u>How to recover old call logs from your Itel P55 5G?</u></a></li>
-<li><a href="https://techidaily.com/how-to-reset-honor-magic5-ultimate-without-the-home-button-drfone-by-drfone-reset-android-reset-android/"><u>How to Reset Honor Magic5 Ultimate Without the Home Button | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-filmoras-rival-a-comprehensive-list-of-top-quality-template-collections/"><u>In 2024, Filmora's Rival A Comprehensive List of Top-Quality Template Collections</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/step-by-step-process-for-successful-reboot-of-all-ipad-versions/"><u>Step-by-Step Process for Successful Reboot of All iPad Versions</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/024-approved-6-free-software-to-convert-youtube-to-mp3-for-iphone/"><u>[New] 2024 Approved 6 Free Software to Convert YouTube to MP3 for iPhone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-audience-accumulation-expedition-tutorials-1mplus-milestone/"><u>2024 Approved Audience Accumulation Expedition Tutorial's 1M+ Milestone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-complete-guide-to-using-google-docs-for-speech-recognition/"><u>2024 Approved Complete Guide to Using Google Docs for Speech Recognition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-interconnecting-your-music-collection-across-services/"><u>2024 Approved Interconnecting Your Music Collection Across Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-visionary-recording-devices-top-18-camcorders-best/"><u>2024 Approved Visionary Recording Devices - Top 18 Camcorders' Best</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/essential-steps-for-seamless-youtube-video-loops-for-2024/"><u>Essential Steps for Seamless YouTube Video Loops for 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/gentle-silence-how-to-fade-out-music-in-adobe-editing-for-2024/"><u>Gentle Silence How to Fade Out Music In Adobe Editing for 2024</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/izing-your-video-potential-through-smart-co-stars-selection/"><u>Maximizing Your Video Potential Through Smart Co-Stars Selection</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/navigating-iphone-xs-biometrics-addressing-face-id-glitches/"><u>Navigating iPhone X's Biometrics Addressing Face ID Glitches</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/urban-design-mastery-unveiling-the-addiction-of-cities-skylines/"><u>Urban Design Mastery: Unveiling the Addiction of Cities: Skylines</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/we-tried-mistral-ais-le-chat-ai-chatbot-and-heres-how-it-compares-to-chatgpt/"><u>We Tried Mistral AI's Le Chat AI Chatbot, and Here's How It Compares to ChatGPT</u></a></li>
 </ul></div>
 

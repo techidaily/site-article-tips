@@ -1,7 +1,7 @@
 ---
 title: "[Updated] A Beginner's Blueprint for iPhone Reflection Photography"
-date: 2024-08-22T16:49:50.019Z
-updated: 2024-08-23T16:49:50.019Z
+date: 2024-12-11T23:39:03.506Z
+updated: 2024-12-17T05:50:10.063Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 
  So let's get snapping!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Tips For Perfect Reflective Photography With Your iPhone
 
 #### 1\.  The Surface
@@ -43,6 +47,10 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
  A Well Polished Table
 
 ![reflection-surface](https://images.wondershare.com/filmora/article-images/reflection-surface.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  A Crystal/Glass Ball
 
@@ -63,6 +71,10 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
  iPhone already has a feature for you to bring up lines before you take the photo with the rule of thirds:
 
 ![reflection-composition-tips](https://images.wondershare.com/filmora/article-images/reflection-composition-tips.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  To activate the lines simply go to **Settings > Camera and Photographs > Grid**
 
@@ -98,6 +110,10 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 
 ![make-use-of-texture](https://images.wondershare.com/filmora/article-images/make-use-of-texture.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Post Production Reflective Effects
 
  It's possible to create great reflective photographs by using reflective effects after you have taken it. You can deceptively take one of your great photos and use the reflective effect to make it appear on a reflective looking surface. Here's some examples of photos that were created using this effect through software:
@@ -122,6 +138,10 @@ thumbnail: https://thmb.techidaily.com/265c34a9ea730206243923e3674c50a6adee16640
 #### 2\. [Reflection](https://itunes.apple.com/us/app/reflection-create-water-reflection-photo-arts/id672111257?mt=8)
 
 ![reflection-create-water-reflection-photo-arts](https://images.wondershare.com/filmora/article-images/reflection-create-water-reflection-photo-arts.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Super user friendly app lets you create HD photos and it's intuitive feature means you can create reflective photos in a few taps. This is one of the best apps in terms of the quality of images/edits. It has all of the reflective effects of many of the top editing packages like Photoshop.
 
@@ -164,8 +184,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-a-practical-approach-to-hymnal-phone-tones/"><u>[New] A Practical Approach to Hymnal Phone Tones</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-elevating-sims-4-chronicles-advanced-techniques-for-precise-game-recording/"><u>[New] Elevating Sims 4 Chronicles Advanced Techniques for Precise Game Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-from-joke-to-share-perfecting-the-meme-process/"><u>[New] In 2024, From Joke to Share Perfecting the Meme Process</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-understanding-the-foundation-of-motion-visualization/"><u>[New] Understanding the Foundation of Motion Visualization</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-learn-to-cut-out-the-unwanted-a-guide-to-erasing-background/"><u>[Updated] 2024 Approved Learn to Cut Out the Unwanted A Guide to Erasing Background</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-write-with-impact-crafting-engaging-podcast-blurbs/"><u>[Updated] 2024 Approved Write with Impact Crafting Engaging Podcast Blurbs</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-advanced-techniques-for-educators-lecture-capture-on-mac-for-2024/"><u>[Updated] Advanced Techniques for Educator's Lecture Capture on Mac for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unleash-creativity-10-top-rated-free-mac-art-software/"><u>[Updated] In 2024, Unleash Creativity 10 Top-Rated, FREE Mac Art Software</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-inside-the-world-of-screencasts-understanding-fundamental-principles-for-2024/"><u>[Updated] Inside the World of Screencasts Understanding Fundamental Principles for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-location-on-facebook-dating-for-your-honor-100-drfone-by-drfone-virtual-android/"><u>How to Change Location On Facebook Dating for your Honor 100 | Dr.fone</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/in-2024-craftsmanship-at-fingertips-discovering-apples-8-excellent-drawing-apps/"><u>In 2024, Craftsmanship at Fingertips Discovering Apple's 8 Excellent Drawing Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-deciphering-digital-realms-virtualitys-cousins-vr-ar-and-mr/"><u>In 2024, Deciphering Digital Realms Virtuality's Cousins (VR, AR, & MR)</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/in-2024-easy-guide-to-vivo-y78plus-frp-bypass-with-best-methods-by-drfone-android/"><u>In 2024, Easy Guide to Vivo Y78+ FRP Bypass With Best Methods</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-pattern-locks-are-unsafe-secure-your-honor-70-lite-5g-phone-now-with-these-tips-by-drfone-android/"><u>In 2024, Pattern Locks Are Unsafe Secure Your Honor 70 Lite 5G Phone Now with These Tips</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/in-2024-the-insiders-guide-to-time-lagged-masterpieces-with-your-android-phone/"><u>In 2024, The Insider's Guide to Time-Lagged Masterpieces with Your Android Phone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-in-video-narrations-a-step-by-step-guide-for-2024/"><u>Mastering In-Video Narrations A Step-by-Step Guide for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/tricks-to-acquire-dry-stock-photography/"><u>Tricks to Acquire Dry Stock Photography</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=194977&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrfactory/images/screensaver-software.png" border="0">Screensaver Factory, Create stunning professional screensavers within minutes. Create screensavers for yourself, for marketing or unlimited royalty-free commercial distribution. Make screensavers from images, video and swf flash, add background music and smooth sprite and transition effects. Screensaver Factory is very easy to use, and it enables you to make self-installing screensaver files and CDs for easy setup and distribution. Screensaver Factory is the most advanced software of its kind.</a>
-<!-- affiliate ads end -->

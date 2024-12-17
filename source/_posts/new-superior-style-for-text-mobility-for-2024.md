@@ -1,7 +1,7 @@
 ---
 title: "[New] Superior Style for Text Mobility for 2024"
-date: 2024-12-03T16:40:24.719Z
-updated: 2024-12-10T16:45:25.753Z
+date: 2024-12-16T01:53:34.939Z
+updated: 2024-12-17T04:24:58.644Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ Glitch text effect is a trendy effect that gets the viewers’ attention immedia
 ![glitch text effect toolkit ae](https://images.wondershare.com/filmora/article-images/2022/07/glitch-text-effect-toolkit-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. Liquid Text Animation
@@ -44,11 +44,7 @@ You get 110 animated elements that you can apply to the text in your video. The 
 ![liquid text animation effect ae](https://images.wondershare.com/filmora/article-images/2022/07/liquid-text-animation-effect-ae.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. Dynamic Text Animations
@@ -57,15 +53,15 @@ There is always a high demand for dynamic text animations in After Effects. This
 
 ![dynamic text animations ae](https://images.wondershare.com/filmora/article-images/2022/07/dynamic-text-animations-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 4\. Squash & Stretch Preset
 
 If you want to add texts and titles in your video that looks like the games meant for kids, squash and stretch. Therefore, if your video content is based on comedy or you make videos for kids, this is the effect and animation you should apply on the text of your video. The animation looks cool and funny at the same time. The animations are designed by professionals and you get regular as well as advanced adjustments. There are also built-in sound effects available to make the animations for entertaining.
 
 ![squash stretch preset ae](https://images.wondershare.com/filmora/article-images/2022/07/squash-stretch-preset-ae.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 5\. CounterPro Preset
 
@@ -73,11 +69,19 @@ In this pack, you will find unique text effects, and you can animate text with k
 
 ![counterpro preset ae](https://images.wondershare.com/filmora/article-images/2022/07/counterpro-preset-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 6\. Text Library
 
 If there is a must-have preset you should manage to have in After Effects is Text Library. There are as many as 1000 text presets available and this will serve all your requirements completely. Starting from animations and effects to transitions, everything is available in different categories for you to choose from and apply to your text. The pack keeps on updating to include trendy and funky text effects so that you do not miss out anything.
 
 ![text library effect ae](https://images.wondershare.com/filmora/article-images/2022/07/text-library-effect-ae.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## 7\. Kinetic Text Animation
 
@@ -85,19 +89,15 @@ Kinetic text effect is a part of dynamic text effects and there is a high demand
 
 ![kinetic text aniamtion ae](https://images.wondershare.com/filmora/article-images/2022/07/kinetic-text-aniamtion-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## 8\. Text Animation Lower Third
 
 You get eleven styles of elements in the pack, and you can customize the designs to get into any size as per your requirements. You get the elements in HD and Full HD resolution, and you can use them in the intro or outro of the video to show text and title credits. You can also use them to show quotes or keywords. Most of them have highlighted background, and technically, they are referred to as lower thirds.
 
 ![text animation lower thirds ae](https://images.wondershare.com/filmora/article-images/2022/07/text-animation-lower-thirds-ae.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -133,22 +133,20 @@ As the saying goes, the more the merrier and the more presets you have, the more
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-ethereal-video-capture-techniques-for-2024/"><u>[New] Ethereal Video Capture Techniques for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-how-to-reduce-virtual-reality-vr-sickness/"><u>[New] How to Reduce Virtual Reality (VR) Sickness</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-movavi-plus-review-a-detailed-look-at-its-version/"><u>[Updated] 2024 Approved Movavi Plus Review – A Detailed Look at Its Version</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-boosting-visuals-implementing-filters-on-devices-for-2024/"><u>[Updated] Boosting Visuals Implementing Filters on Devices for 2024</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-infuse-laughter-into-content-use-kapwing-for-2024/"><u>[Updated] Infuse Laughter Into Content - Use Kapwing for 2024</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/3-solutions-to-hard-reset-tecno-pova-6-pro-5g-phone-using-pc-drfone-by-drfone-reset-android-reset-android/"><u>3 Solutions to Hard Reset Tecno Pova 6 Pro 5G Phone Using PC | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/addressing-windows-11-unable-to-load-driver-errors/"><u>Addressing Windows 11: Unable to Load Driver Errors</u></a></li>
-<li><a href="https://fox-access.techidaily.com/best-cutting-edge-tools-for-intro-edits-on-devices/"><u>Best Cutting-Edge Tools for Intro Edits on Devices</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/comment-gratuitement-transcoder-des-fichiers-mkv-au-format-h265hevc-pour-une-meilleure-qualite-et-efficacite/"><u>Comment Gratuitement Transcoder Des Fichiers MKV Au Format H.265/HEVC Pour Une Meilleure Qualité Et Efficacité</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/enhance-your-pc-nvidia-rtx-3090-drivers-for-windows-10-downloads-updated-version-available/"><u>Enhance Your PC: NVIDIA RTX 3090 Drivers for Windows 10 Downloads - Updated Version Available</u></a></li>
-<li><a href="https://article-tips.techidaily.com/facetune-photos-app-complete-review-and-guide/"><u>Facetune Photos App Complete Review and Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-discovering-this-years-most-captivating-yt-tales/"><u>In 2024, Discovering This Year's Most Captivating YT Tales</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-how-to-retract-macos-upgrade-from-sierra-to-el-capitan/"><u>In 2024, How to Retract macOS Upgrade From Sierra to El Capitan</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-navigating-multitasking-media-expertise-in-using-picture-in-picture/"><u>In 2024, Navigating Multitasking Media Expertise in Using Picture-in-Picture</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/new-reaction-video-masters-5-channels-to-inspire-your-content-for-2024/"><u>New Reaction Video Masters 5 Channels to Inspire Your Content for 2024</u></a></li>
-<li><a href="https://discover-dash.techidaily.com/solutions-when-your-laptop-screen-wont-respond-expert-advice-from-yl-computing/"><u>Solutions When Your Laptop Screen Won't Respond - Expert Advice From YL Computing</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/the-lowdown-on-lg-channels-top-details-unveiled/"><u>The Lowdown on LG Channels – Top Details Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-whimsical-videoland-assessment/"><u>[New] 2024 Approved Whimsical Videoland Assessment</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-fastest-path-to-amazing-iphone-time-lapses/"><u>[New] In 2024, The Fastest Path to Amazing iPhone Time-Lapses</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-inside-outlooks-of-instagram-stories-consumers/"><u>[Updated] 2024 Approved Inside Outlooks of Instagram Stories Consumers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-photo-perfection-how-to-erase-background-noise-with-ease/"><u>[Updated] 2024 Approved Photo Perfection How to Erase Background Noise with Ease</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-pro-3-unboxed-a-comprehensive-review-of-ions-marvel/"><u>[Updated] 2024 Approved Pro 3 Unboxed A Comprehensive Review of ION's Marvel</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/updated-sky-sprints-guide-to-excellence-plus-ultimate-fpv-drones-for-speed-for-2024/"><u>[Updated] Sky Sprints Guide to Excellence + Ultimate FPV Drones for Speed for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-recover-deleted-videos-from-iphone-se-without-backup-stellar-by-stellar-data-recovery-ios-iphone-data-recovery/"><u>How to Recover Deleted Videos from iPhone SE Without Backup? | Stellar</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-building-an-engaged-youtube-community-subscribers/"><u>In 2024, Building an Engaged Youtube Community (Subscribers)</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ative-strategies-for-youtube-video-closures/"><u>Innovative Strategies for YouTube Video Closures</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/save-big-on-a-new-ipad-at-only-199-in-the-exclusive-amazon-labor-day-discount-event-insights-from-zdnet/"><u>Save Big on a New iPad at Only $199 in the Exclusive Amazon Labor Day Discount Event - Insights From ZDNet</u></a></li>
+<li><a href="https://article-tips.techidaily.com/smoothly-stitching-images-together-for-2024/"><u>Smoothly Stitching Images Together for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/by-step-to-a-perfectly-arranged-youtube-queue/"><u>Step-by-Step to a Perfectly Arranged YouTube Queue</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-art-of-memes-9-essential-elements-for-gif-perfection-for-2024/"><u>The Art of Memes 9 Essential Elements for GIF Perfection for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-50-free-e-book-audible-resources-enjoy-reading-aloud-without-the-download-hassle/"><u>Top 50 Free E-Book Audible Resources: Enjoy Reading Aloud Without the Download Hassle</u></a></li>
+<li><a href="https://techidaily.com/your-complete-guide-to-reset-realme-note-50-drfone-by-drfone-reset-android-reset-android/"><u>Your Complete Guide To Reset Realme Note 50 | Dr.fone</u></a></li>
 </ul></div>
 

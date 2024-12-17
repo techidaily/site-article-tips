@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] The Basics  What Makes a VR Device Special?\""
-date: 2024-08-22T16:48:42.819Z
-updated: 2024-08-23T16:48:42.819Z
+date: 2024-12-14T18:35:12.598Z
+updated: 2024-12-17T03:05:37.929Z
 tags: 
   - screen-recording
   - ai video
@@ -44,9 +44,6 @@ thumbnail: https://thmb.techidaily.com/99663f80a681577ef6d172804500e3555c286bc17
 
  Below is a list of the various VR headsets currently available to purchase:
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ### [HTC Vive]( https://www.vive.com/ )
 
 ![ghtc-vive-vr](https://images.wondershare.com/filmora/article-images/htc-vive.png)
@@ -57,30 +54,33 @@ thumbnail: https://thmb.techidaily.com/99663f80a681577ef6d172804500e3555c286bc17
 
 ![gear-vr](https://images.wondershare.com/filmora/article-images/gear-vr.png)
 
-<!-- affiliate ads begin -->
-<a href="https://tokenmetrics.sjv.io/c/5597632/1864921/20702" target="_top" id="1864921"><img src="//a.impactradius-go.com/display-ad/20702-1864921" border="0" alt="" width="1251" height="1042"/></a>
-<!-- affiliate ads end -->
  The Samsung Gear VR is essentially Oculus Rift lite, owing to the fact that the two companies worked on the technology together. The Gear VR uses a Samsung Galaxy smartphone for the display and as the processor. The phone slots in front of the lenses and into a Micro USB slot, and uses the super AMOLED display as the screen. With the Gear, all you have to do is to slot in the phone, put on the headset and start enjoying the virtual reality experience.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### [Oculus Rift](https://www.oculus.com/rift/  )
 
 ![oculus-rift](https://images.wondershare.com/filmora/article-images/oculus-rift.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=4691139&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/SU-200-1.png" border="0">Software Update Pro - Check and update software installed on your computer. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
  Oculus Rift headset was responsible for the current hysteria in virtual reality. The Rift plugs into the computer’s USB and DVI ports and tracks the movements of the head to provide 3D displays on its stereo screens. The consumer edition of the Rift comes with a 2160 x 1200 resolution as well as a refresh rate of 90Hz. The Rift matches HTC Vive in terms of the refresh rate, but lags behind Sony’s PlayStation VR, though it is a pretty advanced VR headset in terms of the technology used.
 
 <!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### [Sony PlayStation VR](https://www.playstation.com/en-us/explore/playstation-vr/  )
 
 ![sony-playstation-vr](https://images.wondershare.com/filmora/article-images/sony-playstation-vr.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Sony has finally announced the launch date for the PlayStation VR headset and this is expected to be 13th October 2016\. A new version though, was announced way back in 2015 and it featured a 5-inch LCD display of the original prototype. For the version to be released, it is expected to have a 5.7 inch OLED to allow for low persistence which will in turn translate to less motion blur. The refresh rate for Sony’s PlayStation VR has been ramped up to 120Hz, making it possible to have 120fps gaming.
 
@@ -88,14 +88,15 @@ LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
 
 ![google-cardboard-vr](https://images.wondershare.com/filmora/article-images/google-cardboard-vr.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097467/26400?prodsku=B700" target="_top" id="2097467"><img src="//a.impactradius-go.com/display-ad/26400-2097467" border="0" alt="" width="640" height="640"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097467/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
  Not to be left behind, Google also has a cardboard virtual reality headset. With this headset, it sounds like popping your smartphone in a cardboard container and putting it over your head for a virtual reality experience. Sounds like a joke, but you will be pleasantly surprised to learn that it works like charm and it is also low cost. If anything, the smartphone you have already has all the gyroscopic sensors as well as the positioning devices needed to track your head movements.
 
  Since the Cardboard has grown so much in terms of popularity, Google has planned to release a better version known as Daydream. This will be a device like the Gear VR, but it has been designed to work with android phones which are currently being revamped to over better VR experiences. It is still not know when the new device will be available, but the Cardboard is retailing at $16.99 at Amazon.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Benjamin Arango
 
@@ -120,4 +121,24 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-zen-without-copyrights/"><u>[New] 2024 Approved Zen Without Copyrights</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-expertly-crafted-the-best-8-convertor-list-for-sub-to-srt-for-2024/"><u>[New] Expertly Crafted The Best 8 Convertor List for Sub to Srt for 2024</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/new-in-2024-recovering-individual-snap-secrets/"><u>[New] In 2024, Recovering Individual Snap Secrets</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-simplifying-connection-combining-linkedin-profile-with-your-tiktok-bio/"><u>[New] Simplifying Connection Combining LinkedIn Profile with Your TikTok Bio</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/park-inspiration-free-soundtracks-to-enhance-projects/"><u>[New] Spark Inspiration - Free Soundtracks to Enhance Projects!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-accessing-premium-clip-art-at-no-expense/"><u>[Updated] 2024 Approved Accessing Premium Clip-Art at No Expense</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-best-android-videography-6-must-try-music-videos-apps/"><u>[Updated] In 2024, Best Android Videography 6 Must-Try Music Videos Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mastering-upside-down-and-sideways-iphone-photos/"><u>[Updated] Mastering Upside-Down and Sideways iPhone Photos</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-navigating-name-change-in-google-meet-laptopmobile/"><u>[Updated] Navigating Name Change in Google Meet (Laptop/Mobile)</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/2024-approved-rhythm-discoveries-at-your-fingertips-free-online/"><u>2024 Approved Rhythm Discoveries at Your Fingertips (Free, Online)</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/explore-ingenious-ways-to-modify-voices-for-free/"><u>Explore Ingenious Ways to Modify Voices for FREE</u></a></li>
+<li><a href="https://location-social.techidaily.com/in-2024-4-feasible-ways-to-fake-location-on-facebook-for-your-realme-11-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 4 Feasible Ways to Fake Location on Facebook For your Realme 11 5G | Dr.fone</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-how-to-fix-iphone-13-pro-passcode-not-working-by-drfone-ios/"><u>In 2024, How to Fix iPhone 13 Pro Passcode not Working?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/scriptwriting-essentials-for-authentic-and-engaging-documentaries/"><u>Scriptwriting Essentials for Authentic and Engaging Documentaries</u></a></li>
+<li><a href="https://fox-info.techidaily.com/the-ultimate-question-in-cameras-can-a-dslr-surpass-a-hero-4-for-2024/"><u>The Ultimate Question in Cameras Can a DSLR Surpass a Hero 4 for 2024</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/unveiling-historical-transformations-the-far-reaching-effects-of-the-cultural-revolution-analyzed-by-yl-computing-and-yl-software/"><u>Unveiling Historical Transformations: The Far-Reaching Effects of the Cultural Revolution Analyzed by YL Computing and YL Software.</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unveiling-youtubes-features-adding-images-to-videos/"><u>Unveiling YouTube's Features Adding Images to Videos</u></a></li>
+</ul></div>
 

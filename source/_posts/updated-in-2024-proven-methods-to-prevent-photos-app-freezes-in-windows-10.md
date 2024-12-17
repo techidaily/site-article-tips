@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Proven Methods to Prevent Photos App Freezes in Windows 10"
-date: 2024-12-08T00:34:58.639Z
-updated: 2024-12-10T17:51:04.011Z
+date: 2024-12-15T23:31:34.775Z
+updated: 2024-12-16T21:59:11.424Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -63,14 +63,14 @@ Here is how to troubleshoot –
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
@@ -83,6 +83,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
    4. Tap ‘Restore Defaults’ from the bottom-right portion of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cKRBWf1EDZo?si=CTNd4q450biit4eM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
@@ -125,14 +129,10 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vEYkX2NJgZw?si=IaHqlqJcYipwUOht" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,18 +159,24 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-crafting-professional-livestreams-on-youtube-and-twitch-using-obs/"><u>[Updated] 2024 Approved Crafting Professional Livestreams on YouTube and Twitch Using OBS</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-convert-youtube-videos-smoothly-into-professional-webm-files-for-2024/"><u>[Updated] Convert YouTube Videos Smoothly Into Professional WebM Files for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-breaking-barriers-top-picks-of-virtual-reality-walkers/"><u>[Updated] In 2024, Breaking Barriers Top Picks of Virtual Reality Walkers</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/aural-adventures-discovering-the-top-15-instructional-music-videos-for-2024/"><u>Aural Adventures Discovering the Top 15 Instructional Music Videos for 2024</u></a></li>
-<li><a href="https://extra-information.techidaily.com/in-2024-android-photography-excellence-tips-and-tools/"><u>In 2024, Android Photography Excellence Tips and Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-game-on-with-the-samsung-ue590-a-freesync-dream-tv-review/"><u>In 2024, Game On with the Samsung UE590 A FreeSync Dream TV Review</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-revolutionizing-video-praise-with-innovative-approaches/"><u>In 2024, Revolutionizing Video Praise with Innovative Approaches</u></a></li>
-<li><a href="https://location-social.techidaily.com/in-2024-top-7-skype-hacker-to-hack-any-skype-account-on-your-realme-narzo-n55-drfone-by-drfone-virtual-android/"><u>In 2024, Top 7 Skype Hacker to Hack Any Skype Account On your Realme Narzo N55 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-weaving-visual-narratives-with-words-on-paper/"><u>In 2024, Weaving Visual Narratives with Words on Paper</u></a></li>
-<li><a href="https://article-tips.techidaily.com/master-pip-feature-while-consuming-youtube-videos-on-iphones-for-2024/"><u>Master PIP Feature While Consuming YouTube Videos on iPhones for 2024</u></a></li>
-<li><a href="https://youtube-stream.techidaily.com/mastering-visual-effects-on-a-budget-essential-tutorials-and-techniques-from-4-vfx-experts-videos-for-2024/"><u>Mastering Visual Effects on a Budget Essential Tutorials and Techniques From 4 VFX Experts' Videos for 2024</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/top-videography-items-for-travelers-for-2024/"><u>Top Videography Items for Travelers for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/troubleshooting-crackling-sound-from-your-pcs-speakers-in-windows-117-all-you-need-to-know/"><u>Troubleshooting Crackling Sound From Your PC's Speakers in Windows 11/7 - All You Need To Know</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/new-2024-approved-prime-portals-select-4k-ready-laptops-for-visionary-artists/"><u>[New] 2024 Approved Prime Portals Select 4K-Ready Laptops for Visionary Artists</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-scheduling-podcast-drops-with-peak-engagement-times/"><u>[New] 2024 Approved Scheduling Podcast Drops with Peak Engagement Times</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/024-approved-youtube-thumbnails-top-20-font-selection-tips/"><u>[New] 2024 Approved YouTube Thumbnails Top 20 Font Selection Tips</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/new-craft-the-perfect-blurred-photo-with-these-essentials/"><u>[New] Craft the Perfect Blurred Photo with These Essentials</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-jest-jamboree-meme-ideas-fit-for-any-celebration-for-2024/"><u>[New] Jest Jamboree Meme Ideas Fit for Any Celebration for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-extended-scrutiny-gopro-slr4-black-edition-model/"><u>[Updated] In 2024, Extended Scrutiny GoPro SLR4 Black Edition Model</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-present-moment-vr-equipment-review/"><u>[Updated] In 2024, Present Moment VR Equipment Review</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-streamlining-sonic-selection-a-guide-to-curating-youtube-content/"><u>[Updated] In 2024, Streamlining Sonic Selection A Guide to Curating YouTube Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-artisans-path-to-precision-zooming-on-kinemaster/"><u>[Updated] In 2024, The Artisan’s Path to Precision Zooming on Kinemaster</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-in-2024-the-experts-guide-quick-removal-of-your-youtube-comments/"><u>[Updated] In 2024, The Expert's Guide Quick Removal of Your Youtube Comments</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-weaving-worthy-preview-pieces-for-2024/"><u>[Updated] Weaving Worthy Preview Pieces for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-win11s-quickest-image-viewing-experience/"><u>[Updated] Win11's Quickest Image Viewing Experience</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/20-anker-charger-revolutionizes-portable-power-the-ultimate-solution-featured/"><u>$20 Anker Charger Revolutionizes Portable Power: The Ultimate Solution Featured</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-essential-strategies-for-lowering-audible-levels-on-lumafusion/"><u>2024 Approved Essential Strategies for Lowering Audible Levels on Lumafusion</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/accessing-d-link-routers-ultimate-password-guide-july-2024-edition/"><u>Accessing D-Link Routers: Ultimate Password Guide (July 2024 Edition)</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/how-to-unlock-oneplus-12r-pin-codepattern-lockpassword-by-drfone-android/"><u>How to Unlock OnePlus 12R PIN Code/Pattern Lock/Password</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-video-hub-usability-and-quality-audit/"><u>In 2024, Video Hub Usability & Quality Audit</u></a></li>
+<li><a href="https://driver-install.techidaily.com/install-ax19-wifi-in-windows-8-devices/"><u>Install AX19 WiFi in Windows 8 Devices</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/top-videorecorder-apps-fur-mac-abschlussbericht-bestenliste-von-video-editing-programmen-unter-macos/"><u>Top Videorecorder Apps Für Mac - Abschlussbericht | Bestenliste Von Video-Editing-Programmen Unter macOS</u></a></li>
 </ul></div>
 

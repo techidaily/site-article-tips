@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Beyond the Headset  Global VR Evolution\""
-date: 2024-12-08T19:28:34.973Z
-updated: 2024-12-10T23:51:52.111Z
+date: 2024-12-13T23:33:24.002Z
+updated: 2024-12-17T04:10:20.269Z
 tags: 
   - screen-recording
   - ai video
@@ -32,7 +32,7 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What’s the popular VR platforms and what is developing fast?
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
  )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -55,12 +55,16 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
 
@@ -69,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -77,10 +81,6 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
  Overall, this is what cooking inside the VR gaming world and this survey report explains the different aspects of virtual reality that clearly presents the state of the VR industry on this year – 2016\. Hopefully, we will come across much more advancement to this process in the coming years since gaming on VR headsets is massively exciting and fun.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LlVkEwpjKKo?si=hXi-mchMaJvbnIzM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -107,16 +107,24 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-exclusive-preview-general-knowledge-quiz-networks-of-2024/"><u>[New] Exclusive Preview General Knowledge Quiz Networks of 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-10-top-ai-tools-to-invent-unique-podcast-names-online/"><u>[New] In 2024, 10 Top AI Tools to Invent Unique Podcast Names Online</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-ultimate-top-5-iphone-podcast-apps-guide/"><u>[New] The Ultimate Top 5 iPhone Podcast Apps Guide</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-achieving-precise-youtube-content-extraction-for-2024/"><u>[Updated] Achieving Precise YouTube Content Extraction for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-crafting-straightforward-stories-for-2024/"><u>[Updated] Crafting Straightforward Stories for 2024</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-innovative-recorders-for-console-gameplay-footage-for-2024/"><u>[Updated] Innovative Recorders for Console Gameplay Footage for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-safeguarding-your-digital-footprint-on-youtube/"><u>2024 Approved Safeguarding Your Digital Footprint on YouTube</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/choosing-your-perfect-streamer-how-chromecast-stacks-up-to-roku/"><u>Choosing Your Perfect Streamer: How Chromecast Stacks Up to Roku</u></a></li>
-<li><a href="https://audio-shaping.techidaily.com/exploring-the-best-online-hubs-for-free-bgm-music-downloads/"><u>Exploring the Best Online Hubs for Free BGM Music Downloads</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-unlocking-potential-through-virtualization/"><u>In 2024, Unlocking Potential Through Virtualization</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/ultimate-guide-steps-to-perform-a-hardware-reset-on-your-lenovo-notebook/"><u>Ultimate Guide: Steps to Perform a Hardware Reset on Your Lenovo Notebook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-future-of-virtual-showrooms/"><u>[New] 2024 Approved The Future of Virtual Showrooms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-windows-files-reviewed-in-a-flash/"><u>[New] Windows Files Reviewed in a Flash</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-complete-body-movement-report-2023/"><u>[Updated] 2024 Approved Complete Body Movement Report 2023</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-itop-screen-recorder-review-should-you-install-it/"><u>[Updated] 2024 Approved ITop Screen Recorder Review Should You Install It?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-photo-perfection-at-your-fingertips-top-10-stickers-on-iphones-and-androids/"><u>[Updated] 2024 Approved Photo Perfection at Your Fingertips Top 10 Stickers on iPhones & Androids</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-bargain-bin-of-the-clouds-spacious-file-staging-area-for-2024/"><u>[Updated] Bargain Bin of the Clouds Spacious File Staging Area for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-explore-the-world-of-kinemaster-and-ranking-10-online-competitors-for-2024/"><u>[Updated] Explore the World of KineMaster & Ranking 10 Online Competitors for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-complete-srt-encyclopedia-key-facts-explored-for-2024/"><u>[Updated] The Complete SRT Encyclopedia Key Facts Explored for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unleashing-creative-potential-in-gopro-4k-edits-for-2024/"><u>[Updated] Unleashing Creative Potential in GoPro 4K Edits for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-unraveling-sharex-professional-perspectives-and-picks/"><u>[Updated] Unraveling ShareX Professional Perspectives & Picks</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/approved-essential-insights-how-to-choose-among-the-top-9-free-youtube-makers/"><u>2024 Approved Essential Insights How to Choose Among the Top 9 Free YouTube Makers</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-card-on-tecno-pova-5-pro-online-without-jailbreak-by-drfone-android/"><u>How to Unlock SIM Card on Tecno Pova 5 Pro online without jailbreak</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/in-2024-best-10-free-image-transformers-jpg-to-gif-edition/"><u>In 2024, Best 10 FREE Image Transformers JPG to GIF Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-elevate-your-visual-storytelling-advanced-zooming-on-snapchat/"><u>In 2024, Elevate Your Visual Storytelling Advanced Zooming on Snapchat</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-sound-on-call-sensor-iphone-24-tech/"><u>In 2024, Sound-on-Call Sensor IPhone '24 Tech</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/in-2024-unlock-youtube-success-subscriber-boosts-at-a-bargain/"><u>In 2024, Unlock YouTube Success - Subscriber Boosts at a Bargain</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/precision-editing-at-your-fingertips-canvas-boundary-eradication/"><u>Precision Editing at Your Fingertips Canva's Boundary Eradication</u></a></li>
+<li><a href="https://win-tips.techidaily.com/ultimate-resource-for-flip-powerpoint-tutorials-and-techniques-discover-new-skills-on-flipbuildercom/"><u>Ultimate Resource for Flip PowerPoint Tutorials & Techniques - Discover New Skills on FlipBuilder.com</u></a></li>
+<li><a href="https://article-tips.techidaily.com/who-wins-in-speed-duel-gopro-hero4-or-drift-ghost-s/"><u>Who Wins in Speed Duel? GoPro Hero4 or Drift Ghost-S?</u></a></li>
 </ul></div>
 

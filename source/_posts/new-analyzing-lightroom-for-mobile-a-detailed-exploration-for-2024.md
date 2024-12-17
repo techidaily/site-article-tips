@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Analyzing Lightroom for Mobile  A Detailed Exploration for 2024\""
-date: 2024-12-05T17:47:29.306Z
-updated: 2024-12-11T01:57:24.947Z
+date: 2024-12-16T06:49:43.905Z
+updated: 2024-12-16T19:32:10.983Z
 tags: 
   - screen-recording
   - ai video
@@ -34,6 +34,10 @@ Despite newer editing software programs being available, the Adobe **Lightroom A
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 1\. What is Lightroom App?
 
 If you're a serious photographer or just enjoy taking and editing photos, the **Lightroom Android app** is definitely worth checking out.
@@ -43,6 +47,10 @@ The app allows you to perform various tasks, from basic photo editing to more ad
 **Download:** You can download **Lightroom from the** [**Play Store**](https://play.google.com/store/apps/details?id=com.adobe.lrmobile&hl=en&gl=US)**on your Android device.**
 
 **Price**: Lightroom photo editing app offers a free version with basic features at your disposal and a premium version with seven days trial, 1TB of storage space, and two subscription options: **$99.9** per month and **$119.88** per year.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. Key Features Of Lightroom App on Android
 
@@ -58,6 +66,10 @@ Following are some of the key features of the Lightroom app on Android are:
 
 **Cloud Backup:** With cloud backup, you can keep your photos and edits safe and sound in the cloud and access them from your tablet, desktop, or mobile Lightroom versions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. How To Use Lightroom App?
 
 Here's the step-by-step guide to help you edit your pictures like a pro with the **Lightroom Android app:**
@@ -68,6 +80,10 @@ Step2 Once signed in, tap the **Import** icon and select your picture to import.
 
 ![importing media file to lightroom](https://images.wondershare.com/filmora/article-images/2022/09/importing-media-file-to-lightroom.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 To improve your picture's composition, tap **"Crop"** and set the ratio or drag the handles to adjust the size. Tap the check icon to accept the changes and apply them to your picture.
 
 Step4 From the adjustment menu, tap **"Preset"** and select the filter effect from the categories. Select **"Preset"** and tap **"Check Mark."**
@@ -75,12 +91,16 @@ Step4 From the adjustment menu, tap **"Preset"** and select the filter effect fr
 ![pesets in lightroom app](https://images.wondershare.com/filmora/article-images/2022/09/presets-in-lightroom-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/f-yPCh24EsA?si=3z8FAd_lMZeAjug7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step5 Next, tap the **"Light"** option, and drag the slider to adjust the Contrast and Exposure. Moreover, you can also adjust the Shadow and Highlight to increase or decrease the contrast.
 
 ![setting light on picture in lightroom](https://images.wondershare.com/filmora/article-images/2022/09/setting-light-on-picture-in-lightroom.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Now, tap **"Color"** and use the sliders to adjust the Temperature and Saturation on your picture. Tap the **"Check"** icon once you are done.
 
@@ -88,15 +108,15 @@ Now, tap **"Color"** and use the sliders to adjust the Temperature and Saturatio
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** _Lightroom also offers a redo, undo, and reset option to help you stay on track._
 
 Step6 Once satisfied with your edits, click the **"Share"** icon and tap **"Save to Device"** to export the picture. You can also use the **"Share to…"** to share your file with your friends or family or **"Export as…"** to get specific file types, dimensions, and quality.
 
 ![export options in lightroom](https://images.wondershare.com/filmora/article-images/2022/09/export-options-in-lightroom.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4\. Advantages and Disadvantages Of Lightroom App For Android
 
@@ -114,15 +134,7 @@ Furthermore, the sharing feature is limited and does not allow you to share your
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:**   _Despite these drawbacks, Lightroom is still an excellent option for Android users looking for a powerful photo editor. However, if you want an alternative to the **Lightroom app, use [Pixiz](https://pixiz.en.uptodown.com/android) \- a free personalized photo editing app.**_
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 5\. What is Lightroom App for PC
 
@@ -143,10 +155,6 @@ For one, desktop editors have more advanced features and editing tools available
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -168,10 +176,6 @@ The app allows you to perform various tasks, from basic photo editing to more ad
 
 **Price**: Lightroom photo editing app offers a free version with basic features at your disposal and a premium version with seven days trial, 1TB of storage space, and two subscription options: **$99.9** per month and **$119.88** per year.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Key Features Of Lightroom App on Android
 
 Following are some of the key features of the Lightroom app on Android are:
@@ -186,6 +190,10 @@ Following are some of the key features of the Lightroom app on Android are:
 
 **Cloud Backup:** With cloud backup, you can keep your photos and edits safe and sound in the cloud and access them from your tablet, desktop, or mobile Lightroom versions.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. How To Use Lightroom App?
 
 Here's the step-by-step guide to help you edit your pictures like a pro with the **Lightroom Android app:**
@@ -195,10 +203,6 @@ Step1 Install the app using the **Google Play Lightroom** link provided above an
 Step2 Once signed in, tap the **Import** icon and select your picture to import. Next, open a picture you want to edit, and editing tools will appear at the bottom of the screen.
 
 ![importing media file to lightroom](https://images.wondershare.com/filmora/article-images/2022/09/importing-media-file-to-lightroom.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 To improve your picture's composition, tap **"Crop"** and set the ratio or drag the handles to adjust the size. Tap the check icon to accept the changes and apply them to your picture.
 
@@ -210,19 +214,11 @@ Step5 Next, tap the **"Light"** option, and drag the slider to adjust the Contra
 
 ![setting light on picture in lightroom](https://images.wondershare.com/filmora/article-images/2022/09/setting-light-on-picture-in-lightroom.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Now, tap **"Color"** and use the sliders to adjust the Temperature and Saturation on your picture. Tap the **"Check"** icon once you are done.
 
 ![setting Color on picture in lightroom](https://images.wondershare.com/filmora/article-images/2022/09/setting-color-on-picture-in-lightroom.jpg)
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** _Lightroom also offers a redo, undo, and reset option to help you stay on track._
 
@@ -256,6 +252,10 @@ With Lightroom, you can crop and straighten photos, remove blemishes and unwante
 
 ![Lightroom-for-PC](https://images.wondershare.com/filmora/article-images/2022/09/lightroom-for-pc.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 6\. The Best Lightroom App Alternative On Desktop
 
 While many people believe that mobile photo editors are just as good as desktop editors, there are several reasons why PC photo editors are better.
@@ -269,7 +269,7 @@ For one, desktop editors have more advanced features and editing tools available
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/) For macOS 10.14 or later
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -306,24 +306,22 @@ We hope you find this review informative, and that you can edit your photos with
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-master-image-editing-with-these-top-8-tablets-beyond-filmoras-reach/"><u>[New] 2024 Approved Master Image Editing with These Top 8 Tablets Beyond Filmora's Reach</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-harmonious-audio-pathway-guidebook/"><u>[New] In 2024, Harmonious Audio Pathway Guidebook</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-in-2024-optimize-your-storage-without-spending-a-penny-best-30-clouds-with-1tb-included/"><u>[New] In 2024, Optimize Your Storage Without Spending a Penny Best 30 Clouds with 1TB Included</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-top-eight-sources-of-graffiti-fonts-online/"><u>[New] In 2024, Top Eight Sources of Graffiti Fonts Online</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-your-ringtone-solution-top-4-sites-revealed-here/"><u>[New] In 2024, Your Ringtone Solution Top 4 Sites Revealed Here</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/new-pivot-and-post-mastering-video-orientation-for-2024/"><u>[New] Pivot and Post Mastering Video Orientation for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-prime-retro-elements-reviving-classic-vhs-tricks-for-2024/"><u>[New] Prime Retro Elements Reviving Classic VHS Tricks for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-elevate-tiktok-videography-with-zooming-expertise/"><u>[Updated] Elevate TikTok Videography with Zooming Expertise</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-leading-apps-for-dji-video-manipulation-and-mixing/"><u>[Updated] In 2024, Leading Apps for DJi Video Manipulation and Mixing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-visual-mastery-leading-brands-in-8k-capture-for-2024/"><u>[Updated] Visual Mastery Leading Brands in 8K Capture for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/5-solutions-for-realme-narzo-60-5g-unlock-without-password-by-drfone-android/"><u>5 Solutions For Realme Narzo 60 5G Unlock Without Password</u></a></li>
-<li><a href="https://win-blog.techidaily.com/movavi-rmvb-mkv/"><u>免費網路服務：透過 Movavi 轉換器改造 RMVB到 MKV格式</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/free-screen-recording-apps-for-mac-capture-your-screenshots-in-seconds/"><u>Free Screen Recording Apps for Mac - Capture Your Screenshots in Seconds</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-can-you-transfer-files-from-infinix-zero-5g-2023-turbo-to-iphone-151413-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>How Can You Transfer Files From Infinix Zero 5G 2023 Turbo To iPhone 15/14/13? | Dr.fone</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-lava-blaze-2-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Lava Blaze 2 Without Them Knowing? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-crafting-excellent-micro-photography-videos-step-by-step/"><u>In 2024, Crafting Excellent Micro Photography Videos Step by Step</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/the-essential-guide-for-repairing-non-displayed-logins/"><u>The Essential Guide for Repairing Non-Displayed Logins</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/1723015550205-troubleshooting-onikuma-headsets-non-functional-mic-fixed-now/"><u>Troubleshooting Onikuma Headset's Non-Functional Mic - Fixed Now</u></a></li>
-<li><a href="https://tech-hub.techidaily.com/ultimate-list-of-effective-chatgpt-cues-found-on-github/"><u>Ultimate List of Effective ChatGPT Cues Found on GitHub</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-future-filming-top-15-video-cameras-to-watch/"><u>[New] Future Filming – Top 15 Video Cameras to Watch</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-top-5-high-res-screens-for-playstation-5/"><u>[New] In 2024, Top 5 High-Res Screens for PlayStation 5</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigating-links-between-instagram-and-tiktok/"><u>[New] Navigating Links Between Instagram and TikTok</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-explore-8-premium-websites-for-3d-text-psdfiles/"><u>[Updated] 2024 Approved Explore 8 Premium Websites for 3D Text PSDFiles</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-frame-your-vision-leading-lines-for-dynamic-iphone-photos/"><u>[Updated] In 2024, Frame Your Vision Leading Lines for Dynamic iPhone Photos</u></a></li>
+<li><a href="https://win-manuals.techidaily.com/1-ultimate-guide-free-and-easy-way-to-save-your-favorite-9gag-memes-and-gifs/"><u>1. Ultimate Guide: Free and Easy Way to Save Your Favorite 9GAG Memes & GIFs</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/cs2-stability-fixes-no-more-pc-crashing-in-counter-strike-2/"><u>CS2 Stability Fixes: No More PC Crashing in Counter Strike 2</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-action-in-motion-best-surfing-cams-of-2023-update/"><u>In 2024, Action in Motion Best Surfing Cams of 2023 Update</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-nubia-red-magic-8s-pro-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Nubia Red Magic 8S Pro? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-ranking-the-ultimate-vr-fun-on-mobile-devices/"><u>In 2024, Ranking the Ultimate VR Fun on Mobile Devices</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/internet-joke-architect/"><u>Internet Joke Architect</u></a></li>
+<li><a href="https://article-tips.techidaily.com/navigating-the-world-of-cost-free-text-animation-techniques/"><u>Navigating the World of Cost-Free Text Animation Techniques</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/stanley-j5c09-5-in-1-jobsite-compact-crawler-saw-strength-and-efficiency-in-one-unit/"><u>Stanley J5C09 5-in-1 JobSite Compact Crawler Saw: Strength and Efficiency in One Unit</u></a></li>
+<li><a href="https://win-forum.techidaily.com/top-social-platforms-compared-facebook-vs-twitter-vs-instagram-vs-youtube/"><u>Top Social Platforms Compared: Facebook Vs. Twitter Vs. Instagram Vs. YouTube</u></a></li>
+<li><a href="https://win-forum.techidaily.com/understanding-the-big-4-social-media-outlets-facebook-twitter-instagram-and-youtube/"><u>Understanding The Big 4 Social Media Outlets: Facebook, Twitter, Instagram and Youtube</u></a></li>
+<li><a href="https://article-posts.techidaily.com/why-isnt-the-video-display-on-sony-a6400/"><u>Why Isn't the Video Display on Sony A6400?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579964-9781617641855-yo-anonimo/"><u>Yo Anónimo | Free Book</u></a></li>
 </ul></div>
 

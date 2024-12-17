@@ -1,7 +1,7 @@
 ---
 title: "[New] Master Windows 10'S Native Features to Cut Videos Instantly"
-date: 2024-12-08T04:39:01.799Z
-updated: 2024-12-10T21:38:59.727Z
+date: 2024-12-12T08:08:20.931Z
+updated: 2024-12-16T20:30:04.364Z
 tags: 
   - screen-recording
   - ai video
@@ -50,18 +50,22 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kx-Pb0otJCs?si=Mvr49yQVesmJA8-O" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/O7ChChlyX2o?si=7pMKdN1NZig1kYek" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
@@ -77,7 +81,7 @@ Here comes the step by step guide to trim video in VLC –
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
@@ -85,10 +89,6 @@ Here comes the step by step guide to trim video in VLC –
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DxUX4R6Cf7c?si=prHevNQJivSkIfUt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -99,7 +99,7 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/S0b9szh8vEk?si=NlGzpJ6MN_SJNk5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,16 +127,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-expertly-handling-timecodes-in-srt-using-macos-tools/"><u>[New] 2024 Approved Expertly Handling Timecodes in SRT Using macOS Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-integrating-picture-in-picture-the-essentials-of-ms-edge/"><u>[New] In 2024, Integrating Picture-in-Picture The Essentials of MS Edge</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-mastering-pixiz-photo-video-creation-guide/"><u>[Updated] 2024 Approved Mastering Pixiz Photo Video Creation Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-detailed-discussions-via-zoom-in-ms-teams-for-2024/"><u>[Updated] Detailed Discussions via ZOOM in MS Teams for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-free-10-high-quality-passport-photos-available-here-for-2024/"><u>[Updated] Free 10 High-Quality Passport Photos Available Here for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-spin-the-web-advanced-tips-for-video-orientation-in-youtube/"><u>[Updated] Spin the Web Advanced Tips for Video Orientation in YouTube</u></a></li>
-<li><a href="https://win-able.techidaily.com/cut-costs-and-boost-efficiency-my-top-tips-for-using-excel-in-managing-projects/"><u>Cut Costs and Boost Efficiency: My Top Tips for Using Excel in Managing Projects</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/error-loading-player-no-playable-sources-found-on-windows-solved/"><u>Error Loading Player: No Playable Sources Found on Windows [Solved]</u></a></li>
-<li><a href="https://apple-account.techidaily.com/how-to-get-the-apple-id-verification-code-on-apple-iphone-11-pro-in-the-best-ways-by-drfone-ios/"><u>How To Get the Apple ID Verification Code On Apple iPhone 11 Pro in the Best Ways</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-mastering-the-art-of-capturing-dynamic-images-on-ios-devices/"><u>In 2024, Mastering the Art of Capturing Dynamic Images on iOS Devices</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/the-ultimate-players-showcase-top-rated-oculus-devices/"><u>The Ultimate Players Showcase Top-Rated Oculus Devices</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-crafting-gentle-sound-declines-with-logic-pro/"><u>[New] 2024 Approved Crafting Gentle Sound Declines with Logic Pro</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-achieve-more-with-costless-timer-software-for-2024/"><u>[New] Achieve More with Costless Timer Software for 2024</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/new-in-2024-navigating-instagram-marketing-ultimate-guide-to-video-success/"><u>[New] In 2024, Navigating Instagram Marketing Ultimate Guide to Video Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-top-8-affordable-srt-services-for-flawless-translation/"><u>[New] In 2024, Top 8 Affordable SRT Services for Flawless Translation</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-streamlining-your-websites-visual-content-via-cropping/"><u>[New] Streamlining Your Website's Visual Content via Cropping</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-from-average-to-spectacular-mastering-dynamic-range-portraits-for-2024/"><u>[Updated] From Average to Spectacular Mastering Dynamic Range Portraits for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-visual-vocabulary-at-your-fingertips-exploring-the-best-34-tools-to-convert-videos-into-language-for-2024/"><u>[Updated] Visual Vocabulary at Your Fingertips Exploring the Best 34 Tools to Convert Videos Into Language for 2024</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/how-to-track-whatsapp-messages-on-samsung-galaxy-a05-without-them-knowing-drfone-by-drfone-virtual-android/"><u>How to Track WhatsApp Messages on Samsung Galaxy A05 Without Them Knowing? | Dr.fone</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-unlock-sim-cards-of-nokia-c22-without-puk-codes-by-drfone-android/"><u>How To Unlock SIM Cards Of Nokia C22 Without PUK Codes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-luminarx-the-freepaid-lightroom-rival-list/"><u>In 2024, LuminarX The Free/Paid Lightroom Rival List</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-markets-top-picks-premier-drone-gimbals/"><u>In 2024, Market's Top Picks Premier Drone Gimbals</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/in-2024-seamless-saving-of-snapchat-images-on-device-memory/"><u>In 2024, Seamless Saving of SnapChat Images on Device Memory</u></a></li>
+<li><a href="https://article-tips.techidaily.com/sensory-engaging-e-commerce-platforms-for-2024/"><u>Sensory Engaging E-Commerce Platforms for 2024</u></a></li>
+<li><a href="https://discover-hacks.techidaily.com/step-by-step-tutorial-for-transforming-dvd-videos-into-premium-hevch265-formats/"><u>Step-by-Step Tutorial for Transforming DVD Videos Into Premium HEVC/H.265 Formats</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-selections-for-speedy-facebook-video-transfers-and-streams/"><u>Top Selections for Speedy Facebook Video Transfers and Streams</u></a></li>
 </ul></div>
 

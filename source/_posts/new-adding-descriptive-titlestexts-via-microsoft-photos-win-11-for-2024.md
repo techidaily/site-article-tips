@@ -1,7 +1,7 @@
 ---
 title: "[New] Adding Descriptive Titles/Texts via Microsoft Photos Win 11 for 2024"
-date: 2024-08-22T16:44:24.958Z
-updated: 2024-08-23T16:44:24.958Z
+date: 2024-12-14T00:02:16.070Z
+updated: 2024-12-16T18:48:41.060Z
 tags: 
   - screen-recording
   - ai video
@@ -42,6 +42,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
@@ -50,6 +54,10 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
 
@@ -72,11 +80,16 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/td3ojuzhloY?si=N_maQNiJWrJp7XZl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<a href="https://mindmanager.sjv.io/c/5597632/1787667/20231" target="_top" id="1787667"><img src="//a.impactradius-go.com/display-ad/20231-1787667" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1787667/20231" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LaGNHfAT92w?si=bvHo1iYK2JBIPtRo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
@@ -84,8 +97,9 @@ To add titles/text to video on Photos in Windows 10 and to make the text move wi
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 Shanoon Cox
 
 Shanoon Cox is a writer and a lover of all things video.
@@ -109,4 +123,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-elevate-your-works-discover-the-elite-6-in-nft-creativity-for-2024/"><u>[New] Elevate Your Works Discover the Elite 6 in NFT Creativity for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-explore-5-superior-ways-to-record-sound-with-windows-11/"><u>[New] In 2024, Explore 5 Superior Ways to Record Sound with Windows 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-free-easy-to-use-screen-recording-tools-for-windows-10/"><u>[New] In 2024, Free, Easy-To-Use Screen Recording Tools For Windows 10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-soft-image-effects-in-iphone-photography-4-tips/"><u>[New] In 2024, Mastering Soft Image Effects in iPhone Photography (4 Tips!)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-full-picture-unraveling-the-google-podcast-application-for-2024/"><u>[Updated] Full Picture Unraveling the Google Podcast Application for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/updated-precision-close-up-techniques-with-kinemaster-software/"><u>[Updated] Precision Close-Up Techniques with Kinemaster Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-strategies-for-downloading-twitter-video-content-to-mp3/"><u>[Updated] Strategies for Downloading Twitter Video Content to MP3</u></a></li>
+<li><a href="https://win-deluxe.techidaily.com/dropbox-troubleshooting-guide-steps-to-successfully-restore-missing-files/"><u>Dropbox Troubleshooting Guide: Steps to Successfully Restore Missing Files</u></a></li>
+<li><a href="https://ai-voice-clone.techidaily.com/fixing-the-issue-when-mass-effect-legendary-edition-wont-start/"><u>Fixing the Issue When Mass Effect Legendary Edition Won't Start</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-fix-the-intel-dynamic-platform-and-thermal-framework-driver-install-failure/"><u>How to Fix the Intel Dynamic Platform & Thermal Framework Driver Install Failure</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-top-apps-and-online-tools-to-track-tecno-spark-10-pro-phone-withwithout-imei-number-by-drfone-android/"><u>In 2024, Top Apps and Online Tools To Track Tecno Spark 10 Pro Phone With/Without IMEI Number</u></a></li>
+<li><a href="https://pokemon-go-android.techidaily.com/in-2024-where-is-the-best-place-to-catch-dratini-on-honor-x50iplus-drfone-by-drfone-virtual-android/"><u>In 2024, Where Is the Best Place to Catch Dratini On Honor X50i+ | Dr.fone</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/professional-gamers-guide-to-choosing-the-perfect-game-ready-mic/"><u>Professional Gamer's Guide to Choosing the Perfect Game-Ready Mic</u></a></li>
+<li><a href="https://discover-extraordinary.techidaily.com/restore-deleted-emails-in-gmail-a-simple-guide/"><u>Restore Deleted Emails in Gmail: A Simple Guide</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/secure-win-web-access-testing-connectivity-stability/"><u>Secure Win Web Access: Testing Connectivity Stability</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-7-strategies-for-delicious-food-vids-for-2024/"><u>Top 7 Strategies for Delicious Food Vids for 2024</u></a></li>
+</ul></div>
 

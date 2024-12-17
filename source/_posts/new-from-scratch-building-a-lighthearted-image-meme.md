@@ -1,7 +1,7 @@
 ---
 title: "\"[New] From Scratch  Building a Lighthearted Image Meme\""
-date: 2024-12-04T02:57:19.966Z
-updated: 2024-12-10T20:44:10.391Z
+date: 2024-12-15T04:46:38.329Z
+updated: 2024-12-16T21:04:15.599Z
 tags: 
   - screen-recording
   - ai video
@@ -27,15 +27,15 @@ Let’s start off!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. What exactly is a meme?
 
 A meme is an image that is passed around online and is accompanied by some form of writing. These memes typically offer sharp criticism on cultural icons, societal concepts, or current events. A meme is often an image or a video, although it can also take the form of a string of words in some cases. When a meme strikes a chord with a large number of people, it begins to circulate through various social platforms such as Twitter, Facebook, Instagram, messaging, and other methods. The more the number of times a meme is shared, the more of an impact it has on culture.
 
 ![grandpa meme image](https://images.wondershare.com/filmora/article-images/2022/11/grandpa-meme-image.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 2\. When did memes become a thing online?
 
@@ -48,7 +48,7 @@ People's lives are becoming increasingly influenced by the internet and various 
 ![create an online meme](https://images.wondershare.com/filmora/article-images/2022/11/create-an-online-meme.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vQbNyknjJJ8?si=RGVIEWLdPbvRC_r6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/iPCr_bxZjMQ?si=ubOsoq5umPEXL9xL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 3\. How do you make a meme?
@@ -63,6 +63,10 @@ Step3 You may show your finished work to your coworkers or friends by saving and
 
 ![customize a meme image](https://images.wondershare.com/filmora/article-images/2022/11/customize-a-meme-image.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Memes are a fantastic way to communicate with friends, family, and coworkers. They're also really simple to create! No prior tool experience is necessary. Absolutely! Use [Filmora's](https://tools.techidaily.com/wondershare/filmora/download/) GIF function to quickly convert any video clip into an animated GIF meme that you can share with others.
 
 ## 4\. Researching trending memes
@@ -70,10 +74,6 @@ Memes are a fantastic way to communicate with friends, family, and coworkers. Th
 Through the years, many different styles of memes have come and gone. You don't want to rely on methods that have since become obsolete. Do some research to find out what's trending by looking through old memes. Also, pay attention to the memes that other people are posting wherever it is on the internet that you spend the majority of your time. It doesn't matter if it's Reddit, Facebook, Instagram, or Twitter.
 
 Try to locate recent memes by browsing subreddits such as r/memes and r/dankmemes. In addition, there are times when a particular category of meme becomes popular. In that case, you should give those memes a shot and see if you can make them. For instance, Bernie Sanders was a topic of conversation for a few days not too long ago.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 5\. Share your meme
 
@@ -84,11 +84,11 @@ If neither of these techniques works for you, another option is to use image edi
 ![share your meme image](https://images.wondershare.com/filmora/article-images/2022/11/share-your-meme-image.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jjGL9wFdlbo?si=Vb1JgZqRXNc03UGG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -125,17 +125,22 @@ And that’s it! Some of the most popular meme producers on the internet have so
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-elevate-vfx-on-tiktok-videos/"><u>[New] In 2024, Elevate VFX on TikTok Videos</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-in-2024-legal-framework-the-fine-print-for-facebook-video-postings/"><u>[New] In 2024, Legal Framework The Fine Print for Facebook Video Postings</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-mastering-unmarred-photography-collections-purchase-for-2024/"><u>[New] Mastering Unmarred Photography Collections Purchase for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/new-perfect-pairing-finding-top-beats-for-unwrapping-videos/"><u>[New] Perfect Pairing Finding Top Beats for Unwrapping Videos</u></a></li>
-<li><a href="https://youtube-lab.techidaily.com/ed-charting-the-course-a-comprehensive-guide-to-youtube-teaser-vids/"><u>[Updated] Charting the Course A Comprehensive Guide to YouTube Teaser Vids</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-cutting-edge-video-editing-software-guide-for-windows-creatives/"><u>[Updated] Cutting-Edge Video Editing Software Guide for Windows Creatives</u></a></li>
-<li><a href="https://video-capture.techidaily.com/2024-approved-streamlining-virtual-meetings-best-practices-for-teams/"><u>2024 Approved Streamlining Virtual Meetings Best Practices for Teams</u></a></li>
-<li><a href="https://network-issues.techidaily.com/eliminating-erratic-windows-7-displays/"><u>Eliminating Erratic Windows 7 Displays</u></a></li>
-<li><a href="https://facebook.techidaily.com/1719146902767-facebook-enhances-chat-security-with-new-encrypted-messaging-features/"><u>Facebook Enhances Chat Security with New Encrypted Messaging Features</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-immaculatepixels-prograde-background-elimination/"><u>In 2024, ImmaculatePixels Prograde Background Elimination</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/review-of-the-ix-smart-escort-detection-device-a-cutting-edge-gadget-that-learns-your-routes/"><u>Review of the iX Smart Escort Detection Device: A Cutting-Edge Gadget That Learns Your Routes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/seamless-video-text-illusion-with-free-tools-for-2024/"><u>Seamless Video Text Illusion with Free Tools for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-pillow-talk-with-prodigies-asmr-voices-for-slumber/"><u>[New] 2024 Approved Pillow Talk with Prodigies ASMR Voices for Slumber</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-examining-the-economics-pewdiepies-annual-income-for-2024/"><u>[New] Examining the Economics PewDiePie's Annual Income for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-first-row-fun-beyond-the-game-top-alternatives-for-2024/"><u>[New] First Row Fun Beyond the Game Top Alternatives for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-guide-to-the-most-preferred-free-video-players-our-best-12-picks-pcmobile/"><u>[New] Guide to the Most Preferred Free Video Players Our Best 12 Picks (PC/Mobile)</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-in-2024-reinstate-lost-video-icon-in-facebook-watch/"><u>[New] In 2024, Reinstate Lost Video Icon in Facebook Watch</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/btain-exclusive-free-media-from-elite-4-youtube-clips-for-2024/"><u>[New] Obtain Exclusive Free Media From Elite 4 YouTube Clips for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-dynamic-title-creation-the-game-changer/"><u>[Updated] 2024 Approved Dynamic Title Creation The Game Changer</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-streamers-guide-to-choosing-a-video-player-vlc-vs-mpc/"><u>[Updated] 2024 Approved Streamer's Guide to Choosing a Video Player VLC Vs. MPC</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-best-translation-devices-to-subtitle-videos/"><u>[Updated] In 2024, Best Translation Devices to Subtitle Videos</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/updated-in-2024-leading-5-digital-videography-devices/"><u>[Updated] In 2024, Leading 5 Digital Videography Devices</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-in-2024-transforming-digital-art-with-free-versatile-lut-tools/"><u>[Updated] In 2024, Transforming Digital Art with Free, Versatile LUT Tools</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/2024-approved-navigating-inter-service-playlist-shuffling-with-ease/"><u>2024 Approved Navigating Inter-Service Playlist Shuffling with Ease</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/an-in-depth-look-at-video-apps-for-iphone-and-android-users-for-2024/"><u>An In-Depth Look at Video Apps for iPhone & Android Users for 2024</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/easy-troubleshooting-putting-broken-laptop-key-switches-back-in-place/"><u>Easy Troubleshooting: Putting Broken Laptop Key Switches Back in Place</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-hot-picks-best-free-screen-recorders-for-windows-users/"><u>In 2024, Hot Picks Best Free Screen Recorders For Windows Users</u></a></li>
+<li><a href="https://fake-location.techidaily.com/ultimate-guide-to-free-pptp-vpn-for-beginners-on-huawei-p60-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Free PPTP VPN For Beginners On Huawei P60 | Dr.fone</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-realme-v30t-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Realme V30T Users</u></a></li>
 </ul></div>
 

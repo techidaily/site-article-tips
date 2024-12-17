@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Chasing Titles  Key Moments From 2022 Olympics Short Tracks\""
-date: 2024-12-04T17:02:07.037Z
-updated: 2024-12-10T21:01:17.370Z
+date: 2024-12-10T06:57:40.173Z
+updated: 2024-12-16T21:37:23.434Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/AQn0MYjIfyI?si=rIdjT-qMRpjpJXXa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
@@ -58,7 +54,7 @@ Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian na
 ![ren ziwei shoved hungarian](https://images.wondershare.com/filmora/article-images/ren-ziwei-shoved-hungarian.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eu4vwlZcMvM?si=4vEczfVU4BUUFP-t" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
@@ -70,12 +66,20 @@ The last leg of competition among skaters before reaching the finishing line at 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XS1nQCe95LU?si=A2dhdFkSAI61_nKA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/S3Th6oa_isA?si=TTQ013BB9beUM4x6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qfCSLAhd4FY?si=CUBztmilaeAwl1lw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -90,10 +94,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -114,7 +114,7 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
@@ -150,16 +150,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-experts-take-on-magix-video-pro-x/"><u>[New] 2024 Approved Expert's Take on Magix Video Pro X</u></a></li>
-<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-ace-search-engine-rankings-on-youtube-11-proven-seo-methods/"><u>[New] In 2024, Ace Search Engine Rankings on YouTube 11 Proven SEO Methods</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-innovations-arena-top-titles-for-each-vr-headset-for-2024/"><u>[New] Innovation's Arena Top Titles for Each VR Headset for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-beyond-illusions-demystifying-the-tri-fold-of-digital-experiences-mr-ar-and-vr/"><u>[Updated] 2024 Approved Beyond Illusions Demystifying the Tri-Fold of Digital Experiences (MR, AR, and VR)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-examining-benq-sw320-the-4k-visionary/"><u>[Updated] 2024 Approved Examining BenQ SW320 The 4K Visionary</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-in-2024-capturing-memories-efficiently-phones-screen-save-for-snaps/"><u>[Updated] In 2024, Capturing Memories Efficiently Phones' Screen Save for Snaps</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/cambiar-formatos-de-archivo-automaticamente-con-movavi-convertir-aif-a-m4r-sin-coste/"><u>Cambiar Formatos De Archivo Automáticamente Con Movavi: Convertir AIF a M4R Sin Coste</u></a></li>
-<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-gps-joystick-to-fake-gps-location-on-apple-iphone-13-drfone-by-drfone-virtual-ios/"><u>Complete Tutorial to Use GPS Joystick to Fake GPS Location On Apple iPhone 13 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-ultimate-resource-compilation-for-media-imagery/"><u>In 2024, Ultimate Resource Compilation for Media Imagery</u></a></li>
-<li><a href="https://change-location.techidaily.com/the-best-ispoofer-alternative-to-try-on-xiaomi-civi-3-disney-100th-anniversary-edition-drfone-by-drfone-virtual-android/"><u>The Best iSpoofer Alternative to Try On Xiaomi Civi 3 Disney 100th Anniversary Edition | Dr.fone</u></a></li>
-<li><a href="https://discover-bytes.techidaily.com/top-10-free-antivirus-software-of-2cuary-protect-your-system-without-spending-a-dime/"><u>Top 10 Free Antivirus Software of 2Cuary: Protect Your System Without Spending a Dime</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-advanced-techniques-for-precise-online-image-cropping-for-2024/"><u>[New] Advanced Techniques for Precise Online Image Cropping for 2024</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/updated-top-websites-for-rhythmic-alerts-unique-sounds-for-2024/"><u>[Updated] Top Websites for Rhythmic Alerts Unique Sounds for 2024</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-troubleshoot-facebook-live-pause-strategies-for-smooth-broadcasts/"><u>[Updated] Troubleshoot Facebook Live Pause Strategies for Smooth Broadcasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-archiving-your-favorites-the-complete-list-of-9-podcast-recording-steps/"><u>2024 Approved Archiving Your Favorites The Complete List of 9 Podcast Recording Steps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-exposing-the-invisible-voices-of-yt-community/"><u>2024 Approved Exposing the Invisible Voices of YT Community</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-family-bonding-through-film-the-ultimate-classics-list/"><u>2024 Approved Family Bonding Through Film The Ultimate Classics List</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-mastering-gopro-videos-the-ultimate-guide/"><u>2024 Approved Mastering Gopro Videos The Ultimate Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-secrets-to-unlocking-costless-image-streams/"><u>2024 Approved Secrets to Unlocking Costless Image Streams</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-srt-to-sub-guide-practical-conversion-methods/"><u>2024 Approved SRT to SUB Guide Practical Conversion Methods</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-entrepreneurial-roadmap-for-starting-an-online-product-critique-site/"><u>2024 Approved The Entrepreneurial Roadmap for Starting an Online Product Critique Site</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-the-ultimate-list-of-bestiary-8-ios-drawing-software-winners/"><u>2024 Approved The Ultimate List of Bestiary 8 iOS Drawing Software Winners</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-unleashing-potential-in-4k-with-top-gimbals-selection/"><u>2024 Approved Unleashing Potential in 4K with Top Gimbals Selection</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/easy-fixes-for-asus-laptops-unresponsive-display/"><u>Easy Fixes for Asus Laptop's Unresponsive Display</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/effortless-conversion-the-top-5-methods-for-changing-avi-files-into-mpeg-format/"><u>Effortless Conversion: The Top 5 Methods for Changing AVI Files Into MPEG Format</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/how-to-move-custom-ringtones-from-apple-iphone-11-to-android-drfone-by-drfone-transfer-from-ios/"><u>How to Move Custom Ringtones from Apple iPhone 11 to Android? | Dr.fone</u></a></li>
+<li><a href="https://techidaily.com/how-to-soft-reset-xiaomi-redmi-12-phone-drfone-by-drfone-reset-android-reset-android/"><u>How to Soft Reset Xiaomi Redmi 12 phone? | Dr.fone</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/in-2024-tips-for-sharing-content-on-instagram/"><u>In 2024, Tips for Sharing Content on Instagram</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/step-by-step-intel-raid-driver-update-process-ensure-compatibility-with-your-windows-11-10-8-or-7-pc/"><u>Step-by-Step Intel RAID Driver Update Process - Ensure Compatibility with Your Windows 11, 10, 8 or 7 PC</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/est-asmr-youtube-channels-for-2024/"><u>The Best ASMR YouTube Channels for 2024</u></a></li>
 </ul></div>
 

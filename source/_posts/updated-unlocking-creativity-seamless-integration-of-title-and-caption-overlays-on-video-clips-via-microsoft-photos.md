@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Creativity  Seamless Integration of Title & Caption Overlays on Video Clips via Microsoft Photos\""
-date: 2024-12-07T20:12:42.833Z
-updated: 2024-12-11T03:10:48.399Z
+date: 2024-12-12T07:56:22.142Z
+updated: 2024-12-16T19:36:08.778Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
@@ -57,7 +57,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
@@ -65,7 +65,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -86,7 +86,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/attach-effects-photos-min.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To increase or decrease the length of animation time, adjust the slider
@@ -96,7 +96,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -130,21 +130,16 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-webster.techidaily.com/024-approved-discover-the-best-in-class-our-list-of-12-high-performing-flip-cameras/"><u>[New] 2024 Approved Discover the Best in Class Our List of 12 High-Performing Flip Cameras</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-decoding-inshot-the-ultimate-video-editing-tool/"><u>[New] Decoding InShot The Ultimate Video Editing Tool</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-from-laggard-to-lightning-pick-8-apps-now-for-2024/"><u>[New] From Laggard to Lightning Pick 8 Apps Now for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-building-better-montages-a-creative-guide/"><u>[New] In 2024, Building Better Montages A Creative Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-conquering-remote-work-mastering-the-use-of-zoom-and-gmail/"><u>[New] In 2024, Conquering Remote Work Mastering the Use of Zoom and Gmail</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-superior-alert-sound-pick-optimal-websites/"><u>[New] In 2024, Superior Alert Sound Pick Optimal Websites</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ultimate-guide-to-7-superior-video-players-on-mac/"><u>[Updated] 2024 Approved Ultimate Guide to 7 Superior Video Players on Mac</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-gopro-hero4-vs-drift-ghost-ultimate-performance-showdown/"><u>[Updated] GoPro Hero4 Vs. Drift Ghost - Ultimate Performance Showdown</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-kinemasters-guide-engineering-impeccable-video-continuity-for-2024/"><u>[Updated] Kinemaster's Guide Engineering Impeccable Video Continuity for 2024</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-olyx-zones-the-creme-de-la-snowspeedcross/"><u>[Updated] OlyX-Zones The Crème De La Snowspeedcross</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-palette-strategies-utilizing-color-science-in-art/"><u>[Updated] Palette Strategies Utilizing Color Science in Art</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-the-ultimate-guide-to-capturing-and-editing-high-quality-slow-motion-videos-for-instagram/"><u>2024 Approved The Ultimate Guide to Capturing and Editing High-Quality Slow Motion Videos for Instagram</u></a></li>
-<li><a href="https://discover-cloud.techidaily.com/a-step-by-step-guide-on-how-to-automate-onedrive-file-backup-onto-a-synology-diskstation/"><u>A Step-by-Step Guide on How to Automate OneDrive File Backup Onto a Synology DiskStation</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/can-t-view-hevc-h-265-content-on-redmi-note-13-5g-by-aiseesoft-video-converter-play-hevc-video-on-android/"><u>Can’t view HEVC H.265 content on Redmi Note 13 5G</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/enhancing-user-experience-building-a-web-app-with-gpt-3/"><u>Enhancing User Experience: Building a Web App with GPT-3</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/how-to-convert-avchd-mts-to-mp4-for-samsung-galaxy-m34-by-aiseesoft-video-converter-play-mts-on-android/"><u>How to convert AVCHD MTS to MP4 for Samsung Galaxy M34?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-cutting-edge-techniques-for-vce-22-optimization/"><u>[New] Cutting Edge Techniques for VCE 2.2 Optimization</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-top-6-efficient-urban-minecraft-residences/"><u>[New] Top 6 Efficient Urban Minecraft Residences</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-how-to-use-luts-in-premiere-pro/"><u>[Updated] How To Use LUTs In Premiere Pro</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-instagrams-best-practices-for-influential-engagement-top-5-tips-with-examples/"><u>[Updated] In 2024, Instagram's Best Practices for Influential Engagement Top 5 Tips with Examples</u></a></li>
+<li><a href="https://facebook-video-footage.techidaily.com/updated-love-in-full-bloom-top-7-premium-marriage-films-from-youtube-and-vimeo/"><u>[Updated] Love in Full Bloom Top 7 Premium Marriage Films From YouTube and Vimeo</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-pro-anglers-choice-the-top-5-cameras-for-fishing/"><u>[Updated] Pro Angler's Choice The Top 5 Cameras For Fishing</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/2024-approved-cutting-edge-screen-recorders-our-10-best-selections/"><u>2024 Approved Cutting-Edge Screen Recorders Our 10 Best Selections</u></a></li>
+<li><a href="https://fox-tls.techidaily.com/boost-your-pcs-memory-efficiency-tips-and-tricks-powered-by-yl-computing/"><u>Boost Your PC's Memory Efficiency: Tips and Tricks - Powered by YL Computing</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-full-guide-to-unlock-your-samsung-galaxy-a34-5g-by-drfone-android/"><u>In 2024, Full Guide to Unlock Your Samsung Galaxy A34 5G</u></a></li>
+<li><a href="https://blog-min.techidaily.com/long-term-performance-testing-of-oneplus-watch-2-the-ultimate-guide-to-the-best-android-smartwatches/"><u>Long-Term Performance Testing of OnePlus Watch 2: The Ultimate Guide to the Best Android Smartwatches.</u></a></li>
+<li><a href="https://article-tips.techidaily.com/sounds-of-laughter-top-ringtones-downloaders/"><u>Sounds of Laughter Top Ringtones Downloaders</u></a></li>
 </ul></div>
 

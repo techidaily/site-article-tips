@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mobile Mastery  High Shots with Your Smartphone\""
-date: 2024-12-03T17:17:04.678Z
-updated: 2024-12-10T16:13:10.423Z
+date: 2024-12-11T00:32:45.420Z
+updated: 2024-12-16T19:35:49.997Z
 tags: 
   - screen-recording
   - ai video
@@ -40,17 +40,13 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qv4Qm7kpeMs?si=9fv5SOS5a2DvixTK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### For iPhone users
 
@@ -61,13 +57,17 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wVVp-GggK3U?si=RJb1ClNQV7GjTu_3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For Android users
@@ -80,7 +80,7 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image source: mac-fusion
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,19 +127,16 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-record-videos.techidaily.com/new-breaking-boundaries-coordinated-video-watch-across-channels-for-2024/"><u>[New] Breaking Boundaries Coordinated Video Watch Across Channels for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-crafting-gopro-professionals-a-filmmaking-guide-for-2024/"><u>[New] Crafting GoPro Professionals A Filmmaking Guide for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-expert-strategies-for-finding-no-cost-art-for-2024/"><u>[New] Expert Strategies for Finding No-Cost Art for 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-insearchofimprovedcameratech-beyond-mycam/"><u>[New] In 2024, InSearchOfImprovedCameraTech Beyond MyCam</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-zooms-path-to-visual-impact-adding-video-filters-tutorial/"><u>[New] In 2024, Zoom's Path to Visual Impact Adding Video Filters Tutorial</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-embracing-metaverse-characters-a-guide-to-seamless-avatars-for-2024/"><u>[Updated] Embracing Metaverse Characters A Guide to Seamless Avatars for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-virtual-frontiers-the-ultimate-guide-to-metavision-in-science-fiction-cinema-for-2024/"><u>[Updated] Virtual Frontiers The Ultimate Guide to Metavision in Science Fiction Cinema for 2024</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/515-yes-please-secure-your-hp-victus-n-gaming-powerhouse-before-it-sells-out-on-best-buys-exclusive-anti-prime-deal-tips-by-zdnet/"><u>$515? Yes, Please! Secure Your HP Victus N Gaming Powerhouse Before It Sells Out on Best Buy's Exclusive Anti-Prime Deal | Tips by ZDNET</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/acer-aspire-e15-compatible-drivers-for-windows-11-get-them-here/"><u>Acer Aspire E15 Compatible Drivers for Windows 11 – Get Them Here!</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/fuhrende-programme-zum-umwandeln-von-youtube-videos-in-mp3-fur-macos-kostenlos-and-aktuell-2017-2018/"><u>Führende Programme Zum Umwandeln Von YouTube Videos in MP3 Für macOS, Kostenlos & Aktuell 2017-2018</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-realme-c53-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Realme C53</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-unparalleled-dramatic-audio-experiences/"><u>In 2024, Unparalleled Dramatic Audio Experiences</u></a></li>
-<li><a href="https://common-error.techidaily.com/1723211976864-keyboard-troubleshooting-tips-for-windows-1011-get-your-typing-back-on-track/"><u>Keyboard Troubleshooting Tips for Windows 10/11 - Get Your Typing Back On Track</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/lg-virtual-reality-innovation-a-detailed-review-for-2024/"><u>LG Virtual Reality Innovation A Detailed Review for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-digital-dreamscape-mapping-vrs-progress/"><u>[New] In 2024, Digital Dreamscape Mapping VR's Progress</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-ipad-timelapse-essentials-for-beginners-for-2024/"><u>[New] IPad Timelapse Essentials for Beginners for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-most-reliable-iphones-podcast-services/"><u>[New] Most Reliable iPhones Podcast Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-ultimate-guide-to-stretched-seconds-capturing-slow-mo-videos-using-mobile-apps-and-internet-platforms/"><u>[New] The Ultimate Guide to Stretched Seconds Capturing Slow-Mo Videos Using Mobile Apps and Internet Platforms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-revolutionize-iphone-images-turn-them-sideways-and-upside-down/"><u>[Updated] In 2024, Revolutionize iPhone Images Turn Them Sideways & Upside Down</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unlocking-tiktok-video-potential-with-zoom/"><u>[Updated] In 2024, Unlocking TikTok Video Potential with Zoom</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-lenovos-easy-pathway-to-screen-recording/"><u>[Updated] Lenovo's Easy Pathway to Screen Recording</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/2024-approved-high-staking-rituals-player-views/"><u>2024 Approved HIGH-STAKING RITUALS Player Views</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/a-fitness-buffs-blueprint-to-optimizing-chatgpt-interactions-and-prompts/"><u>A Fitness Buff's Blueprint to Optimizing ChatGPT Interactions and Prompts</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-vivo-v27-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Vivo V27 Through Google Earth?</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/top-prime-day-discounts-unmissable-savings-on-benq-screens-and-projectors/"><u>Top Prime Day Discounts: Unmissable Savings on BenQ Screens and Projectors</u></a></li>
 </ul></div>
 

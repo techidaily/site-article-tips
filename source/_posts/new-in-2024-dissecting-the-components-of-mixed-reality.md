@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Dissecting the Components of Mixed Reality"
-date: 2024-08-15T08:57:04.147Z
-updated: 2024-08-16T08:57:04.147Z
+date: 2024-12-24T16:26:33.364Z
+updated: 2024-12-25T17:48:35.261Z
 tags: 
   - screen-recording
   - ai video
@@ -32,23 +32,22 @@ thumbnail: https://thmb.techidaily.com/596dd6315d1559e3cb5b3aa52b6f2b9825ab34a39
 
  In mixed reality, the user is given the ability to explore the virtual environment and the real world seamlessly at the same time. Through the use space and coordinates, the virtual objects will be positioned on the real world and whenever you move towards the virtual objects, they become larger while moving away from them makes them smaller. Moving around the virtual objects will also give you different angles and perspectives. Additionally, mixed reality will allow users to manipulate the virtual objects and interact with them as if they were with them in the same place.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4599952&QTY=1&AFFILIATE=108875&CART=1"><iframe width="864" height="500" src="https://www.youtube.com/embed/jVnfr5HudQw" title="The Latest and Easiest Solution to Remove Kindle DRM on Windows (without Degrading)" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>Epubor Ultimate for Mac:Helps you read books anywhere, including the best eBook Converter + eBook DRM Removal functions.</a>
-<!-- affiliate ads end -->
 ## How does Mixed Reality work
 
  With the development of the technology is shrouded in secrecy by the major players, all that is known on the operations of the technology is that it uses virtual reality and augmented reality as well as space and coordinates. Magic Leap is the company at the forefront in the development of mixed reality and they have remained tight lipped about the finer details of what they are doing or developing. The scanty details we know however, suggests that just like Hololens, mixed reality will use a projector for displaying images on semi transparent materials which will then be reflected to the eye with the help of beam-splitting technology.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729320&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/2_iDeviceMessageBox.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Applications of Mixed Reality
 
  Due to the unique features and experiences offered by mixed reality, businesses, developers and the world in general is beginning to explore the various ways to utilize the technology for the best possible results. Currently, fields such as medicine, architecture and urban planning and education and training appear to be the greatest beneficiary of mixed reality technology.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4631722&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2023/05/frontpage2-2048x588.webp" border="0">EmEditor Professional (Lifetime License, non-store app)</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Mixed Reality for sharing real-world virtual workspaces
 
  When multiple mixed reality devices are brought into a shared space, there will be the creation of new collaboration options. Through mixed reality, members of a team can network in a shared virtual world overlaid in the physical world. A connected environment will thus be created where workers can collaborate and work together and interact with virtual items in the real world. This will be made possible by the utilization of image recognition and real time mapping capabilities of mixed realities.
@@ -56,15 +55,17 @@ thumbnail: https://thmb.techidaily.com/596dd6315d1559e3cb5b3aa52b6f2b9825ab34a39
  Sharing real world virtual spaces through mixed reality can be especially beneficial for sales team when making a pitch for a new offer. For instance, a pharmaceutical sales rep can carry along two mixed reality devices to an appointment with the doctor. The doctor and the sales rep can then both wear the devices and see a model of the new drug as explained by the sales rep. Through this, they can then visualize the chemical composition of the drug and also simulate how the drug will move in the body to fight diseases. Through such a shared experience, the sales rep will not only build deeper connections with the doctor, but also offer a more detailed explanation on the product being offered.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068407/7443" target="_top" id="2068407"><img src="//a.impactradius-go.com/display-ad/7443-2068407" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068407/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### Mixed reality for remote experts – over the shoulder coaching
 
  Most enterprises usually find it difficult to address all the support requests from all the clients in need of expert advice. It is not only costly to fly in specialists to fix things in different locations, but also time consuming. Besides, it is never adequate to troubleshoot an issue over the phone and video conferencing in such situations also have its limitations. But all these can now be avoided through the application of mixed reality for offering over the shoulder coaching remotely. With mixed reality, access to experts can be done quickly and inexpensively. For example, doctors in the healthcare industry can offer guidance and decisions to students or other doctors without the need of being in the actual locations.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37701530&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6fe0c81e3f9438db11ebbfba6c5ce460/products/copy_cbLogo_with_text_blue.png" border="0">CalendarBudget - Monthly subscription membership to CalendarBudget via web browser or mobile app. Support included. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## The future of mixed reality
 
  Mixed reality comes along with immeasurable potential of changing how people work, interact and communicate with the real world. As the technology matures and the accompanying devices get smaller, it is expected that various sectors and industries will adopt the use of mixed reality in their day to day operations.
@@ -74,8 +75,9 @@ thumbnail: https://thmb.techidaily.com/596dd6315d1559e3cb5b3aa52b6f2b9825ab34a39
  Also, since mixed reality experiences take place in the physical world, individuals are likely to react to them more emotionally than to a mere digital experience. As the technology develops, it is imperative for developers as well as the intended users to be aware of such issues and be ready to address them accordingly.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/benjamin-arango-author.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Benjamin Arango
@@ -101,4 +103,26 @@ Follow @Benjamin Arango
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-5-breakthrough-ways-to-preserve-precise-moments-in-vr-games/"><u>[New] 2024 Approved 5 Breakthrough Ways to Preserve Precise Moments in VR Games</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-calculated-viewing-time-for-a-standard-20mb-film/"><u>[New] 2024 Approved Calculated Viewing Time for a Standard 20Mb Film</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-2024-approved-ultimate-list-of-phone-editors-for-gopro-content/"><u>[New] 2024 Approved Ultimate List of Phone Editors for GoPro Content</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-auroras-high-dynamic-range-a-game-changer-in-2024/"><u>[New] Aurora's High Dynamic Range A Game Changer, In 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-comparative-evaluation-of-cost-effective-clouds/"><u>[New] Comparative Evaluation of Cost-Effective Clouds</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-high-altitude-heroes-aerospaces-persistent-innovations-top-10/"><u>[New] High Altitude Heroes Aerospace's Persistent Innovations (Top 10)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-top-20-youtube-bards-for-unforgettable-tales-for-2024/"><u>[New] Top 20 YouTube Bards for Unforgettable Tales for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ppro-full-screen-showcase-made-simple/"><u>[Updated] 2024 Approved PPro Full-Screen Showcase Made Simple</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-luminous-videos-unveiling-5-pioneering-apps/"><u>[Updated] In 2024, Luminous Videos Unveiling 5 Pioneering Apps</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/2024-approved-tips-for-crafting-effective-igtv-titles-and-summaries/"><u>2024 Approved Tips for Crafting Effective IGTV Titles & Summaries</u></a></li>
+<li><a href="https://driver-download.techidaily.com/expert-guide-repairing-a-nonfunctional-samsung-blu-ray-player-efficiently/"><u>Expert Guide: Repairing a Nonfunctional Samsung Blu-Ray Player Efficiently</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-bypass-icloud-activation-lock-on-mac-for-apple-iphone-6s-plus-by-drfone-ios/"><u>How To Bypass iCloud Activation Lock on Mac For Apple iPhone 6s Plus?</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/how-to-fix-icloud-lock-from-your-apple-iphone-14-and-ipad-by-drfone-ios/"><u>How to fix iCloud lock from your Apple iPhone 14 and iPad</u></a></li>
+<li><a href="https://program-issues.techidaily.com/how-to-overcome-launch-problems-in-avatar-pandora-edition-tips-and-solutions/"><u>How To Overcome Launch Problems in Avatar: Pandora Edition – Tips and Solutions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/masterclass-in-capturing-conversations-for-later-review-for-2024/"><u>Masterclass in Capturing Conversations for Later Review for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastery-of-photo-date-annotation-methods-for-2024/"><u>Mastery of Photo Date Annotation Methods for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/prime-cut-film-highlights-for-2024/"><u>Prime Cut Film Highlights for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/two-effective-methods-for-updating-applications-on-macos-explained-by-zdnet/"><u>Two Effective Methods for Updating Applications on macOS Explained by ZDNet</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/zdnet-reviews-the-highly-capacitated-entry-level-battery-the-ecoflow-river-3-ranking-amongst-best-in-its-class/"><u>ZDNet Reviews the Highly Capacitated Entry Level Battery, The EcoFlow River 3 - Ranking Amongst Best in Its Class!</u></a></li>
+</ul></div>
 

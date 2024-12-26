@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Rapid Races Recap  Olympic 2022 Short-Track Sprints\""
-date: 2024-12-16T02:58:19.081Z
-updated: 2024-12-17T05:50:04.838Z
+date: 2024-12-20T18:03:28.644Z
+updated: 2024-12-25T18:38:43.758Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
@@ -42,12 +46,16 @@ Canada’s Steven Dubois wins the silver medal.
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
@@ -61,6 +69,10 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
@@ -68,14 +80,6 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -92,7 +96,7 @@ To create such a highlight video on any sports event, there are certain videos e
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
@@ -112,10 +116,6 @@ For macOS 10.12 or later
 Step 1: Download and install Filmora on your computer. Launch the application and click on New Project.
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
@@ -150,22 +150,17 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-free-form-funny-meme-tools-on-a-shoestring-budget-for-2024/"><u>[New] Free-Form Funny Meme Tools on a Shoestring Budget for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-green-screen-templates-free-download-videography-and-filmmaking-for-2024/"><u>[New] Green Screen Templates Free Download – Videography, and Filmmaking for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-best-software-a-gamers-livestream-compendium/"><u>[New] In 2024, Best Software A Gamers' Livestream Compendium</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-how-to-turn-off-default-recommended-podcast-listings-in-spotify/"><u>[New] In 2024, How to Turn Off Default Recommended Podcast Listings in Spotify</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-10-memetic-design-innovators-choices/"><u>[Updated] 10 Memetic Design Innovators' Choices</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/updated-gunners-gratitude-discovering-our-top-7-shooter-games/"><u>[Updated] Gunner's Gratitude Discovering Our Top 7 Shooter Games</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-essential-list-of-20-budget-friendly-1tbplus-cloud-space-providers-for-2024/"><u>[Updated] The Essential List of 20 Budget-Friendly, 1TB+ Cloud Space Providers for 2024</u></a></li>
-<li><a href="https://fox-links.techidaily.com/2024-approved-laughlineart-memogallery/"><u>2024 Approved LaughLineArt MemoGallery</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/approved-profit-strategies-in-youtube-marketing/"><u>2024 Approved Profit Strategies in YouTube Marketing</u></a></li>
-<li><a href="https://techidaily.com/best-fixes-for-itel-s23-hard-reset-drfone-by-drfone-reset-android-reset-android/"><u>Best Fixes For Itel S23 Hard Reset | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/dynamic-hues-the-artists-toolkit-for-change-for-2024/"><u>Dynamic Hues The Artist's Toolkit for Change for 2024</u></a></li>
-<li><a href="https://facebook.techidaily.com/enjoy-personalized-playlists-on-a-smaller-screen-spotify-in-fb/"><u>Enjoy Personalized Playlists on a Smaller Screen - Spotify in FB</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/everything-you-need-to-know-about-unlocked-iphone-6s-plus-drfone-by-drfone-ios/"><u>Everything You Need To Know About Unlocked iPhone 6s Plus | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-into-the-future-jaunt-vrs-potential-explored/"><u>In 2024, Into the Future Jaunt VR's Potential Explored</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-prestigious-archive-open-source-photo-galleries/"><u>In 2024, Prestigious Archive Open-Source Photo Galleries</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/reviving-a-dead-microsoft-mouse-fixing-bluetooth-connectivity-problems-in-windows/"><u>Reviving a Dead Microsoft Mouse: Fixing Bluetooth Connectivity Problems in Windows</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/unlock-enhanced-ai-capabilities-the-ultimate-list-of-premium-chatgpt-plus-plugins/"><u>Unlock Enhanced AI Capabilities: The Ultimate List of Premium ChatGPT Plus Plugins</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastery-in-digital-media-srgb-preference/"><u>[New] 2024 Approved Mastery in Digital Media Srgb Preference</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-xiaomi-mi-11-a-guide-to-screen-recording-pro/"><u>[New] 2024 Approved Xiaomi Mi 11 A Guide to Screen Recording Pro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-a-comprehensible-approach-to-adding-dates-on-youtube-videos-for-2024/"><u>[New] A Comprehensible Approach to Adding Dates on YouTube Videos for 2024</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/levating-your-youtube-experience-tips-on-channel-art-and-sizes-for-2024/"><u>[New] Elevating Your YouTube Experience Tips on Channel Art and Sizes for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-audfreemasterclass-deciphering-extraction-features/"><u>[New] In 2024, AudFreeMasterclass Deciphering Extraction Features</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/n-2024-techno-gamers-income-revolution/"><u>[New] In 2024, Techno Gamers' Income Revolution</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/new-leading-graphics-tech-for-uhd-videography/"><u>[New] Leading Graphics Tech for UHD Videography</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-generate-10-official-travel-ready-passport-images-no-money-down/"><u>[Updated] 2024 Approved Generate 10 Official Travel-Ready Passport Images, No Money Down</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-guide-to-earning-money-on-reddit-for-beginners/"><u>[Updated] The Ultimate Guide to Earning Money on Reddit for Beginners</u></a></li>
+<li><a href="https://win-popular.techidaily.com/exclusive-premium-football-visuals-for-pc-full-hd-wallsavers-from-yl-software-innovations/"><u>Exclusive Premium Football Visuals for PC: Full HD Wallsavers From YL Software Innovations</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/how-to-identify-premium-hassle-free-free-srt-translator-services/"><u>How to Identify Premium, Hassle-Free Free SRT Translator Services</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/in-2024-bold-transitions-a-beginners-guide-to-fades/"><u>In 2024, Bold Transitions A Beginner's Guide to Fades</u></a></li>
 </ul></div>
 

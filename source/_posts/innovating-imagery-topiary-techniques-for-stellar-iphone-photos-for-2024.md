@@ -1,7 +1,7 @@
 ---
 title: "\"Innovating Imagery  Topiary Techniques for Stellar iPhone Photos for 2024\""
-date: 2024-08-22T16:36:09.383Z
-updated: 2024-08-23T16:36:09.383Z
+date: 2024-12-19T21:42:56.895Z
+updated: 2024-12-25T18:54:14.024Z
 tags: 
   - screen-recording
   - ai video
@@ -38,6 +38,10 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
 ![close-up-angle.](https://images.wondershare.com/filmora/article-images/close-up-angle.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Care Solutions
 
  A close up is the type of shot that depicts only a small fraction of a scene or a detail. These shots are frequently used for portraits that show only a portion of a human face or some interesting detail. Furthermore, product photography relies heavily on close-ups because it often depicts fruit, and all sorts of tiny objects, that would be too small to photograph in a wide-angle shot.
@@ -58,6 +62,10 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
 ![straight-shots-iphone](https://images.wondershare.com/filmora/article-images/straight-shots-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Digital Photography Review
 
  Raising your head up from time to time to see what is directly above you, may not be such a bad idea for any aspiring iPhone photographer because it will enable you to snap a photo from a unique perspective. Forests, skyscrapers or starry skies are all perfect scenery for straight up shots, however, if the scene doesn't have enough light try to avoid holding your iPhone in your hand, because you might end up with a blurry picture.
@@ -74,6 +82,10 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
 ![bird-eye-view-shots](https://images.wondershare.com/filmora/article-images/bird-eye-view-shots.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Google
 
  Looking down on a beautiful view impresses everyone, but putting yourself in a position to watch the world from a top of a mountain or even a building requires a certain level of preparation. However, a bird's eye view angle can be captured on any location, and you just need to place yourself above the subject of your photo. This type of shot can be used for portraits, areal shots, and even breathtaking landscapes, but all objects depicted in bird's eye view photos will appear smaller than they actually are.
@@ -84,6 +96,10 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 
 ![use-frame-photography](https://images.wondershare.com/filmora/article-images/use-frame-photography.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: Chris Utano Photography
 
  All photos have a rectangular shape, and depicting the same shape within a photo creates instant dynamics between the shape you captured in a photo and its literal shape. A frame can be literally anything from a window in your room to a crack in the wall or even an old photo frame, and each item you use as a frame will give the photo a special atmosphere.
@@ -93,6 +109,10 @@ thumbnail: https://thmb.techidaily.com/ed85d5260878e7afe5eab5cc1189d2e4580a5c9f5
 #### 7\.  Use Transparent Objects as Lens Filters
 
 ![shoot-trought-another-subject](https://images.wondershare.com/filmora/article-images/shoot-trought-another-subject.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4DJKH1uY7P0?si=tCG66XVlbwSKoATj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
  Image resource: Digital Photo Secrets
 
@@ -125,8 +145,18 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-introduction-to-soft-starting-sounds-in-audition/"><u>[New] In 2024, Introduction to Soft-Starting Sounds in Audition</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-in-the-front-row-ranked-no-8-image-synthesis-app/"><u>[Updated] In the Front Row Ranked No. 8 Image Synthesis App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-live-links-debate-is-software-superior-to-gear/"><u>[Updated] Live Links Debate Is Software Superior to Gear?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-ultimate-guide-to-convert-srt-to-txt-in-minutes-for-2024/"><u>[Updated] Ultimate Guide to Convert SRT to TXT in Minutes for 2024</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/download-the-newest-amd-radeon-r5-drivers-compatible-with-windows-111087/"><u>Download the Newest AMD Radeon R5 Drivers: Compatible with Windows 11/10/8/7</u></a></li>
+<li><a href="https://howto.techidaily.com/fix-vivo-v27-android-system-webview-crash-2024-issue-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fix Vivo V27 Android System Webview Crash 2024 Issue | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-bypass-android-lock-screen-using-emergency-call-on-vivo-y27-5g-by-drfone-android/"><u>In 2024, How to Bypass Android Lock Screen Using Emergency Call On Vivo Y27 5G?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-unlock-huawei-phone-password-without-factory-reset-by-drfone-android/"><u>In 2024, How to Unlock Huawei Phone Password Without Factory Reset?</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/in-2024-innovative-methods-for-effectful-tiktok-videos/"><u>In 2024, Innovative Methods for Effectful TikTok Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-mastering-the-art-of-photo-color-correction/"><u>In 2024, Mastering the Art of Photo Color Correction</u></a></li>
+<li><a href="https://program-issues.techidaily.com/1723008981062-resolving-instant-issues-with-the-sims-3-for-pc-quick-solutions-inside/"><u>Resolving Instant Issues with The Sims 3 for PC – Quick Solutions Inside</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BScreen%2BRecorder%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/f026b149-fc7c-fd54-5f3e-1460bbb19b6b.jpg" border="0"></a>
-<!-- affiliate ads end -->

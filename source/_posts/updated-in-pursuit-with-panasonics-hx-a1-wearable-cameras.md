@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In Pursuit with Panasonic’s HX-A1 Wearable Cameras\""
-date: 2024-12-12T21:56:08.255Z
-updated: 2024-12-17T02:43:38.173Z
+date: 2024-12-18T19:42:03.874Z
+updated: 2024-12-26T01:58:27.591Z
 tags: 
   - screen-recording
   - ai video
@@ -37,10 +37,6 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Design and Usability
 
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
@@ -48,7 +44,7 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specification
@@ -77,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Accessories in the box
@@ -117,6 +113,10 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
 
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Features
 
 #### **1. Video and photo quality**
@@ -146,7 +146,7 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -158,7 +158,7 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -186,17 +186,21 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-boosting-engagement-the-key-to-creating-top-facebook-covers/"><u>[New] 2024 Approved Boosting Engagement The Key to Creating Top Facebook Covers</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-stay-focused-with-no-youtube-thumbnail-view/"><u>[New] 2024 Approved Stay Focused with No YouTube Thumbnail View</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/new-in-2024-step-by-step-method-for-altering-youtube-style-thumbnails-on-twitter/"><u>[New] In 2024, Step-by-Step Method for Altering YouTube-Style Thumbnails on Twitter</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-ultimate-kids-camera-guide-top-11-easy-waterproof-options/"><u>[New] In 2024, The Ultimate Kids' Camera Guide - Top 11 Easy, Waterproof Options</u></a></li>
-<li><a href="https://extra-guidance.techidaily.com/new-online-and-local-photos-how-to-unite-them/"><u>[New] Online and Local Photos How to Unite Them</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/updated-in-2024-privacy-in-focus-the-leading-10-no-cost-highly-secured-video-calling-platforms/"><u>[Updated] In 2024, Privacy in Focus The Leading 10 No-Cost, Highly-Secured Video Calling Platforms</u></a></li>
-<li><a href="https://howto.techidaily.com/full-solutions-to-fix-error-code-920-in-google-play-on-oppo-a38-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Full Solutions to Fix Error Code 920 In Google Play on Oppo A38 | Dr.fone</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/in-2024-jubilant-join-and-leave-steps/"><u>In 2024, Jubilant Join & Leave Steps</u></a></li>
-<li><a href="https://article-tips.techidaily.com/innovative-visionaries-choice-top-10-graphics-creation-apps-for-2024/"><u>Innovative Visionaries' Choice Top 10 Graphics Creation Apps for 2024</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/pattern-locks-are-unsafe-secure-your-lenovo-phone-now-with-these-tips-by-drfone-android/"><u>Pattern Locks Are Unsafe Secure Your Lenovo Phone Now with These Tips</u></a></li>
-<li><a href="https://article-tips.techidaily.com/restoring-iphone-xs-trust-reviving-biometric-lock-for-2024/"><u>Restoring iPhone X's Trust Reviving Biometric Lock for 2024</u></a></li>
-<li><a href="https://buynow-help.techidaily.com/smart-features-in-a-stylish-frame-detailed-review-of-the-michael-kors-access-gen-5e-mkgo-watch/"><u>Smart Features in a Stylish Frame: Detailed Review of the Michael Kors Access Gen 5E MKGO Watch</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-dji-drone-comparison-basic-flight-premium-experience-4k-cinematic/"><u>[New] 2024 Approved DJI Drone Comparison Basic Flight, Premium Experience, 4K Cinematic</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-2024-approved-leveraging-facebook-best-practices-for-360-videos/"><u>[New] 2024 Approved Leveraging Facebook Best Practices for 360 Videos</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-effortless-fusion-of-youtube-videos-with-flv-format-for-2024/"><u>[New] Effortless Fusion of YouTube Videos with FlV Format for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/new-in-2024-choosing-frame-rate-wisely-is-30-or-60-fps-better/"><u>[New] In 2024, Choosing Frame Rate Wisely Is 30 or 60 FPS Better?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-assessing-your-needs-selecting-the-optimal-4k-camera-lens/"><u>[Updated] 2024 Approved Assessing Your Needs Selecting the Optimal 4K Camera Lens</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-action-camera-showdown-unmatched-seventh-lineup-wetproof/"><u>[Updated] Action Camera Showdown Unmatched Seventh Lineup Wetproof</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-decoding-slug-lines-for-effective-writing/"><u>[Updated] Decoding Slug Lines for Effective Writing</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-elite-alternatives-to-microsofts-official-gaming-recorder/"><u>[Updated] Elite Alternatives to Microsoft's Official Gaming Recorder</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-mastering-flight-a-complete-review-of-the-dji-inspire-2-drone/"><u>[Updated] In 2024, Mastering Flight A Complete Review of the DJI Inspire 2 Drone</u></a></li>
+<li><a href="https://fox-links.techidaily.com/updated-maximizing-efficiency-discover-the-leading-speech-to-text-apps-for-macos/"><u>[Updated] Maximizing Efficiency Discover the Leading Speech-to-Text Apps for MacOS</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/2024-approved-curated-igtv-channels-that-matter-today/"><u>2024 Approved Curated IGTV Channels That Matter Today</u></a></li>
+<li><a href="https://win-reviews.techidaily.com/best-way-to-save-and-download-content-from-youku-top-video-retrieval-apps/"><u>Best Way to Save and Download Content From Youku: Top Video Retrieval Apps</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/how-to-continuously-use-hamachi-handling-and-fixing-service-disruption-errors/"><u>How To Continuously Use Hamachi: Handling and Fixing Service Disruption Errors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-cutting-edge-collage-companions-android-and-iphones-best/"><u>In 2024, Cutting-Edge Collage Companions Android & iPhone's Best</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-30-camcorders-directly-at-your-eyes/"><u>Top 30 Camcorders Directly At Your Eyes</u></a></li>
+<li><a href="https://win-answers.techidaily.com/ultimate-2024-solution-how-to-quickly-resolve-your-battlefield-5-launch-problems/"><u>Ultimate 2024 Solution: How to Quickly Resolve Your Battlefield 5 Launch Problems</u></a></li>
 </ul></div>
 

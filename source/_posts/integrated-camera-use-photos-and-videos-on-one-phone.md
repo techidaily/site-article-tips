@@ -1,7 +1,7 @@
 ---
 title: "\"Integrated Camera Use  Photos and Videos on One Phone\""
-date: 2024-12-16T03:32:19.539Z
-updated: 2024-12-17T07:06:01.860Z
+date: 2024-12-23T23:49:14.898Z
+updated: 2024-12-25T16:06:29.153Z
 tags: 
   - screen-recording
   - ai video
@@ -34,7 +34,7 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to shoot a still photo and record a video simultaneously on your iPhone
@@ -50,7 +50,7 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 ![](https://images.wondershare.com/filmora/article-images/take-photo-while-recording-videos-iphone.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image resource: igeeksblog.com
@@ -76,10 +76,6 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 | **iPhone 6S series** | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 | **iPhone 7 series**  | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Extract frames from video
 
  If you are one of those who wish to **take photos while recording videos** without compromising the quality, we are glad to inform you that there is a solution for this. You can easily extract a specific frame from the recorded video keeping the standard resolution quality via Wondershare Filmora and will never be bothered about missing anything interesting from the video.
@@ -95,10 +91,14 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -125,14 +125,22 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-a-palette-perfected-the-finest-4k-panels-for-artists/"><u>[New] 2024 Approved A Palette Perfected The Finest 4K Panels for Artists</u></a></li>
-<li><a href="https://youtube-web.techidaily.com/avigating-the-intricacies-of-transferring-videos-to-youtube/"><u>[New] Navigating the Intricacies of Transferring Videos to YouTube</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-unleash-the-power-of-words-crafting-impactful-documentary-narratives-for-2024/"><u>[New] Unleash the Power of Words Crafting Impactful Documentary Narratives for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-dissecting-luminances-role-in-hdr-imagery-for-2024/"><u>[Updated] Dissecting Luminance's Role in HDR Imagery for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-essential-insights-into-using-color-grading-luts-with-pscc-for-2024/"><u>[Updated] Essential Insights Into Using Color Grading LUTs with PSCC for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-fix-iphone-6s-unavailable-issue-with-ease-drfone-by-drfone-ios/"><u>How To Fix iPhone 6s Unavailable Issue With Ease | Dr.fone</u></a></li>
-<li><a href="https://howto.techidaily.com/top-10-fixes-for-phone-keep-disconnecting-from-wi-fi-on-huawei-nova-y91-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 10 Fixes for Phone Keep Disconnecting from Wi-Fi On Huawei Nova Y91 | Dr.fone</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/troubleshoot-and-triumph-dealing-with-football-manager-2021-crashes-on-desktop-pcs/"><u>Troubleshoot & Triumph: Dealing with Football Manager 2021 Crashes on Desktop PCs</u></a></li>
-<li><a href="https://fox-info.techidaily.com/unlocking-the-full-potential-of-apods-downloads/"><u>Unlocking the Full Potential of APods Downloads</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-video-editing-in-windows-11-your-movie-maker-primer/"><u>[New] 2024 Approved Mastering Video Editing in Windows 11 - Your Movie Maker Primer</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-download-youtube-playlists-without-hassle-our-guide-for-2024/"><u>[New] Download YouTube Playlists Without Hassle - Our Guide for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-innovative-srt-conversion-tactics-for-pc-and-mac/"><u>[New] In 2024, Innovative SRT Conversion Tactics for PC and Mac</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-navigating-the-marketing-landscape-essential-strategies-for-newbies-for-2024/"><u>[New] Navigating the Marketing Landscape Essential Strategies for Newbies for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-cheapest-and-most-reliable-cloud-options/"><u>[Updated] 2024 Approved Cheapest & Most Reliable Cloud Options</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-from-amateur-to-pro-elevating-your-hdr-portrait-skills/"><u>[Updated] 2024 Approved From Amateur to Pro Elevating Your HDR Portrait Skills</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-speech-recognition-made-accessible-transforming-audio-to-text-with-ease-in-microsoft-word-for-2024/"><u>[Updated] Speech Recognition Made Accessible Transforming Audio to Text with Ease in Microsoft Word for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-cost-efficient-drone-buying-guide-find-the-best-deals/"><u>2024 Approved Cost-Efficient Drone Buying Guide Find the Best Deals</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/creating-stunning-slow-motion-videos-with-your-iphone-a-4-step-guide-using-the-movavi-app/"><u>Creating Stunning Slow Motion Videos with Your iPhone: A 4-Step Guide Using the Movavi App</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/evaluating-the-benefits-and-drawbacks-of-chatgpt-plus-a-comprehensive-guide/"><u>Evaluating the Benefits & Drawbacks of ChatGPT Plus: A Comprehensive Guide</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-sharefake-location-on-whatsapp-for-realme-gt-neo-5-drfone-by-drfone-virtual-android/"><u>How to Share/Fake Location on WhatsApp for Realme GT Neo 5 | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-find-ispoofer-pro-activation-key-on-realme-c33-2023-drfone-by-drfone-virtual-android/"><u>In 2024, How to Find iSpoofer Pro Activation Key On Realme C33 2023? | Dr.fone</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-process-of-screen-sharing-infinix-hot-40-to-pc-detailed-steps-drfone-by-drfone-android/"><u>In 2024, Process of Screen Sharing Infinix Hot 40 to PC- Detailed Steps | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/navigating-vlcs-features-for-mp4-and-diverse-format-changes/"><u>Navigating VLC's Features for MP4 & Diverse Format Changes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/portable-cinematic-vibration-reliever-kit/"><u>Portable Cinematic Vibration Reliever Kit</u></a></li>
+<li><a href="https://win-updates.techidaily.com/transferring-your-ios-melodies-a-step-by-step-guide-to-moving-songs-from-iphone-to-itunes-on-windows-10/"><u>Transferring Your iOS Melodies: A Step-by-Step Guide to Moving Songs From iPhone to iTunes on Windows 10</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-guide-resolving-your-youtube-videos-buffering-issues/"><u>Ultimate Guide: Resolving Your YouTube Video's Buffering Issues</u></a></li>
 </ul></div>
 

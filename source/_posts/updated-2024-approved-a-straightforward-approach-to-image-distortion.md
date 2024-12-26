@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  A Straightforward Approach to Image Distortion\""
-date: 2024-08-22T16:36:24.534Z
-updated: 2024-08-23T16:36:24.534Z
+date: 2024-12-18T19:53:37.537Z
+updated: 2024-12-25T23:41:36.799Z
 tags: 
   - screen-recording
   - ai video
@@ -40,15 +40,27 @@ Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking 
 
 ![wrap image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/wrap-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 With the Warp Tool selected, hover your cursor over the image. You'll see a grid appear over the image. Click and drag one of the middle nodes in the horizontal direction to begin curving the image. As you drag, you'll see the image curve along with your cursor. If you want to increase or decrease the amount of curvature, simply press and hold the Shift key while dragging the node.
 
 Play around with the settings in the options bar. There are quite a few different looks you can achieve just by adjusting these.
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
@@ -58,9 +70,17 @@ The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step4Save the Image
 
@@ -100,8 +120,22 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-recording.techidaily.com/new-a-comprehensive-guide-to-producing-videos-for-social-media-for-2024/"><u>[New] A Comprehensive Guide to Producing Videos For Social Media for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-how-to-make-and-convert-slow-motion-videos-on-iphone-for-2024/"><u>[New] How to Make and Convert Slow Motion Videos on iPhone for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-in-2024-digital-transformation-techniques-for-vhs-photos-via-pconline/"><u>[New] In 2024, Digital Transformation Techniques for VHS Photos via PC/Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-luminalabs-exploring-affordable-video-editors/"><u>[New] In 2024, LuminaLabs Exploring Affordable Video Editors</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-joy-of-journeys-end-innovative-box-revelations/"><u>[New] The Joy of Journey's End Innovative Box Revelations</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-top-video-montages-on-mobile-devices-a-8-must-have-list/"><u>[New] Top Video Montages on Mobile Devices A 8 Must-Have List</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-top-6-economical-action-cams-available-for-99-or-below/"><u>[Updated] 2024 Approved Top 6 Economical Action Cams Available for $99 or Below</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-become-a-kinemaster-wizard-essentials-techniques-and-10-top-online-contenders/"><u>[Updated] Become a KineMaster Wizard Essentials, Techniques & 10 Top Online Contenders</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-creating-your-first-home-theater-disc-with-mac/"><u>[Updated] In 2024, Creating Your First Home Theater Disc with Mac</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-unlocking-viewership-steps-for-your-video-to-be-a-top-pick-on-vimeo/"><u>[Updated] Unlocking Viewership Steps for Your Video to Be a Top Pick on Vimeo</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/24-affordable-cameras-for-effective-vloggers/"><u>In 2024, Affordable Cameras for Effective Vloggers</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-navigating-the-leading-live-church-broadcast-services/"><u>In 2024, Navigating the Leading Live Church Broadcast Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-paramount-top-rated-vr-movies/"><u>In 2024, Paramount Top-Rated VR Movies</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/izing-mastery-comparing-streaming-giants-strategies/"><u>Monetizing Mastery Comparing Streaming Giants' Strategies</u></a></li>
+<li><a href="https://data-wizards.techidaily.com/stellar-introduces-groundbreaking-image-salvage-program/"><u>Stellar Introduces Groundbreaking Image Salvage Program</u></a></li>
+</ul></div>
 
-
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37540879&QTY=1&AFFILIATE=108875&CART=1"><img src="https://paperscan.orpalis.com/img/content/You_prefer_to_use.png" border="0">PaperScan Professional： PaperScan Scanner Software is a powerful TWAIN & WIA scanning application centered on one idea: making document acquisition an unparalleled easy task for anyone.</a>
-<!-- affiliate ads end -->

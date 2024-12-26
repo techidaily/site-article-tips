@@ -1,7 +1,7 @@
 ---
 title: "Scriptwriting Essentials for Authentic and Engaging Documentaries"
-date: 2024-12-13T21:34:50.145Z
-updated: 2024-12-16T20:17:44.526Z
+date: 2024-12-23T16:57:12.713Z
+updated: 2024-12-26T02:18:42.711Z
 tags: 
   - screen-recording
   - ai video
@@ -41,31 +41,23 @@ Hello guys, and welcome to another fantastic and informative article. Our today'
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. What is a Documentary?
 
 To write a good documentary script, you should first know what a documentary is. A documentary is a genre usually used for non-fiction or reality-based films. Such type of films includes researched based representation of a specific subject like interviews of peoples involved in it, official documents related to it, and many more. Sometimes they tell us facts about a particular topic that only very few of us know. They are also beneficial to raising social issues to the officials and making others aware of them. Now that you know what a documentary is let's move forward to our next step, three popular types of documentary scripts.
 
 ## Part 2\. Three popular types of a documentary script
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. Literary Style
 
 In this style, your only concerns are with the shooting ability of the text for which you should have camera sense, writing rhetorically (but not too much) with the text language literacy, and dividing the script into different paragraphs according to time space and scene. You don't have to describe the technical requirements of shooting in it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yDuvbv0QOYI?si=byottcEM_Rrvi4EL" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Shot-Oriented
 
 In this one, you have to write a detailed description of the action and the images which will be there in your screenplay without considering the script's literary merits and readability. Also, in this style, each scene is divided into paragraphs, and before starting each section, the writer should have mentioned the scene's location, time, mirror, and number. In simple words, this script style provides more detailed and deep instructions about the film or a documentary screenplay.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Shooting Script
 
@@ -77,17 +69,21 @@ The director usually uses this style of scripting. After the director of the fil
 
 The first and most important step in writing a documentary screenplay is to make sure the material and information you use is accurate. Moreover, if your documentary script is based on a true story, you should first confirm the veracity of the tale before drafting the script. It elevates the level of your script's content quality.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_7AYCS7zBU0?si=7R9oIpE4hyEbtk3x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Define the key issues
 
 Another thing that makes a documentary script best is that it should define the critical issues of the topic upon which it relies. For example, writing a documentary script on a social problem, you should also define its key points. Also, you can add interviews of the experts, or the people involved in some story. It makes your documentary script more effective and influential for the audience.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Highlight the characteristics of the scene
 
 Highlighting the characteristics of each scene of your script makes it much better and easy for others to understand. For example, if you have any fighting scene in your documentary film, you should have to define each thing that will be there and film it in your screenplay. Also, you can suggest or specify the location of each scene.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 4\. Visual Writing
 
@@ -117,6 +113,10 @@ As you can see in the following example of a documentary script of a screenplay 
 | Pictures of Albert Einstein and then his brain                 | However, he declined that he is brilliant.                                                                     |
 | Pictures of Albert Einstein Theories                           | But still, he is the one due to his various authentic and scientifically proven theories and experiments.      |
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 5\. Make your documentary script come true by using Filmora
 
 The way you can make it happen after composing your documentary script for your film is ultimately what matters the most. Given that you have [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/), you shouldn't worry. You may quickly and successfully use this to bring your documentary script to reality. We will therefore explain what you should do first and what Speed Ramping can do for your documentary. You must first record your documentary script screenplay, after which you must complete the following:
@@ -128,6 +128,10 @@ The way you can make it happen after composing your documentary script for your 
 1. Go to the [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) website and **Download** the Filmora software from it for free.
 
 ![download filmora software](https://images.wondershare.com/filmora/article-images/2022/07/write-a-good-documentary-script-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 2. Now **Click** on a **New Project** to create your first project in Filmora.
 
@@ -141,15 +145,15 @@ The way you can make it happen after composing your documentary script for your 
 
 ![add smooth speed shift curves](https://images.wondershare.com/filmora/article-images/2022/07/write-a-good-documentary-script-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aRMCbJxLuwE?si=E5sfJvoqkv1qCMWz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 5. Then you can click on the **Audio Visualizer** button to use the audio-visual features in your documentary video, which makes your video more rhythmic.
 
 ![click on audio visualizer](https://images.wondershare.com/filmora/article-images/2022/07/write-a-good-documentary-script-5.jpg)
 
 6. After that, click on the **Export** button at the top bar. an exporting menu will appear on your screen from which you can choose the preferences about exporting your video, like its name, storage location, format, etc. Just wait until the export is finished.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -168,10 +172,6 @@ So, the last words for this educational post are that, as we all know, writing a
 
 To write a good documentary script, you should first know what a documentary is. A documentary is a genre usually used for non-fiction or reality-based films. Such type of films includes researched based representation of a specific subject like interviews of peoples involved in it, official documents related to it, and many more. Sometimes they tell us facts about a particular topic that only very few of us know. They are also beneficial to raising social issues to the officials and making others aware of them. Now that you know what a documentary is let's move forward to our next step, three popular types of documentary scripts.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. Three popular types of a documentary script
 
 ### 1\. Literary Style
@@ -186,6 +186,10 @@ In this one, you have to write a detailed description of the action and the imag
 
 The director usually uses this style of scripting. After the director of the film or the documentary, the screenplay reads the literary script. He writes a subordinate storyline, including the picture image and the sound, which he is agreed to represent in his film or documentary screenplay.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/htnQWyEOCgc?si=fy86hi8_hTtbWAnw" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. Six basic theoretical knowledge about documentary script
 
 ### 1\. Ensure the authenticity of the story
@@ -195,6 +199,10 @@ The first and most important step in writing a documentary screenplay is to make
 ### 2\. Define the key issues
 
 Another thing that makes a documentary script best is that it should define the critical issues of the topic upon which it relies. For example, writing a documentary script on a social problem, you should also define its key points. Also, you can add interviews of the experts, or the people involved in some story. It makes your documentary script more effective and influential for the audience.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 3\. Highlight the characteristics of the scene
 
@@ -207,10 +215,6 @@ Visual Writing means you should make it clear in your script which will be there
 ### 5\. Guaranteed documentary viewing (Rhythm)
 
 Another important thing you should take care of while writing a documentary script is that you should continue it in a rhythm, which means you have to pay good attention to the sequence of the events in your film. In other words, you should arrange your script's scenes effectively and accurately, making them in a rhythm.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 6\. Fully researched
 
@@ -233,7 +237,7 @@ As you can see in the following example of a documentary script of a screenplay 
 | Pictures of Albert Einstein Theories                           | But still, he is the one due to his various authentic and scientifically proven theories and experiments.      |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 5\. Make your documentary script come true by using Filmora
@@ -247,10 +251,6 @@ The way you can make it happen after composing your documentary script for your 
 1. Go to the [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) website and **Download** the Filmora software from it for free.
 
 ![download filmora software](https://images.wondershare.com/filmora/article-images/2022/07/write-a-good-documentary-script-1.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 2. Now **Click** on a **New Project** to create your first project in Filmora.
 
@@ -269,7 +269,7 @@ The way you can make it happen after composing your documentary script for your 
 ![click on audio visualizer](https://images.wondershare.com/filmora/article-images/2022/07/write-a-good-documentary-script-5.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/o-sRtqHdEYY?si=NMTMQVxJsUaoguqh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 6. After that, click on the **Export** button at the top bar. an exporting menu will appear on your screen from which you can choose the preferences about exporting your video, like its name, storage location, format, etc. Just wait until the export is finished.
@@ -302,24 +302,20 @@ So, the last words for this educational post are that, as we all know, writing a
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-pay-attention-focus-fully-on-the-speaker-avoid-distractions-and-show-interest-in-what-theyre-saying/"><u>[New] 2024 Approved Pay Attention Focus Fully on the Speaker, Avoid Distractions, and Show Interest in What They're Saying</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/new-clear-photography-archives-legal-purchase-tactics-for-2024/"><u>[New] Clear Photography Archives Legal Purchase Tactics for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-essential-software-for-animation-and-3d-models/"><u>[New] In 2024, Essential Software for Animation & 3D Models</u></a></li>
-<li><a href="https://fox-http.techidaily.com/new-the-ultimate-vsco-editors-handbook/"><u>[New] The Ultimate VSCO Editor's Handbook</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-top-5-best-tv-for-ps5-and-xbox-series-x-updated-july/"><u>[New] Top 5 Best TV for Ps5 and Xbox Series X (Updated July)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-ultimate-audio-and-video-showcase-excellent-webcams-for-podcasts-for-2024/"><u>[New] Ultimate Audio & Video Showcase Excellent Webcams for Podcasts for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-benqs-visionary-approach-to-4k-monitors-unraveled-by-the-bl2711u-review/"><u>[Updated] 2024 Approved BenQ's Visionary Approach to 4K Monitors, Unraveled by the BL2711U Review</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-how-to-preview-off-facebook-activities-and-should-i-leave-it-on-check/"><u>[Updated] 2024 Approved How to Preview Off-Facebook Activities and Should I Leave It On? Check</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-invigorate-snaps-implement-inner-blur-spread-in-cs/"><u>[Updated] Invigorate Snaps Implement Inner Blur Spread in CS</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-streamlining-the-search-for-spotless-stock-visuals-for-2024/"><u>[Updated] Streamlining the Search for Spotless Stock Visuals for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/cybercrimes-calculated-courtship-schemes/"><u>Cybercrime’s Calculated Courtship Schemes</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/integrating-azures-speech-recognition-into-development/"><u>Integrating Azure’s Speech Recognition Into Development</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/is-there-a-drop-in-intelligence-for-chatgpt-a-closer-look-with-inputs-from-openai/"><u>Is There a Drop in Intelligence for ChatGPT? A Closer Look with Inputs From OpenAI</u></a></li>
-<li><a href="https://win-blog.techidaily.com/mastering-equation-writing-with-office-201/"><u>Mastering Equation Writing with Office 201</u></a></li>
-<li><a href="https://article-tips.techidaily.com/parrot-ar-drone-elite-edition-expert-evaluation/"><u>Parrot AR Drone Elite Edition – Expert Evaluation</u></a></li>
-<li><a href="https://extra-support.techidaily.com/secrets-of-the-trade-perfecting-sticker-removal-in-tiktoks-for-2024/"><u>Secrets of the Trade Perfecting Sticker Removal in TikToks for 2024</u></a></li>
-<li><a href="https://tiktok-video-files.techidaily.com/tiktok-video-upload-guide-chromeandroidios-strategies-for-2024/"><u>TikTok Video Upload Guide Chrome/Android/iOS Strategies for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/ultimate-selection-of-cameras-for-film-production-for-2024/"><u>Ultimate Selection of Cameras for Film Production for 2024</u></a></li>
-<li><a href="https://ai-video-apps.techidaily.com/updated-2024-approved-top-10-4k-video-samples/"><u>Updated 2024 Approved Top 10 4K Video Samples</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-best-10-ways-to-convert-youtube-to-mpeg/"><u>[New] 2024 Approved Best 10 Ways to Convert YouTube to MPEG</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-superior-choice-of-steadicams-for-drone-video-shootings/"><u>[New] 2024 Approved Superior Choice of Steadicams for Drone Video Shootings</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ow-to-create-news-style-outro/"><u>[New] How To Create News Style Outro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-detailed-study-exploring-the-capabilities-of-android-lightroom/"><u>[New] In 2024, Detailed Study Exploring the Capabilities of Android Lightroom</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-prime-steadicam-recommendations-for-professional-dslr-workflows/"><u>[New] In 2024, Prime Steadicam Recommendations for Professional DSLR Workflows</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unleash-the-potential-of-gopro-hero-7-and-8-with-top-sd-cards/"><u>[Updated] 2024 Approved Unleash the Potential of GoPro Hero 7 & 8 with Top SD Cards</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-fiscal-flyers-top-5-low-cost-aerial-vehicles/"><u>[Updated] In 2024, Fiscal Flyers Top 5 Low-Cost Aerial Vehicles</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-breathtaking-beijing-winter-games-of-2022/"><u>[Updated] The Breathtaking Beijing Winter Games of 2022</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/bypassing-google-account-with-vnrom-bypass-for-google-pixel-7a-by-drfone-android/"><u>Bypassing Google Account With vnROM Bypass For Google Pixel 7a</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/drafting-dynamic-news-endings-for-2024/"><u>Drafting Dynamic News Endings for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-sim-unlock-samsung-galaxy-s23-tactical-edition-phones-without-code-2-ways-to-remove-android-sim-lock-by-drfone-android/"><u>In 2024, Sim Unlock Samsung Galaxy S23 Tactical Edition Phones without Code 2 Ways to Remove Android Sim Lock</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-realme-c55-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Realme C55 Android SIM Unlock APK</u></a></li>
+<li><a href="https://win-superb.techidaily.com/introducing-the-revolutionary-microsoft-surface-pro-10-and-laptop-5-cutting-edge-ai-enhancements-revealed-zdnet-exclusive/"><u>Introducing the Revolutionary Microsoft Surface Pro 10 & Laptop #5: Cutting-Edge AI Enhancements Revealed - ZDNet Exclusive</u></a></li>
+<li><a href="https://fox-triigers.techidaily.com/schritt-fur-schritt-anleitung-zum-transfer-von-icloud-notizen-auf-ein-anderes-icloud-konto/"><u>Schritt-Für-Schritt-Anleitung Zum Transfer Von iCloud-Notizen Auf Ein Anderes iCloud-Konto</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/tips-and-tricks-fixing-a-broken-character-input-in-email-addresses/"><u>Tips and Tricks: Fixing a Broken @ Character Input in Email Addresses</u></a></li>
 </ul></div>
 

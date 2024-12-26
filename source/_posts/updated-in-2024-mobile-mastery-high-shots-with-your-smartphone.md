@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mobile Mastery  High Shots with Your Smartphone\""
-date: 2024-12-11T00:32:45.420Z
-updated: 2024-12-16T19:35:49.997Z
+date: 2024-12-19T18:58:38.315Z
+updated: 2024-12-26T01:17:12.235Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## How to take vertical panorama photography with your respective Smartphone
@@ -57,17 +57,13 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LeKJBWb6Jhk?si=AnViizAPiIT1YCRA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image source: mac-fusion
 
 * Begin to go along with the upward arrow on the screen to capture the desired vertorama.
 * Once finished and satisfied, just tap on "Done" option.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### For Android users
@@ -80,7 +76,7 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Image source: mac-fusion
@@ -88,6 +84,10 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
 * Repeat the same with other dots as well. In other words, move camera towards the gray dots one by one until they get disappear.
 * Tap on "Done" when completed.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
 
@@ -99,7 +99,7 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -127,16 +127,15 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-digital-dreamscape-mapping-vrs-progress/"><u>[New] In 2024, Digital Dreamscape Mapping VR's Progress</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/new-ipad-timelapse-essentials-for-beginners-for-2024/"><u>[New] IPad Timelapse Essentials for Beginners for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-most-reliable-iphones-podcast-services/"><u>[New] Most Reliable iPhones Podcast Services</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-ultimate-guide-to-stretched-seconds-capturing-slow-mo-videos-using-mobile-apps-and-internet-platforms/"><u>[New] The Ultimate Guide to Stretched Seconds Capturing Slow-Mo Videos Using Mobile Apps and Internet Platforms</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-revolutionize-iphone-images-turn-them-sideways-and-upside-down/"><u>[Updated] In 2024, Revolutionize iPhone Images Turn Them Sideways & Upside Down</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-unlocking-tiktok-video-potential-with-zoom/"><u>[Updated] In 2024, Unlocking TikTok Video Potential with Zoom</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/updated-lenovos-easy-pathway-to-screen-recording/"><u>[Updated] Lenovo's Easy Pathway to Screen Recording</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/2024-approved-high-staking-rituals-player-views/"><u>2024 Approved HIGH-STAKING RITUALS Player Views</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/a-fitness-buffs-blueprint-to-optimizing-chatgpt-interactions-and-prompts/"><u>A Fitness Buff's Blueprint to Optimizing ChatGPT Interactions and Prompts</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-track-imei-number-of-vivo-v27-through-google-earth-by-drfone-android/"><u>How To Track IMEI Number Of Vivo V27 Through Google Earth?</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/top-prime-day-discounts-unmissable-savings-on-benq-screens-and-projectors/"><u>Top Prime Day Discounts: Unmissable Savings on BenQ Screens and Projectors</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-reinstate-windows-photo-viewer-on-windows-10-dual-fixes-explained/"><u>[New] Reinstate Windows Photo Viewer on Windows 10 Dual Fixes Explained</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/new-the-essentials-of-combining-apple-music-and-videos/"><u>[New] The Essentials of Combining Apple Music & Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-movavi-pro-video-review-the-new-standard/"><u>[Updated] 2024 Approved Movavi Pro Video Review – The New Standard</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-how-to-select-a-premium-360-camera-today/"><u>[Updated] In 2024, How to Select a Premium 360 Camera Today</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-selecting-peak-frame-rate-for-exceptional-slow-motion-video/"><u>[Updated] Selecting Peak Frame Rate for Exceptional Slow Motion Video</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-yuneec-typhoon-h-examined-a-drone-review-perspective/"><u>[Updated] Yuneec Typhoon H Examined A Drone Review Perspective</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/master-your-online-presence-discover-the-ultimate-live-broadcast-software-manycam-pro-features-guide/"><u>Master Your Online Presence: Discover the Ultimate Live Broadcast Software - ManyCam Pro Features Guide</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-discord-solutions-for-resolving-audio-issues/"><u>Troubleshooting Discord: Solutions for Resolving Audio Issues</u></a></li>
+<li><a href="https://win-webmaster.techidaily.com/1728486003946-windows-10/"><u>Windows 10での解決策：グレーアウト状態になったシステム復元ツール</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/winix-video-ai-how-to-convert-and-extract-audiomusic-files-effortlessly/"><u>Winix Video AI: How to Convert & Extract Audio/Music Files Effortlessly</u></a></li>
 </ul></div>
 

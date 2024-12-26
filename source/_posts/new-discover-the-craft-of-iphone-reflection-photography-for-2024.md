@@ -1,7 +1,7 @@
 ---
 title: "[New] Discover the Craft of iPhone Reflection Photography for 2024"
-date: 2024-12-14T22:11:22.257Z
-updated: 2024-12-17T03:42:38.941Z
+date: 2024-12-21T17:41:13.030Z
+updated: 2024-12-25T22:40:57.422Z
 tags: 
   - screen-recording
   - ai video
@@ -53,9 +53,17 @@ thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373
 
 ![reflection-photography-for-iPhone](https://images.wondershare.com/filmora/article-images/crystal-ball.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Water in a wine glass (turns everything upside down too!)
 
 ![water-reflection](https://images.wondershare.com/filmora/article-images/water-reflection.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2\.  Pay Attention to Composition
 
@@ -82,12 +90,16 @@ thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373
 ![keep-the-image-simple](https://images.wondershare.com/filmora/article-images/keep-the-image-simple.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  Awful
 
 ![awful-composition](https://images.wondershare.com/filmora/article-images/awful-composition.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/TJCye_oCTTw?si=6bVyBphcSgSFdyuq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 4\.  Reality and Reflection
 
@@ -106,10 +118,6 @@ thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373
  It is also just good photography practice to have your subjects bend and distort the light. The contrasts make for an aesthetically beautiful image, and makes post production optimization even easier.
 
 ![make-use-of-texture](https://images.wondershare.com/filmora/article-images/make-use-of-texture.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Post Production Reflective Effects
 
@@ -136,19 +144,11 @@ thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373
 
 ![reflection-create-water-reflection-photo-arts](https://images.wondershare.com/filmora/article-images/reflection-create-water-reflection-photo-arts.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Super user friendly app lets you create HD photos and it's intuitive feature means you can create reflective photos in a few taps. This is one of the best apps in terms of the quality of images/edits. It has all of the reflective effects of many of the top editing packages like Photoshop.
 
 #### 3\. [Photo Reflection](https://itunes.apple.com/us/app/photo-reflection/id484604482?mt=8)
 
 ![photo-reflection-app](https://images.wondershare.com/filmora/article-images/photo-reflection-app.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  If you're not looking for professional level images then photo reflection is a good choice because it's free! It lacks some of the advanced features of the other apps but great for the very occasional photographer!
 
@@ -156,15 +156,15 @@ thumbnail: https://thmb.techidaily.com/6b70f639163cfe01d6518c08ef2693a5f686b7373
 
 ![photo-mirror-effects-reflection-editor](https://images.wondershare.com/filmora/article-images/photo-mirror-effects-reflection-editor.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Another great choice for getting started with reflective photography. It has some mid range editing features, but this is made up in it's easy of use. Perhaps one of the best free reflective photography apps and you can even share the images directly to your social media feeds.
 
  The app also has a large library of free and premium templates for you to use...
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Ollie Mattison
 
@@ -191,16 +191,18 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-zen-without-copyrights/"><u>[New] 2024 Approved Zen Without Copyrights</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-expertly-crafted-the-best-8-convertor-list-for-sub-to-srt-for-2024/"><u>[New] Expertly Crafted The Best 8 Convertor List for Sub to Srt for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-accessing-premium-clip-art-at-no-expense/"><u>[Updated] 2024 Approved Accessing Premium Clip-Art at No Expense</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-best-android-videography-6-must-try-music-videos-apps/"><u>[Updated] In 2024, Best Android Videography 6 Must-Try Music Videos Apps</u></a></li>
-<li><a href="https://win11.techidaily.com/decoding-windows-credentials-a-fix-guide/"><u>Decoding Windows Credentials: A Fix Guide</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/fifa-highlights-and-trends-charting-on-youtube/"><u>FIFA Highlights & Trends Charting on YouTube</u></a></li>
-<li><a href="https://win-ratings.techidaily.com/how-to-personalize-windows-control-panel-for-enhanced-user-experience-with-yl-software-solutions/"><u>How to Personalize Windows Control Panel for Enhanced User Experience with YL Software Solutions</u></a></li>
-<li><a href="https://review-topics.techidaily.com/how-to-transfer-data-from-iphone-6-to-other-iphone-14-pro-max-devices-drfone-by-drfone-transfer-data-from-ios-transfer-data-from-ios/"><u>How To Transfer Data From iPhone 6 To Other iPhone 14 Pro Max devices? | Dr.fone</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-use-life360-on-windows-pc-for-vivo-x100-pro-drfone-by-drfone-virtual-android/"><u>How to Use Life360 on Windows PC For Vivo X100 Pro? | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/overcoming-input-sluggishness-in-win-os-via-7-fixes/"><u>Overcoming Input Sluggishness in WIN OS via 7 Fixes</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unveiling-youtubes-features-adding-images-to-videos/"><u>Unveiling YouTube's Features Adding Images to Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-fierce-fortifications-top-laptops-crafting-4k-videos/"><u>[New] Fierce Fortifications Top Laptops Crafting 4K Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-immersive-metaverse-reflections-inspirational-messages-for-2024/"><u>[New] Immersive Metaverse Reflections Inspirational Messages for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-discover-the-most-exciting-no-cost-comic-designs/"><u>[New] In 2024, Discover the Most Exciting, No-Cost Comic Designs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-evaluating-the-effectiveness-of-shake-reduction-in-adobe-photos-for-2024/"><u>[Updated] Evaluating the Effectiveness of 'Shake' Reduction in Adobe Photos for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-calculated-viewing-time-for-a-standard-20mb-film/"><u>[Updated] In 2024, Calculated Viewing Time for a Standard 20Mb Film</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-your-gateway-to-innovation-windows-10s-latest-apps-and-games/"><u>[Updated] In 2024, Your Gateway to Innovation Windows 10’S Latest Apps & Games</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/2024-approved-apex-gk-quizmasters-video-channel-list/"><u>2024 Approved Apex GK Quizmasters' Video Channel List</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/2024-approved-becoming-an-unboxing-star-strategies-for-viral-engaging-tiktok-videos/"><u>2024 Approved Becoming an Unboxing Star Strategies for Viral, Engaging TikTok Videos</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-inside-apoyser-detailed-comparison-with-leading-screen-recorder-apps/"><u>2024 Approved Inside Apoyser Detailed Comparison with Leading Screen Recorder Apps</u></a></li>
+<li><a href="https://blog-min.techidaily.com/android-to-apple-how-to-transfer-photos-from-xiaomi-13t-pro-to-ipad-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Android to Apple How To Transfer Photos From Xiaomi 13T Pro to iPad Easily | Dr.fone</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/decouvrez-3-techniques-rapides-pour-localiser-vos-fichiers-musicaux-sous-windows/"><u>Découvrez 3 Techniques Rapides Pour Localiser Vos Fichiers Musicaux Sous Windows</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-4-solution-to-get-rid-of-pokemon-fail-to-detect-location-on-asus-rog-phone-8-pro-drfone-by-drfone-virtual-android/"><u>In 2024, 4 solution to get rid of pokemon fail to detect location On Asus ROG Phone 8 Pro | Dr.fone</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/outpacing-chatgpt-10-ai-wonders-unleashed/"><u>Outpacing ChatGPT: 10 AI Wonders Unleashed</u></a></li>
 </ul></div>
 

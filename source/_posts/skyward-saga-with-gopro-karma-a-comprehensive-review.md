@@ -1,7 +1,7 @@
 ---
 title: "\"Skyward Saga with GoPro Karma  A Comprehensive Review\""
-date: 2024-08-15T08:52:46.539Z
-updated: 2024-08-16T08:52:46.539Z
+date: 2025-01-03T10:43:54.410Z
+updated: 2025-01-04T02:00:54.834Z
 tags: 
   - screen-recording
   - ai video
@@ -36,6 +36,10 @@ thumbnail: https://thmb.techidaily.com/0c50e9701859daef27aa4fad4bc3c104584c3b31a
 
  Apart from the battery latch, GoPro introduced auxiliary features such as a tilted horizon line for improved imaging as well as quieter propellers. The rerelease of the Karma drone is a much more polished product that is more suitable for reviewing as well as improved for general use. But does the Karma drone matchup with major contenders in the marketplace such as the Parrot or the DJI phantom line?
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Pros and cons of GoPro Karma
 
 **Pros**
@@ -52,8 +56,9 @@ thumbnail: https://thmb.techidaily.com/0c50e9701859daef27aa4fad4bc3c104584c3b31a
  The overall verdict is that this is a fantastic drone for capturing stunning images but it doesn't have the easy flying mode or the battery life to compete with some of the best drones available at the same price point. Although you might have to sacrifice a bit in image quality when compared to a GoPro camera with some competitors, it's often worth it for value knowing that you can capture the shot and maintain control over your drone.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=EdMRoNAFi0Q6mP7G" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Detailed review for GoPro Karma
 
 #### 1\.  Price
@@ -89,8 +94,9 @@ thumbnail: https://thmb.techidaily.com/0c50e9701859daef27aa4fad4bc3c104584c3b31a
 #### 5\.  Controller
 
 ![gopro karma controller](https://images.wondershare.com/filmora/article-images/gopro-karma-controller.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://lightailing.sjv.io/c/5597632/1725213/17190" target="_top" id="1725213"><img src="//a.impactradius-go.com/display-ad/17190-1725213" border="0" alt="" width="1000" height="1000"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1725213/17190" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  One thing that the GoPro Karma did especially well was creating a beautiful controller. The RC controller is relatively small but it feels exactly like playing a videogame with plenty of functions and no need to have a compatible device to use the drone. The other extremely strong point is the camera. Nobody can build a great outdoor camera that is it as resilient as a GoPro with the Hero 5 Black version of this drone capable of shooting in 4K with an astounding video quality, you can catch some amazing video as well as incredible still images on this drone.
@@ -100,8 +106,9 @@ thumbnail: https://thmb.techidaily.com/0c50e9701859daef27aa4fad4bc3c104584c3b31a
 Overall, the GoPro Karma is a fairly strong showing for a drone. Although it can be expensive when compared to the specifications on some of the other drones, if you do have some experience flying drones and you are looking for a great image quality, this could be the choice for you especially if you are looking for a portable drone.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/L603QXgjb3I?si=sMYHfMGy2kNPSHPt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Max Wales
@@ -127,4 +134,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-action-camera-faceoff-whos-winning-in-gopro-vs-yi-4k-battle-in-2024/"><u>[New] Action Camera Faceoff Who's Winning in GoPro Vs. Yi 4K Battle, In 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-maximizing-meeting-visibility-in-microsoft-teams/"><u>[New] In 2024, Maximizing Meeting Visibility in Microsoft Teams</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-ultimate-vlog-stability-devices-for-smooth-screensavers-for-2024/"><u>[New] Ultimate Vlog Stability Devices for Smooth Screensavers for 2024</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-the-quick-fix-guide-to-instagram-popularity-accelerate-your-visibility-with-15-tricks-of-the-trade/"><u>[Updated] 2024 Approved The Quick-Fix Guide to Instagram Popularity Accelerate Your Visibility with 15 Tricks of the Trade</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-experts-choice-best-free-video-tools-listing/"><u>[Updated] In 2024, Expert's Choice Best Free Video Tools Listing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-market-breakthrough-strategy-box-by-box/"><u>[Updated] Market Breakthrough Strategy Box by Box</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/updated-saving-scenes-a-rundown-of-the-best-facebook-extensions-for-2024/"><u>[Updated] Saving Scenes A Rundown of the Best Facebook Extensions for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-spectacular-visual-spaces-for-live-videos/"><u>[Updated] Spectacular Visual Spaces for Live Videos</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-simple-art-of-capturing-breathtaking-slow-motion-shots-with-android/"><u>[Updated] The Simple Art of Capturing Breathtaking Slow-Motion Shots with Android</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-mastery-guide-securely-archiving-snapchat-media-on-devices/"><u>2024 Approved Mastery Guide Securely Archiving Snapchat Media on Devices</u></a></li>
+<li><a href="https://bypass-frp.techidaily.com/addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-tecno-spark-20-by-drfone-android/"><u>AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Tecno Spark 20</u></a></li>
+<li><a href="https://win-amazing.techidaily.com/1722964005742-download-and-update-kodak-printer-drivers-with-simple-steps/"><u>Download and Update Kodak Printer Drivers with Simple Steps</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-zebra-printer-software-updates-for-windows-users/"><u>Get the Newest Zebra Printer Software Updates for Windows Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-discovering-the-power-of-youtubes-comment-system/"><u>In 2024, Discovering the Power of YouTube's Comment System</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-mastering-digital-asset-preservation-with-adobe-and-exploring-best-non-adobe-options/"><u>In 2024, Mastering Digital Asset Preservation with Adobe & Exploring Best Non-Adobe Options</u></a></li>
+<li><a href="https://extra-information.techidaily.com/mastering-multitasking-ideas-with-podcasts/"><u>Mastering Multitasking Ideas with Podcasts</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210877131-9781601637130-vampires/"><u>Vampires | Free Book</u></a></li>
+</ul></div>
 

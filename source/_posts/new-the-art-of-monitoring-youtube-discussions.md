@@ -1,7 +1,7 @@
 ---
 title: "[New] The Art of Monitoring YouTube Discussions"
-date: 2024-08-15T08:50:01.223Z
-updated: 2024-08-16T08:50:01.223Z
+date: 2025-01-01T01:17:34.973Z
+updated: 2025-01-03T21:37:34.125Z
 tags: 
   - screen-recording
   - ai video
@@ -28,6 +28,10 @@ Unfortunately, when it comes to comment, YouTube can be a little clunky and time
 
 Want to become the master of moderation? Read on for everything you need to know about comments on YouTube, and get that conversation going. This is another article to help you make the best out of your YouTube channel.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What is YouTube Comment
 
 YouTube comments are an opportunity for the site's 1.7 million unique monthly visitors to share what they love, hate or simply must troll. It's like the internet own personal Thunderdome, but while it can be a place for negativity, YouTube comments can also be a powerful opportunity for positive community building and engagement.
@@ -36,9 +40,6 @@ Not only does it show your fans followers that you care about what they have to 
 
 For YouTubers who are serious about growing their channel and making their brand profitable, you know by now that there are certain tricks and strategies that you have to apply and put in place to make your YouTube channel what you want it to be.
 
-<!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Advantage of YouTube comments
 
 If you're wondering whether you really need to monitor your YouTube comments, here are three compelling reasons why you should:
@@ -58,8 +59,9 @@ Each comment you leave is another reference and exposure to your brand (and a ch
 Step1 Below the video itself, find the comment section.
 
 ![find the comment section youtube](https://images.wondershare.com/filmora/article-images/2022/11/find-the-comment-section-youtube.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step2 Type your message in the add a comment field. (if you're writing on your phone you can tap the comment section to expand it.
@@ -84,22 +86,20 @@ Step2 On the YouTube homepage, click on the three horizontal parallel lines in t
 
 ![horizontal parallel lines youtube](https://images.wondershare.com/filmora/article-images/2022/11/horizontal-parallel-lines-youtube.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 From the drop down menu, select “History”.
 
 Step4 On the right side under the “Manage all history” section, click on “comments”.
 
 ![manage all history comments youtube](https://images.wondershare.com/filmora/article-images/2022/11/manage-all-history-comments-youtube.jpg)
-<!-- affiliate ads begin -->
-<a href="https://twopages.pxf.io/c/5597632/1873305/18544" target="_top" id="1873305"><img src="//a.impactradius-go.com/display-ad/18544-1873305" border="0" alt="" width="1080" height="1350"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1873305/18544" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step5 To edit your comment, click on the “vertical ellipsis” (three vertical dots) on the far right side of the listed video page.
 
 Step6 Make the necessary edits and choose “Save”.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ## Highlighted Comments and Replies on YouTube
 
 Among the comments you see on a video, you might notice some that YouTube has labeled “Highlighted Comment.” that label is specific to you, and only appears in your comments list. YouTube that you have a particular interest in a section of comments.
@@ -108,9 +108,6 @@ For example, you might click on a notification, and YouTube takes you to a parti
 
 Each time YouTube adds the “highlighted comment” or “highlighted reply” tags to a video, they create a unique URL. The version of the comment that you see uses this newly generated URL. Therefore, the only way to make these labels disappear (apart from reading the new comments) is to remove the addition to the URL.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Why Deleting YouTube Comments?
 
 If you consume a lot of YouTube content, you've likely posted hundreds or even thousands of comments on various channels. You might want to:
@@ -130,9 +127,13 @@ Comments history also contains the link to the video where you've left the comme
 ![delete unwanted youtube comments](https://images.wondershare.com/filmora/article-images/2022/11/delete-unwanted-youtube-comments.jpg)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0pSRlspzW-A?si=A82G3Yxwj_31cKDq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XIUatTFH0Zw?si=ZCtoBtIy18y2F5Vc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 YouTube allows users to view and edit all the comments they have made on YouTube videos on both desktop and mobile apps. You can also edit or delete the comment if you so wish However you cannot delete any comments you made on YouTube from the Google my Activity page. It can be done from within the YouTube app only.
@@ -167,4 +168,20 @@ One way you can encourage people to leave comments on your videos is to finish t
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://youtube-videos.techidaily.com/new-elevate-viewing-experience-enable-av1-on-youtube/"><u>[New] Elevate Viewing Experience – Enable AV1 on YouTube</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-is-consumer-feedback-compensated-in-vlogs/"><u>[Updated] 2024 Approved Is Consumer Feedback Compensated in Vlogs?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-guide-to-disable-recommended-podcast-features-in-spotify/"><u>[Updated] In 2024, Guide to Disable Recommended Podcast Features in Spotify</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-perfecting-your-photos-from-the-sky-how-to-select-the-right-drone-gimbal/"><u>[Updated] In 2024, Perfecting Your Photos From the Sky How To Select The Right Drone Gimbal</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-ultimate-6-digital-backdrop-eradicators-boosting-image-clarity/"><u>[Updated] Ultimate 6 Digital Backdrop Eradicators Boosting Image Clarity</u></a></li>
+<li><a href="https://article-tips.techidaily.com/from-camera-clicks-to-youtube-clips-an-experts-step-by-step-visual-instruction-manual/"><u>From Camera Clicks to YouTube Clips An Expert's Step-by-Step Visual Instruction Manual</u></a></li>
+<li><a href="https://win-marvelous.techidaily.com/get-premium-naughty-machinima-series-downloaded-as-mp4movaviflvwmv-files/"><u>Get Premium Naughty Machinima Series Downloaded as MP4/MOV/AVI/FLV/WMV Files</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-oppo-a59-5g-phone-without-any-data-loss-by-drfone-android/"><u>How to Unlock Oppo A59 5G Phone without Any Data Loss</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-dissecting-the-capabilities-of-magixs-photo-manager/"><u>In 2024, Dissecting the Capabilities of MAGIX's Photo Manager</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/in-2024-proven-techniques-for-identifying-professional-video-artists/"><u>In 2024, Proven Techniques for Identifying Professional Video Artists</u></a></li>
+<li><a href="https://some-tips.techidaily.com/in-2024-step-by-step-guide-enhancing-snaps-with-zoom-feature/"><u>In 2024, Step-by-Step Guide Enhancing Snaps with Zoom Feature</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/in-2024-unleashing-the-power-of-tales-complimentary-apps-galore/"><u>In 2024, Unleashing the Power of Tales Complimentary Apps Galore</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unveiling-the-finest-android-collage-software/"><u>Unveiling the Finest Android Collage Software</u></a></li>
+</ul></div>
 

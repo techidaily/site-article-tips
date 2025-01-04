@@ -1,7 +1,7 @@
 ---
 title: "Subtitle Making From Compressed File Extraction"
-date: 2024-08-15T08:51:39.064Z
-updated: 2024-08-16T08:51:39.064Z
+date: 2025-01-01T16:57:10.594Z
+updated: 2025-01-04T11:10:12.343Z
 tags: 
   - screen-recording
   - ai video
@@ -30,6 +30,10 @@ The main reason why .srt subtitle files of a movie are provided in zip files is 
 
 Since you now understand that it's impossible to convert .zip to .srt, the big question is how do you get SRT file out of ZIP? Well, read on to find an answer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Get SRT file in a Zip File without software
 
 There are several reasons ways to get SRT file in a Zip file, and amazingly, you can do so without software. Yes, all you just have to do is to unzip the zip file and extract the SRT file itself.
@@ -46,9 +50,6 @@ Step3 Now, click on ‘Browse’ and select the location where you want to save 
 
 ![click on browse](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-2.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 3: How to Get SRT file in a Zip File with zip-to-srt Online Converters
 
 If you don't want to go through the process of unzipping the ZIP file that contains your .srt file yourself, you can employ a zip to srt line converter to help you perform the operation quickly and easily.
@@ -67,9 +68,6 @@ Step4 Finally, hit the ‘Save’ button right in front of the SRT file to save 
 
 ![hit save button](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-4.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4728277&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/f7f07e7dab09533bc71247a5b29a7373/products/1_iDeviceMessageBox.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 4: How to Extract SRT file in a Zip File on Android or Ios
 
 If it's your Android or iOS device that the .zip file that contains the .srt file you need is saved, you can also extract SRT file from there. You don’t need the installation of software or online tools, as both Android and iOS devices support native tools that support ZIP extraction by default.
@@ -86,6 +84,10 @@ Step3 Tap on the ZIP file to preview its content. Then tap ‘Extract’ to extr
 
 ![tap extract to extract srt files](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 Finally, tap on ‘Done’ to complete the process.
 
 **For iPhone**
@@ -97,14 +99,14 @@ Step1 Open ‘Files App’ on your iOS device and locate the ZIP file. Then tap 
 Step2 Hold down the ZIP file and select ‘Quick Look’ from the pop-up list > Tap Preview.
 
 ![select quick look](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-6.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.pcdj.com/order/checkout.php?PRODS=4698998&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/47f4b6321e9fd8e8f7326a6adc1a7c1e/products/MacBook_Pro_lyrx-withsinger-tv.png" border="0">LYRX is an easy-to-use karaoke software with the professional features karaoke hosts need to perform with precision. LYRX is karaoke show hosting software that supports all standard karaoke file types as well as HD video formats, and it’s truly fun to use. 
-LYRX Karaoke Software MAC/WINDOWS (Includes Activation For 3 Machines)</a>
-<!-- affiliate ads end -->
 
 Step3 Now, locate the SRT file and use the Share icon at the bottom left corner of your screen to save it to your device. You can open the SRT file afterward!
 
 ![save srt file](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 5: The Best Way to Edit SRT Subtitles After Extracting them in a Zip
 
@@ -123,9 +125,6 @@ The software is very straightforward to utilize, and another excellent thing is 
 * Boasts a very clean interface that makes it easy to operate by all users.
 * Lightweight software and it doesn't compromise computer functionality.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### How to Edit SRT with Filmora Software
 
 Firstly, make sure you've downloaded and installed I've [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) software on your computer.
@@ -135,9 +134,6 @@ Step1 Launch the installed program > click on ‘New Project’.
 Step2 Use the ‘Import’ button to upload fbe SRT file on your computer or just drag-n-drop it to the interface.
 
 ![use import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803116/14559" target="_top" id="1803116"><img src="//a.impactradius-go.com/display-ad/14559-1803116" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803116/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Move the SRT file to the Timeline and right-click it > select ‘Advanced Edit’.
 
@@ -146,20 +142,15 @@ Step3 Move the SRT file to the Timeline and right-click it > select ‘Advanced 
 Step4 Edit the SRT file according to your requirements. You can edit time.code, change subtitles, and do lots more.
 
 ![edit srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-3.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 
 Step5 After you've completed the editing process, right-click on the ‘SRT’ file from the timeline. Then, choose ‘Export Subtitle File’ from the pop-up list and save it the SRT file to a preferred location on your computer.
 
 ![right click on srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-4.jpg)
-<!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 <!-- affiliate ads begin -->
-<a href="https://versadesk.pxf.io/c/5597632/1892108/21290" target="_top" id="1892108"><img src="//a.impactradius-go.com/display-ad/21290-1892108" border="0" alt="" width="1080" height="1080"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1892108/21290" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Jng92DT1n_Y?si=LvxQhsEJoymsM2iZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Conclusion
 
 If you're a video content creator, then you must be familiar with the benefits SRT files add to your video. It is not only helpful to add auto-generated text to your videos, but also increases your video reach and accessibility.
@@ -172,6 +163,10 @@ The main reason why .srt subtitle files of a movie are provided in zip files is 
 
 Since you now understand that it's impossible to convert .zip to .srt, the big question is how do you get SRT file out of ZIP? Well, read on to find an answer.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 2: How to Get SRT file in a Zip File without software
 
 There are several reasons ways to get SRT file in a Zip file, and amazingly, you can do so without software. Yes, all you just have to do is to unzip the zip file and extract the SRT file itself.
@@ -184,16 +179,14 @@ Step2 Right-click on the ZIP file and select ‘Extract All’ from the pop-up l
 
 ![select extract all](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/l-SCWTWpegY?si=oxTsHQkIu1v4-I6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step3 Now, click on ‘Browse’ and select the location where you want to save the folder. Then, hit the ‘Extract’ button to unzip the archive and save the file to the folder you select.
 
 ![click on browse](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-2.jpg)
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BPDF%2BUnlocker"><img src="https://www.systoolsgroup.com/box/pdf-unlocker.png" border="0"></a>
-<!-- affiliate ads end -->
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=45152835&QTY=1&AFFILIATE=108875&CART=1"><img src="https://download.terabyteunlimited.com/banners/ad_800x450_d.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: How to Get SRT file in a Zip File with zip-to-srt Online Converters
 
 If you don't want to go through the process of unzipping the ZIP file that contains your .srt file yourself, you can employ a zip to srt line converter to help you perform the operation quickly and easily.
@@ -205,17 +198,15 @@ Step1 Open [Ezyzip](https://www.ezyzip.com/convert-zip-to-srt.html) on your comp
 Step2 Click on 'Select zip file to convert' and upload the zip file that contains the SRT file that you intend to extract. You can also drag-n-drop the file to Ezyzip.
 
 ![click on select zip file to convert](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-3.jpg)
-<!-- affiliate ads begin -->
-<a href="https://uperfect.sjv.io/c/5597632/1246754/15155" target="_top" id="1246754"><img src="//a.impactradius-go.com/display-ad/15155-1246754" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1246754/15155" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Once you upload the ZIP, the tool will instantly list all SRT files in the ZIP archive.
 
 Step4 Finally, hit the ‘Save’ button right in front of the SRT file to save the individual SRT to your local drive or you can just use the ‘Save All’ button to save the files as a folder.
 
 ![hit save button](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-4.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 4: How to Extract SRT file in a Zip File on Android or Ios
@@ -233,9 +224,6 @@ Step2 Browse and locate the ZIP file that you want to extract SRT from.
 Step3 Tap on the ZIP file to preview its content. Then tap ‘Extract’ to extract the SRT files in the ZIP file.
 
 ![tap extract to extract srt files](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-5.jpg)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082541/7443" target="_top" id="2082541"><img src="//a.impactradius-go.com/display-ad/7443-2082541" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082541/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step4 Finally, tap on ‘Done’ to complete the process.
 
@@ -252,9 +240,6 @@ Step2 Hold down the ZIP file and select ‘Quick Look’ from the pop-up list > 
 Step3 Now, locate the SRT file and use the Share icon at the bottom left corner of your screen to save it to your device. You can open the SRT file afterward!
 
 ![save srt file](https://images.wondershare.com/filmora/article-images/2022/07/extract-srt-from-zip-file-7.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4729642&QTY=1&AFFILIATE=108875&CART=1">Advanced Find and Replace for Google Sheets, Lifetime subscription</a>
-<!-- affiliate ads end -->
 
 ## Part 5: The Best Way to Edit SRT Subtitles After Extracting them in a Zip
 
@@ -282,15 +267,13 @@ Step1 Launch the installed program > click on ‘New Project’.
 Step2 Use the ‘Import’ button to upload fbe SRT file on your computer or just drag-n-drop it to the interface.
 
 ![use import button](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-1.jpg)
-<!-- affiliate ads begin -->
-<a href="https://caperobbin.sjv.io/c/5597632/2006118/18460" target="_top" id="2006118"><img src="//a.impactradius-go.com/display-ad/18460-2006118" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2006118/18460" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 Step3 Move the SRT file to the Timeline and right-click it > select ‘Advanced Edit’.
 
 ![select advanced edit](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-2.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Step4 Edit the SRT file according to your requirements. You can edit time.code, change subtitles, and do lots more.
@@ -300,6 +283,14 @@ Step4 Edit the SRT file according to your requirements. You can edit time.code, 
 Step5 After you've completed the editing process, right-click on the ‘SRT’ file from the timeline. Then, choose ‘Export Subtitle File’ from the pop-up list and save it the SRT file to a preferred location on your computer.
 
 ![right click on srt file](https://images.wondershare.com/filmora/article-images/2022/07/how-to-edit-srt-with-filmora-4.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2Iv3DjT2Fyw?si=pR_z8ZDDVGF2MvKJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -329,4 +320,17 @@ The article above has covered everything about converting zip to srt with or wit
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-analyzing-the-impact-of-reduced-photo-jiggles-in-adobe/"><u>[New] Analyzing the Impact of Reduced Photo Jiggles in Adobe</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-building-dynamic-photographic-ensembles-for-2024/"><u>[New] Building Dynamic Photographic Ensembles for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-expert-picks-for-mp4-audio-gear/"><u>[New] Expert Picks for MP4 Audio Gear</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/new-in-2024-setting-up-seamless-auto-play-for-fb-content/"><u>[New] In 2024, Setting Up Seamless Auto-Play for FB Content</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/new-unlock-new-dimensions-with-these-vr-videos/"><u>[New] Unlock New Dimensions with These VR Videos</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-guide-to-equipment-selection-for-youtube-creators/"><u>[Updated] 2024 Approved Guide to Equipment Selection for YouTube Creators</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-newbies-guide-to-av1-codec/"><u>[Updated] 2024 Approved The Newbie's Guide to AV1 Codec</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/avoiding-common-pitfalls-when-leveraging-chatgpt-as-a-learner/"><u>Avoiding Common Pitfalls When Leveraging ChatGPT as a Learner</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-new-to-vector-art-dive-into-basics-forms-and-software/"><u>In 2024, New to Vector Art? Dive Into Basics, Forms, and Software</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/the-essential-guide-to-win10s-video-grabbing-software/"><u>The Essential Guide to Win10's Video Grabbing Software</u></a></li>
+</ul></div>
 

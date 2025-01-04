@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Rapid Races Recap  Olympic 2022 Short-Track Sprints\""
-date: 2024-12-20T18:03:28.644Z
-updated: 2024-12-25T18:38:43.758Z
+date: 2025-01-02T03:55:29.995Z
+updated: 2025-01-04T07:46:41.832Z
 tags: 
   - screen-recording
   - ai video
@@ -27,11 +27,11 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DCARjc5g5VI?si=9OfovbKBrpoJeXTY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
@@ -46,7 +46,7 @@ Canada’s Steven Dubois wins the silver medal.
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=3YDfzJAZMDp1gFRz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
@@ -54,12 +54,16 @@ Russia’s Semen Elistratov wins the bronze medal.
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
 
@@ -68,10 +72,6 @@ Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian na
 Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter short track speed skating previously.
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
@@ -94,10 +94,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SgRVYjqB70s?si=My_2cDvJVdincQRu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -127,6 +123,10 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -150,17 +150,18 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastery-in-digital-media-srgb-preference/"><u>[New] 2024 Approved Mastery in Digital Media Srgb Preference</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-xiaomi-mi-11-a-guide-to-screen-recording-pro/"><u>[New] 2024 Approved Xiaomi Mi 11 A Guide to Screen Recording Pro</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-a-comprehensible-approach-to-adding-dates-on-youtube-videos-for-2024/"><u>[New] A Comprehensible Approach to Adding Dates on YouTube Videos for 2024</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/levating-your-youtube-experience-tips-on-channel-art-and-sizes-for-2024/"><u>[New] Elevating Your YouTube Experience Tips on Channel Art and Sizes for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-audfreemasterclass-deciphering-extraction-features/"><u>[New] In 2024, AudFreeMasterclass Deciphering Extraction Features</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/n-2024-techno-gamers-income-revolution/"><u>[New] In 2024, Techno Gamers' Income Revolution</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-leading-graphics-tech-for-uhd-videography/"><u>[New] Leading Graphics Tech for UHD Videography</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-generate-10-official-travel-ready-passport-images-no-money-down/"><u>[Updated] 2024 Approved Generate 10 Official Travel-Ready Passport Images, No Money Down</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-guide-to-earning-money-on-reddit-for-beginners/"><u>[Updated] The Ultimate Guide to Earning Money on Reddit for Beginners</u></a></li>
-<li><a href="https://win-popular.techidaily.com/exclusive-premium-football-visuals-for-pc-full-hd-wallsavers-from-yl-software-innovations/"><u>Exclusive Premium Football Visuals for PC: Full HD Wallsavers From YL Software Innovations</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/how-to-identify-premium-hassle-free-free-srt-translator-services/"><u>How to Identify Premium, Hassle-Free Free SRT Translator Services</u></a></li>
-<li><a href="https://desktop-recording.techidaily.com/in-2024-bold-transitions-a-beginners-guide-to-fades/"><u>In 2024, Bold Transitions A Beginner's Guide to Fades</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-essential-tools-elevate-your-online-video-quality/"><u>[New] Essential Tools Elevate Your Online Video Quality</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-audio-amplification-adding-tracks-to-premiere-projects-with-ease/"><u>[New] In 2024, Audio Amplification Adding Tracks to Premiere Projects with Ease</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-2024-approved-premium-mac-image-transformer/"><u>[Updated] 2024 Approved Premium Mac Image Transformer</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-iconic-stop-motion-creations-15-greatest-of-all-time-for-2024/"><u>[Updated] Iconic Stop-Motion Creations - #15 Greatest of All Time for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-ideal-episodic-unveiling-schedule/"><u>[Updated] Ideal Episodic Unveiling Schedule</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/craft-your-first-impactful-facebook-phenomenon-giveaway/"><u>Craft Your First Impactful Facebook Phenomenon Giveaway</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/crafting-compelling-thumbnails-to-captivate-youtube-viewers-and-encourage-clicks/"><u>Crafting Compelling Thumbnails to Captivate YouTube Viewers and Encourage Clicks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ideal-video-displays-the-best-5-for-playstation-5-for-2024/"><u>Ideal Video Displays The Best 5 for PlayStation 5 for 2024</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/new-revolutionize-your-classroom-top-animation-tools-for-teachers/"><u>New Revolutionize Your Classroom Top Animation Tools for Teachers</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/by-step-guide-to-creating-popular-youtube-openings-for-2024/"><u>Step-by-Step Guide to Creating Popular YouTube Openings for 2024</u></a></li>
+<li><a href="https://win11.techidaily.com/strategies-to-overcome-chromes-stumbling-block-with-file-downloads-in-windows/"><u>Strategies to Overcome Chrome's Stumbling Block with File Downloads in Windows</u></a></li>
+<li><a href="https://win11.techidaily.com/unlocking-windows-repair-top-10-methods/"><u>Unlocking Windows Repair: Top 10 Methods</u></a></li>
 </ul></div>
 

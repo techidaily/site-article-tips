@@ -1,7 +1,7 @@
 ---
 title: "\"Top Shots and Their Tales  The Most Shared Stock Memes for 2024\""
-date: 2024-08-15T08:54:46.125Z
-updated: 2024-08-16T08:54:46.125Z
+date: 2025-01-03T03:33:59.453Z
+updated: 2025-01-03T23:18:15.714Z
 tags: 
   - screen-recording
   - ai video
@@ -44,8 +44,9 @@ According to Andras, Hide the Pain Harold results from his vacation in Turkey. A
 Currently, Hide the Pain Harold has over 300,000 followers across all platforms. In addition, Hide the pain Harold has an official Facebook and Know Your Meme page that features the most popular versions of the stock image meme.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068411/7443" target="_top" id="2068411"><img src="//a.impactradius-go.com/display-ad/7443-2068411" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068411/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RBN1gYY5hUs?si=p89CMiMzeJzU0wGu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Part2: Distracted Boyfriend
 
 Another popular stock image meme is Distracted Boyfriend. It features the stock photo meme guy looking at another woman's backside while walking with his girlfriend. In addition, the models' facial expressions add to the photo's impact. For example, the girlfriend shows her disapproval by staring at the man with her mouth open.
@@ -68,18 +69,16 @@ Since then, the meme continues to enjoy mass popularity, including:
 The latest version of Distracted boyfriend is a compilation of photos featuring the three models, with the last one showing the women hanging out.
 
 ![latest version](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-6.jpg)
-<!-- affiliate ads begin -->
-<a href="https://vapordna.pxf.io/c/5597632/1494880/17238" target="_top" id="1494880"><img src="//a.impactradius-go.com/display-ad/17238-1494880" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1494880/17238" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 In addition, Antonio Guillem also has a stock image meme where the roles are reversed. The meme was later posted on Reddit underneath the original and received over 25,600 points in 24 hours.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JAkb8Bv3AU4?si=2rHwnZYTzTLieKgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part3: I Bet He's Thinking About Other Women
 
 ![meme features](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-7.jpg)
-<!-- affiliate ads begin -->
-<a href="https://checkout.abbyy.com/order/checkout.php?PRODS=39254762&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/0e5fb5c76fca16adbee503c9aff393cd/products/11_FR-Badges-NEW-FR-Standard-16-WIN-200.png" border="0"> PDF application, powered by AI-based OCR, for unified workflows with both digital and scanned documents. </a>
-<!-- affiliate ads end -->
 
 The meme features a couple in bed with the stock photo meme guy in contemplation and the woman facing him with a concerned look. At first glance, the image shows a couple experiencing relationship problems, with the original caption showing the woman worrying that the man is thinking about other women.
 
@@ -87,13 +86,18 @@ However, subsequent memes feature satirical themes. Here are some of the most po
 
 ![the most popular versions](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-8.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 A July 2017 Instagram post by Cathrottle gained over 13,400 likes in a month. In this version, the man wonders why there are so many Fast and the Furious movies.
 
 * Redditor GallowBoob received 34,700 points and 350 comments within 24 hours of posting it.
 
 ![points and comments](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-9.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BOST%2BRecovery"><img src="https://www.systoolsgroup.com/box/ost-recovery.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/vPGg53vbOsk?si=CkSEN5HFPS7vDuAa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The post references the Toy Story character Buzz Lightyear, with the man contemplating why Buzz is in denial of being a toy.
@@ -103,8 +107,9 @@ The post references the Toy Story character Buzz Lightyear, with the man contemp
 According to sources, the stock photo meme was first featured on Twitter in December 2016.
 
 ![stock photo meme](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-10.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://united.elfm.net/c/5597632/748964/4704" target="_top" id="748964"><img src="//a.impactradius-go.com/display-ad/4704-748964" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://united.elfm.net/i/5597632/748964/4704" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Twitter user @chocos posts the image with Spanish captions, with the woman sure the man is thinking of another. However, the man wonders why there are sounds in Star Wars when the sound does not travel in space. Since then, the tweet has received over 1,700 retweets and 2,200 likes.
@@ -112,8 +117,9 @@ Twitter user @chocos posts the image with Spanish captions, with the woman sure 
 ## Part4: Bonjour Bear
 
 ![bonjour bear](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-11.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Unlike the previous stock image memes, Bonjour Bear was not an instant hit among netizens. The stock image was posted online in 2016 by Uryadnikov Sergey and featured a polar bear peeking through its winter den. However, it began causing a buzz in early 2019, following a Reddit post that included hilarious captions.
@@ -123,8 +129,9 @@ Since then, internet users have continued to use the Bonjour Bear meme to refere
 * In this version, Bonjour Bear reacts to the discovery of a wound after using hand sanitizer. The post became popular during the COVID-19 pandemic when using hand sanitizer was at its peak.
 
 ![using hand sanitizer](https://images.wondershare.com/filmora/article-images/2022/08/stock-photo-meme-12.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 In addition, the post received over 91,700 points, with 95% of upvotes, within a day on Reddit.
@@ -146,9 +153,6 @@ This is because not all stock photo providers offer their images with a creative
 
 Yes, all memes are under copyright law, which means you have the authority to govern their use. Although identifying the meme owner can be challenging, posting or sharing a meme through your social media accounts without consent violates copyright law. Therefore, only use stock image memes from verified stock content providers like Shutterstock, where the license provisions are clear.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657397/16446" target="_top" id="1657397"><img src="//a.impactradius-go.com/display-ad/16446-1657397" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657397/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Can you use watermarked stock photos to create memes?
 
 No. Before using watermarked images to create memes, you must get verifiable permission from the rights holder. This is because it violates copyright law and can result in heavy fines or even prison time in extreme circumstances.
@@ -183,4 +187,26 @@ Therefore, always perform stock image reverse searches to verify the image permi
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-elevating-your-experiences-advanced-gopro-time-lapse-tactics/"><u>[New] 2024 Approved Elevating Your Experiences Advanced GoPro Time-Lapse Tactics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-exploring-advanced-gloves-for-enhanced-vr-experience/"><u>[New] 2024 Approved Exploring Advanced Gloves for Enhanced VR Experience</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-transform-your-imagery-with-ar-and-accessible-luts/"><u>[New] 2024 Approved Transform Your Imagery with AR & Accessible LUTs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-grasping-video-aspect-ratios-a-beginners-tale/"><u>[New] Grasping Video Aspect Ratios A Beginner’s Tale</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-express-yourself-smartly-kapwings-meme-crafting/"><u>[New] In 2024, Express Yourself Smartly Kapwing's Meme Crafting</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-punpals-create-hilarious-memes-now/"><u>[New] PunPals - Create Hilarious Memes Now</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-complete-guide-to-saving-live-periscope-broadcasts-for-2024/"><u>[New] The Complete Guide to Saving Live Periscope Broadcasts for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-real-world-applications-of-magix-video-pro-x/"><u>[Updated] 2024 Approved Real-World Applications of Magix Video Pro X</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/updated-choosing-your-camera-companion-for-editing-hero-session-x-vs-cube-for-2024/"><u>[Updated] Choosing Your Camera Companion for Editing Hero Session X V/S Cube for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-dynamic-and-attractive-youtubes-channel-names-for-modern-vloggers-up-to-156-characters-for-2024/"><u>[Updated] Dynamic & Attractive YouTubes Channel Names for Modern Vloggers (Up to 156 Characters) for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/ed-enhance-audio-visual-fidelity-use-av1-on-youtube-for-2024/"><u>[Updated] Enhance Audio-Visual Fidelity Use AV1 on YouTube for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-vr-beyond-imagination-top-peripherals-and-tech/"><u>[Updated] VR Beyond Imagination - Top Peripherals & Tech</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/academic-boosters-discover-the-five-key-ways-to-utilize-chatgpt-in-schools/"><u>Academic Boosters: Discover the Five Key Ways to Utilize ChatGPT in Schools</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/gratis-online-omgevorming-van-ogv-naar-mov-professioneel-mobarisatie-door-movavi/"><u>Gratis Online-Omgevorming Van OGV Naar MOV - Professioneel Mobarisatie Door Movavi</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-the-best-android-sim-unlock-code-generators-unlock-your-honor-magic-5-lite-phone-hassle-free-by-drfone-android/"><u>In 2024, The Best Android SIM Unlock Code Generators Unlock Your Honor Magic 5 Lite Phone Hassle-Free</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-video-download-signed-talent-contracts/"><u>In 2024, Video Download - Signed Talent Contracts</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-ways-to-stop-parent-tracking-your-vivo-x90s-drfone-by-drfone-virtual-android/"><u>In 2024, Ways to stop parent tracking your Vivo X90S | Dr.fone</u></a></li>
+<li><a href="https://some-tips.techidaily.com/iphone-16-launch-exclusive-look-at-cutting-edge-spatial-recording-and-redesigned-thin-bezels-tech-news/"><u>IPhone 16 Launch: Exclusive Look at Cutting-Edge Spatial Recording and Redesigned Thin Bezels | Tech News</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-10-ingenious-ae-techniques-for-headline-hype/"><u>Top 10 Ingenious AE Techniques for Headline Hype</u></a></li>
+</ul></div>
 

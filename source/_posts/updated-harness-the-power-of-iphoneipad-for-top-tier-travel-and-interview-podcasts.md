@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Harness the Power of iPhone/iPad for Top-Tier Travel & Interview Podcasts\""
-date: 2024-12-20T20:43:23.808Z
-updated: 2024-12-25T23:39:36.170Z
+date: 2024-12-30T23:44:19.164Z
+updated: 2025-01-03T16:25:02.367Z
 tags: 
   - screen-recording
   - ai video
@@ -29,10 +29,6 @@ In the ongoing lines, you'll learn about hidden tips and tricks to record a podc
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## But First: Getting Equipped Before Recording a Podcast on an iPhone
 
 Have you decided to record a podcast? Then to create a fantastic podcast, you don't need a professional studio or bundle of recording equipment. Your iPhone or iPad is special recording equipment if you're new to podcasting. It is also a super-compact setup during traveling. Ensure that you are equipped with all mentioned in the checklist below:
@@ -48,6 +44,10 @@ Are you looking for more versatile options? Then check below the list of Externa
 **1\. [Amazon Basics Microphone](https://www.amazon.com/AmazonBasics-Desktop-Mini-Condenser-Microphone/dp/B076ZSR6BB/ref=sr%5F1%5F1%5Fsspa?keywords=external+microphone&qid=1667765123&sr=8-1-spons&psc=1)**
 
 ![amazon basics microphone](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sXLLPY11of0?si=-3YNnpnO0wbc0K_-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Amazon Basics Mini USB Condenser Microphone for Podcast is a Desktop mini microphone with a unidirectional pick-up pattern. It can achieve excellent sound quality and Works with Skype, Messages, FaceTime, Twitch, and YouTube.
 
@@ -88,6 +88,10 @@ _**What you will get**_
 
 ![saramonic lavalier microphone for iphone and ipads](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HSFNIAYChbA?si=4TIlsUrYmY5vP2il" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Saramonic has been Specialising in High-Quality Musical Instruments for the last ten years. It provides an Ultra-compact clip-on lavalier microphone that records rich, broadcast-quality sound and connects straight to the Lightning connector of an Apple iPhone or iPad.
 
 _**Features**_
@@ -111,6 +115,10 @@ _**What you will get**_
   * 1 x Reusable Cable Strap
 * Audio sensitivity: 40 dB
 * Price: $18.99 Amazon
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/_SbYznUy_zY?si=ThBkP934r3mizi48" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Accessories
 
@@ -141,6 +149,10 @@ You next need to adjust and place the microphone for good-quality audio capture.
 **2\. [Pyle Tabletop Microphone Stand](https://www.amazon.com/Pyle-Desktop-Tripod-Microphone-Stand/dp/B005MII5MK/ref=sr%5F1%5F1?crid=S9XEDJBNLQUD&keywords=tabletop+stands+for+podcast&qid=1667803722&sprefix=tabletop+stands+forpodcast%2Caps%2C385&sr=8-1)**
 
 ![pyle tabletop microphone stand](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-5.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 With its sturdy U-shaped die-casting iron base, the Pyle mic stand will offer stability and exact balance and prevent falling. As a result, it is an ideal professional mic stand for iPad applications.
 
@@ -185,6 +197,10 @@ _**Features**_
 **2\. [GarageBand](https://www.apple.com/ios/garageband/)**
 
 ![garageband interface](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-7.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3AGmFrtBLHw?si=VhvpUaXHPBHl6OT6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Regardless of where you are, playing, recording, and sharing music is simple with GarageBand for iOS.
 
@@ -241,6 +257,10 @@ Full multi-track editing is available in Ferrite, from short edits to creating a
 
 You are all set and choose the best recording software. Now you will record a podcast on iPhone or an iPad. The ongoing lines will teach you from A-Z, and you'll get an extraordinary result.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 1\. Record a Podcast in GarageBand
 
 GarageBand is unquestionably the best program for you to use to create your podcast. But, unfortunately, there isn't a portable, user-friendly workstation that you can always have with you.
@@ -249,15 +269,15 @@ Additionally, it includes every functionality required to satisfy podcasters' de
 
 You can check out the video below if you face any bugs regarding the Recording of podcasts on iPhone or iPad by GarageBand. Because sometimes, watching is more precisely working than just reading lines.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. How To Set up GarageBand
 
 Step1 First of all, **Setting Up** Your GarageBand Project
 
 ![setup garageband](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-10.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 Startup GarageBand. If this is your first time using it, choose **"Empty Project"** from the list of available project templates.
 
@@ -269,11 +289,19 @@ Step3 Then, a window asks what audio track you'll be recording in the following 
 
 **Note:** you are ready to start recording if you are utilizing one microphone. But let's imagine you need to record with more than one microphone simultaneously (let's say you're the podcast presenter and you have a co-host or a guest). In that situation, you'll need to create numerous tracks and choose the appropriate input for each. Each track should be for a different external microphone that you're using.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### ● Podcast Recording in GarageBand
 
 The project window will immediately dismiss when everything is prepared, and the **workspace's home page** will appear. Be careful to disable the metronome and count-in features at the top before beginning to record podcasts.
 
 ![podcast recording in garageband](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-12.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 * To ensure you maintain your **settings** and won't modify them accidentally later, I suggest saving your settings before pressing the record button.
 
@@ -295,17 +323,9 @@ To record a podcast, you have to focus entirely on what you are doing. In this a
 
 Turning off these features will not affect any podcast steps.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 2\. Turn off Notifications
 
 The distraction of any notification will disturb your recording tracks, increasing your recording time and causing bugs. That's why putting your iPhone or iPad on **"Turning Off Notifications"** is the only way to get an efficient podcast.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Mount your iPhone to keep it secure
 
@@ -343,10 +363,6 @@ Step2 Startup GarageBand. If this is your first time using it, choose **"Empty P
 
 ![startup garageband](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-11.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RCYs8keh-Vs?si=uDC28-9yh-k6HLj4" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Then, a window asks what audio track you'll be recording in the following step. Click "**Create**" after selecting **"Microphone**" and selecting the mic's input. You will receive one audio track as a result.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
@@ -359,23 +375,19 @@ The project window will immediately dismiss when everything is prepared, and the
 
 ![podcast recording in garageband](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-12.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * To ensure you maintain your **settings** and won't modify them accidentally later, I suggest saving your settings before pressing the record button.
 
 ![saving the settings on garageband](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-13.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * You must adjust various audio track settings if you record podcasts using multiple microphones. Go to **"Track / Configure Track Header"** in the menu bar and choose **"Record Enable**." You won't need to do anything if you use one microphone to record podcasts.
 
 ![configure track header](https://images.wondershare.com/filmora/article-images/2022/12/record-podcast-on-iphone-ipad-14.jpg)
 
 * Once everything is ready, choose each audio track used for recording by checking the record-enable box. That will become red when you press the record button in the menu bar, indicating that the tracks are prepared to capture your voice.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Top Tips For Podcasting With An iPhone
 
@@ -391,17 +403,9 @@ Turning off these features will not affect any podcast steps.
 
 The distraction of any notification will disturb your recording tracks, increasing your recording time and causing bugs. That's why putting your iPhone or iPad on **"Turning Off Notifications"** is the only way to get an efficient podcast.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iLlpdv0cz_k?si=HwTdnMmeVJXm4GPV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 3\. Mount your iPhone to keep it secure
 
 Holding your phone while recording may cause bumps, vibrations, or knocks to be picked up by the microphone and heard in your podcast. To keep your phone steady, we advise utilizing a tripod and grip.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/BmegThMdrJE?si=rILo1FJb9DgnPljV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 4\. Test your audio before
 
@@ -412,10 +416,6 @@ To determine how your audience will hear your podcast, test the audio on several
 Recording your podcast in a room with less background noise is ideal, but it should not be required. This includes noise from air conditioners, fans, music, or noisy roommates, as well as traffic or pedestrian noise.
 
 Additionally, pick a space with few reflecting surfaces since too much reflection will give your music an unpleasant, distant, echo-like feel. Reduce these reflections using carpets, rugs, drapes, and bookshelves to improve the quality of your podcast.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Final Words
 
@@ -453,24 +453,14 @@ All the equipment mentioned above is available at Amazon, and you should grab th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-crafting-compelling-movies-implementing-fade-techniques-for-2024/"><u>[New] Crafting Compelling Movies Implementing Fade Techniques for 2024</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ffective-call-to-actions-boosting-video-engagement/"><u>[New] Effective Call-to-Actions Boosting Video Engagement</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-choosing-between-projectors-and-tvs-for-superior-4k-viewing/"><u>[New] In 2024, Choosing Between Projectors & TVs for Superior 4K Viewing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-ultimate-compilation-exceptional-8k-cameras-ranked/"><u>[New] In 2024, Ultimate Compilation Exceptional 8K Cameras Ranked</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-game-changing-impact-of-freesync-on-lgs-ud68-monitors/"><u>[New] The Game-Changing Impact of FreeSync on LG's UD68 Monitors</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-unveiling-best-waterproof-tech-action-cameras-roundup-for-2024/"><u>[New] Unveiling Best Waterproof Tech Action Cameras Roundup for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-essential-iphone-applications-for-clearing-photos-of-obstacles/"><u>[Updated] 2024 Approved Essential iPhone Applications for Clearing Photos of Obstacles</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-streamlining-remote-work-merging-skype-and-zoom-together/"><u>[Updated] Streamlining Remote Work Merging Skype and Zoom Together</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/2024-approved-optimal-zoom-audio-enhancing-quality-two-fold-approach/"><u>2024 Approved Optimal Zoom Audio Enhancing Quality, Two-Fold Approach</u></a></li>
-<li><a href="https://win-solutions.techidaily.com/best-online-resources-to-get-premium-voiceover-enhancements-at-no-cost-for-video-projects/"><u>Best Online Resources to Get Premium Voiceover Enhancements at No Cost for Video Projects</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/in-2024-unleash-creativity-using-snapchat-to-edit-and-enhance-photos/"><u>In 2024, Unleash Creativity Using Snapchat to Edit and Enhance Photos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-visionary-education-the-power-of-virtual-reality/"><u>In 2024, Visionary Education The Power of Virtual Reality</u></a></li>
-<li><a href="https://article-tips.techidaily.com/inside-the-cut-an-in-depth-look-at-d500-4k-for-2024/"><u>Inside the Cut An In-Depth Look at D500 4K for 2024</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/overcome-mouse-pad-malfunctions-lenovo-solutions-compatible-with-windows-versions-1187/"><u>Overcome Mouse Pad Malfunctions: Lenovo Solutions Compatible with Windows Versions [11/8/7]</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-ultimate-youtube-video-blueprint-mastering-visual-content-sharing-for-2024/"><u>The Ultimate Youtube Video Blueprint Mastering Visual Content Sharing for 2024</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-infinix-smart-7-hd-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Infinix Smart 7 HD without Them Knowing | Dr.fone</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/standing-and-applying-youtube-markup/"><u>Understanding & Applying YouTube Markup</u></a></li>
-<li><a href="https://fox-friendly.techidaily.com/unlock-the-power-of-podcasts-15-task-filled-activities-to-do-while-listening-to-your-favorite-talk-shows-for-2024/"><u>Unlock the Power of Podcasts 15 Task-Filled Activities to Do While Listening to Your Favorite Talk Shows for 2024</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/voice-activated-ai-chatgpt-for-android-users/"><u>Voice-Activated AI ChatGPT for Android Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-budget-friendly-filmmakers-dream/"><u>[New] 2024 Approved The Budget-Friendly Filmmaker's Dream</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-in-2024-live-stream-archive-a-users-blueprint-to-downloadability/"><u>[Updated] In 2024, Live Stream Archive A User's Blueprint to Downloadability</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-sky-high-security-for-your-photos-explore-free-and-paid-options/"><u>[Updated] In 2024, Sky-High Security for Your Photos Explore Free and Paid Options</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-tonal-trails-the-journey-of-audio-blending-for-2024/"><u>[Updated] Tonal Trails The Journey of Audio Blending for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/enhance-skills-and-strategy-opt-for-free-voice-modification-in-valorant-for-2024/"><u>Enhance Skills & Strategy Opt for Free Voice Modification in Valorant for 2024</u></a></li>
+<li><a href="https://ios-unlock.techidaily.com/in-2024-iphone-is-disabled-here-is-the-way-to-unlock-disabled-iphone-13-pro-by-drfone-ios/"><u>In 2024, iPhone Is Disabled? Here Is The Way To Unlock Disabled iPhone 13 Pro</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/96237056-9781785358050-the-fall-2nd-ed/"><u>The Fall (2nd ed.) | Free Book</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/top-16-from-meizu-21-pro-to-other-android-devices-data-transfer-apps-to-switch-phone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Top 16 from Meizu 21 Pro to Other Android Devices Data Transfer Apps to Switch Phone Easily | Dr.fone</u></a></li>
+<li><a href="https://win-able.techidaily.com/ultimate-guide-resolving-fortnite-warzone-stutter-and-lag-issues/"><u>Ultimate Guide: Resolving Fortnite (Warzone) Stutter & Lag Issues</u></a></li>
 </ul></div>
 

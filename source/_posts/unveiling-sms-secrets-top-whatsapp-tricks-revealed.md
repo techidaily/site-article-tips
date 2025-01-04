@@ -1,7 +1,7 @@
 ---
 title: "\"Unveiling SMS Secrets  Top WhatsApp Tricks Revealed\""
-date: 2024-08-15T08:55:57.109Z
-updated: 2024-08-16T08:55:57.109Z
+date: 2024-12-29T06:44:32.310Z
+updated: 2025-01-04T00:36:52.365Z
 tags: 
   - screen-recording
   - ai video
@@ -32,6 +32,10 @@ With more than a billion active users worldwide, WhatsApp is now among the prima
 * [What are the Hidden Features of WhatsApp?](#part2)
 * [Edit WhatsApp Videos with Ease](#part3)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/kZVDkvMZvP4?si=xAugrCf-Ud6EMMpm" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Cool WhatsApp Text Tricks to Make You Look Edgy
 
 You can do a lot of things with your WhatsApp fonts, appearance, and texts that will make your messages look oh-so-edgy! From italics, bold, strikethrough to monospace there are plenty of text formatting tricks to dress up your epic announcements, festive greetings et al. Rounding it all, here are the best WhatsApp Typing Tricks you can use right away.
@@ -41,6 +45,10 @@ You can do a lot of things with your WhatsApp fonts, appearance, and texts that 
 Yes, you can bold your text. Just add a star (\*) symbol before and after your text. Don’t use space between the \* and the letter.
 
 ![Whatsapp Text Tricks Bold](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-bold.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nl0Z0eth1u4?si=0eecOBNfc--51AJO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 2.Italic
 
@@ -60,11 +68,19 @@ The monospace is a font stylization now available in WhatsApp that allows you to
 
 ![Whatsapp Text Tricks Monospace](https://images.wondershare.com/filmora/article-images/whatsapp-text-tricks-monospace.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aknYnDfODro?si=zONIVzA9FFq0rLOD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5.Disable Read Recipients
 
 WhatsApp introduced the Blue Tick feature to notify users when their messages are not only delivered but are seen by the recipients. But it has also been the cause of fallouts between loved ones and even trouble at work for failing to respond despite a Blue Tick. Now you can control the fury with WhatsApp Text Tricks of disabling the Read Recipient feature. Go Settings >> Account >> Privacy >> Read Recipients. By doing this, you won’t be able to see your contact’s blue ticks as no one will be able to see yours. Unlike custom notifications, the Read Recipient feature applies to your entire contact list and cannot be used for one specific contact. The sender would see black double ticks even if you read the message.
 
 ![Whatsapp Disable Read Recipients](https://images.wondershare.com/filmora/article-images/whatsapp-disable-read-recipients.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 6.Pin Prioritized Contacts
 
@@ -99,8 +115,9 @@ While typing a WhatsApp message if you need to cross-check certain areas with so
 ![Whatsapp Typing Trick](https://images.wondershare.com/filmora/article-images/whatsapp-typing-trick.png)
 
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793234/19578" target="_top" id="1793234"><img src="//a.impactradius-go.com/display-ad/19578-1793234" border="0" alt="" width="678" height="452"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793234/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## What are the Hidden Features of WhatsApp?
 
 Since most of the above-mentioned are owing to the tricks and trades of texting via WhatsApp, let us now jot down a WhatsApp hidden feature list that applies for general usability of the wonder-app. There are useful privacy settings and chat features that can make your user experience a lot more peaceful.
@@ -126,9 +143,6 @@ If there is confusion with a location, where sharing addresses is not an option,
 As long as you have the chat history intact you can search specific words to trace an old chat within a thread. Open the message thread of the specific contact, tap on the 3 Dots button on the top left and click on “Search”. Then type a word from the particular chat, hit enter to trace it.
 
 ![Whatsapp Search Old Chat](https://images.wondershare.com/filmora/article-images/whatsapp-search-old-chat.png)
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2068416/7443" target="_top" id="2068416"><img src="//a.impactradius-go.com/display-ad/7443-2068416" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2068416/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 #### 5.Restore Your Chat History, and Deleted Chats
 
@@ -139,6 +153,10 @@ Sometimes you can restore deleted chat history if you have switched sims or mist
 Sometimes you just need to hush your WhatsApp for just a while. Perhaps you have to lend your phone to someone but don’t want them bumping into any of your private incoming messages. While other social media allow “logging off”, WhatsApp is always there in your face! Though high-fidelity phones allow fingerprint and face locking, not everyone owns a compatible device right now. Yet you don’t have to delete the app or go Aeroplane Mode, just force stop it. Though it is not an inbuilt WhatsApp feature, you can control the gamut by going to Settings>> Apps and Notifications >> WhatsApp >> Disable. Then in the same section go to Data Settings and disable Background Data. If you do this, your messages will come but you won’t’ get them until you open the app, meanwhile, keep receiving calls and all use your phone full-fledged.
 
 ![Whatsapp Hidden Feature Snooze Whatsapp](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-snooze-whatsapp.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7.Automatically Delete Messages After 7 Days
 
@@ -151,13 +169,6 @@ Not every message thread is important, and many people have the habit of deletin
 If it is annoying to open a loved one’s story and then automatically sliding into a story you did not want to open, you can MUTE the people whose stories you are not interested to see. Go to Story and tap and hold the unwanted contact to open the Mute option. Even though there is no option that you can stop the automatic carousel to the next contact’s stories altogether, you can always go by the rule of the thumb - place your thumb on the screen and the carousel won’t move.
 
 ![Mute Whatsapp Stories](https://images.wondershare.com/filmora/article-images/mute-whatsapp-stories.jpg)
-<!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
-<!-- affiliate ads end -->
 
 #### 9.Reply Privately to Recipients in a WhatsApp Group
 
@@ -168,11 +179,16 @@ This is as simple as it sounds. Tap and hold to select a message in a group and 
 Manage how you are notified of messages from specific contacts and groups. Go to the main page of the contact or group you wish to customize, and there you will find Custom Notifications. Activate the mode to open a wide range of options - notification tones, pop up, preview, etc.
 
 ![Whatsapp Hidden Feature Custom Notification](https://images.wondershare.com/filmora/article-images/whatsapp-hidden-feature-custom-notification.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082526/7443" target="_top" id="2082526"><img src="//a.impactradius-go.com/display-ad/7443-2082526" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082526/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c-BHGGIC0zE?si=FzUQKZa-bx8OlKuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Source: beebom.com
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Edit WhatsApp Videos with Ease
 
@@ -183,9 +199,6 @@ Some of the best WhatsApp video editing tricks are coming up, wherein you can ad
 There are no download options for photos and videos for WhatsApp Statuses, yet you can have it on your PC, iPhone, and Android device and surprise a loved one by editing the videos they did not send you personally. To do this, you can go to File Manager >> Settings >> Turn on Show Hidden Files; after doing this go back to Internal Storage >> WhatsApp >> Media >> Statuses. Once you have the Video, you can import it to Filmora and use a gamut of video editing tools to create the magic!
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/) [![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg) ](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713324&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVTV1.90-300x188.jpg" border="0">OtsAV TV Webcaster</a>
-<!-- affiliate ads end -->
 
 #### 2.Record Video Calls from PC and Improve Its Quality
 
@@ -195,9 +208,6 @@ For this WhatsApp Video Editing Trick, you would need to have a third-party scre
 
 You can create an instant GIF out of the video file within WhatsApp. Do this, let the video download, and then freshly share it from Attach >> Gallery >> Videos. Before sending, the video editing panel would open, there, you can see the GIF option at the top right. It will shorten your video to 6 seconds, adjust the cursor to the portion you wish to use.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Conclusion
 
 When it comes to WhatsApp Tricks and Trades, you always have to look forward to every update. Keep a tab on the updates and find a new WhatsApp Hidden Feature now and then.
@@ -229,4 +239,22 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-elevate-your-ig-videos-tips-and-templates/"><u>[New] 2024 Approved Elevate Your IG Videos Tips & Templates</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-2024-approved-master-list-the-finest-no-money-video-player-tools-and-software-pcmobile/"><u>[New] 2024 Approved Master List The Finest No-Money Video Player Tools & Software (PC/Mobile)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-iconic-images-uncovered-histories-for-2024/"><u>[New] Iconic Images Uncovered Histories for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-explore-the-spectrum-of-light-with-windows-hdr-video-capabilities/"><u>[Updated] 2024 Approved Explore the Spectrum of Light with Windows' HDR Video Capabilities</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-ultimate-vr-buying-guide-mobile-liberty-or-tethered-unity/"><u>[Updated] 2024 Approved The Ultimate VR Buying Guide Mobile Liberty or Tethered Unity?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-creating-gentle-volume-reduction-in-audacity-for-2024/"><u>[Updated] Creating Gentle Volume Reduction in Audacity for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-launching-a-graphics-career-strategies-and-steps-for-2024/"><u>[Updated] Launching a Graphics Career Strategies and Steps for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-maximize-youtube-exposure-in-156-characters-or-less/"><u>[Updated] Maximize YouTube Exposure in 156 Characters or Less</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-nocturnal-nexus-versus-daylight-dominion/"><u>[Updated] Nocturnal Nexus Versus Daylight Dominion</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/updated-ultimate-selection-of-economical-4k-projection-screens/"><u>[Updated] Ultimate Selection of Economical 4K Projection Screens</u></a></li>
+<li><a href="https://fox-links.techidaily.com/2024-approved-discovering-samsungs-updated-ultrablade-k850/"><u>2024 Approved Discovering Samsung's Updated UltraBlade K850</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/budget-friendly-amazonbasics-cross-cut-paper-shredder-6-sheets-per-pass-evaluation/"><u>Budget-Friendly AmazonBasics Cross-Cut Paper Shredder - 6 Sheets Per Pass Evaluation</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/discover-the-power-of-smooth-playback-asus-latest-rog-strix-xg27-wcs-gaming-monitor-a-game-changing-27-va-panel-with-exceptional-180hz-refresh-rate/"><u>Discover the Power of Smooth Playback: Asus' Latest ROG Strix XG27 WCS Gaming Monitor, a Game-Changing 27 VA Panel with Exceptional 180Hz Refresh Rate</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-hitbox-vs-twitch-which-is-better/"><u>In 2024, Hitbox Vs Twitch Which Is Better?</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/precision-camera-mount-for-optimal-field-recordings-for-2024/"><u>Precision Camera Mount for Optimal Field Recordings for 2024</u></a></li>
+</ul></div>
 

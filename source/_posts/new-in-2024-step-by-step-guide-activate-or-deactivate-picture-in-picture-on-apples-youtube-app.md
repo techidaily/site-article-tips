@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide  Activate or Deactivate Picture-in-Picture on Apple's YouTube App\""
-date: 2024-12-19T17:13:52.863Z
-updated: 2024-12-25T22:33:52.228Z
+date: 2024-12-30T02:56:11.238Z
+updated: 2025-01-03T19:43:46.154Z
 tags: 
   - screen-recording
   - ai video
@@ -39,6 +39,10 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![enable pip on iphone](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-1.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. If you require a **YouTube PIP** shortcut app on your device to proceed, you can download it from App Store or [the Shortcuts Gallery browser](https://shortcutsgallery.com/shortcuts/youtube-pip/) and then add it to your Shortcut Library.
 2. Open the **YouTube PIP** Shortcut and tap **Get Shortcut** on the App. You will be redirected to the shortcut application on your phone. If you don't have the shortcut application, you can download it from the App Store.
 
@@ -53,22 +57,18 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
 
 ![download scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-4.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Go to YouTube again and start any video. Tap the **Share icon**, scroll to the right and tap the **More icon**, go ahead and tap the YouTube PIP. And on the burner that pops up at the top of the screen of your phone, tap **OK**.
 
 ![floating screen](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-5.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
 
@@ -82,13 +82,13 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 4. Scroll down. You will see the **Picture-in-Picture**
 5. Tap the switch button to switch it off. And there you are. You have disabled PIP for YouTube on iPhone.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
 Picture in Picture is now a native quality utility feature on many Apps on different platforms. PIP has stayed for some time since it was developed and introduced for third-party utilization. However, YouTube is still left out of this. To enable PIP on Mac, you will need to go a step ahead to do it. Enjoying PIP on an iPad is also not a straightforward thing. All the same, Mac and iPad require very simple instructions to allow you to use Picture in Picture with them.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### PIP on iPad
 
@@ -111,7 +111,7 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### PIP on Mac
@@ -132,7 +132,7 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -169,20 +169,16 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-building-your-brand-on-instagram-the-top-9-actions-of-industry-stars/"><u>[New] 2024 Approved Building Your Brand on Instagram The Top 9 Actions of Industry Stars</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-transforming-gamers-with-funimate-knowledge-for-2024/"><u>[New] Transforming Gamers with Funimate Knowledge for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-demystifying-the-high-tech-world-of-vr-devices/"><u>[Updated] Demystifying the High-Tech World of VR Devices</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-encompassing-activity-survey/"><u>[Updated] Encompassing Activity Survey</u></a></li>
-<li><a href="https://fox-access.techidaily.com/updated-in-2024-metaverse-advertising-insights-and-tactics/"><u>[Updated] In 2024, Metaverse Advertising Insights & Tactics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-speed-kings-and-queens-key-moments-from-the-short-track-games/"><u>[Updated] In 2024, Speed Kings and Queens Key Moments From the Short Track Games</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/m4awmv-movavi/"><u>在线免费M4A转换为WMV：如何利用 Movavi软件进行格式转换</u></a></li>
-<li><a href="https://facebook.techidaily.com/building-bridges-socially-the-7-networking-benefits/"><u>Building Bridges Socially: The 7 Networking Benefits</u></a></li>
-<li><a href="https://win-answers.techidaily.com/complete-guide-no-more-cyberpunk-2077-download-troubles-on-steam/"><u>Complete Guide: No More Cyberpunk 2077 Download Troubles on Steam!</u></a></li>
-<li><a href="https://article-tips.techidaily.com/expert-tips-for-crafting-intricate-photo-mosaics/"><u>Expert Tips for Crafting Intricate Photo Mosaics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-photographic-soundtracking-online/"><u>In 2024, Photographic Soundtracking Online</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/sound-blaster-mic-wont-work-here-are-the-top-fixes-you-need-to-try/"><u>Sound Blaster Mic Won't Work? Here Are the Top Fixes You Need to Try</u></a></li>
-<li><a href="https://fox-access.techidaily.com/top-6-retailers-for-purchasing-your-ideal-laptop/"><u>Top 6 Retailers for Purchasing Your Ideal Laptop</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/top-tips-for-solving-problems-when-your-iphones-email-service-fails/"><u>Top Tips for Solving Problems When Your iPhone's Email Service Fails</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/dpx-movavi/"><u>영구 무료: 컴퓨터에서 DPX 파일을 원근직청스해야 할 수는 없다 – Movavi 가이드</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-enhancing-video-conferencing-skills-on-chromebooks/"><u>[New] In 2024, Enhancing Video Conferencing Skills on ChromeBooks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-mastering-transitions-in-audition-fade-in-basics/"><u>[New] Mastering Transitions in Audition Fade-In Basics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-painters-touch-mastering-color-artistry-for-2024/"><u>[New] The Painter's Touch Mastering Color Artistry for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-become-a-meme-wizard-with-these-9gag-strategies-for-2024/"><u>[Updated] Become a Meme Wizard with These 9GAG Strategies for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-screen-record-on-dell-laptop-for-2024/"><u>[Updated] How to Screen Record on Dell Laptop for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-elevating-eyebrows-top-ten-meme-design-tips/"><u>[Updated] In 2024, Elevating Eyebrows - Top Ten Meme Design Tips</u></a></li>
+<li><a href="https://facebook-video-files.techidaily.com/accessing-shared-media-in-facebook-messenger-how-in-2024/"><u>Accessing Shared Media in Facebook Messenger How, In 2024</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/exploring-what-drives-the-shift-toward-electric-transportation/"><u>Exploring What Drives the Shift Toward Electric Transportation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-prime-picks-experts-choice-of-4k-dslr-rigs/"><u>In 2024, Prime Picks Expert's Choice of 4K DSLR Rigs</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1722875427456-kids-ultimate-game-list-7-amazing-online-adventures-awaits/"><u>Kids' Ultimate Game List: 7 Amazing Online Adventures Awaits</u></a></li>
+<li><a href="https://common-error.techidaily.com/troubleshooting-tips-when-asus-laptops-function-keys-stop-working-properly/"><u>Troubleshooting Tips When ASUS Laptop's Function Keys Stop Working Properly</u></a></li>
 </ul></div>
 

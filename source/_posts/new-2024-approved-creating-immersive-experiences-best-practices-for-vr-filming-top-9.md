@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Creating Immersive Experiences  Best Practices for VR Filming (Top 9)\""
-date: 2024-08-15T08:53:26.137Z
-updated: 2024-08-16T08:53:26.137Z
+date: 2024-12-31T19:57:39.054Z
+updated: 2025-01-03T16:26:39.536Z
 tags: 
   - screen-recording
   - ai video
@@ -32,13 +32,14 @@ thumbnail: https://thmb.techidaily.com/ab7b24e72134add05d60a9c9878e14a3ae56dcbc7
 
  It is important that you use a good camera so that you can capture high quality videos. And because it is a developing technology, there are lots of options available, as well as those which are still in development. If you are looking for a good one, then go for a GoPro. A 360 video mount usually allows up to six video cameras to be mounted on it.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### 2\. Prepare enough battery and SD card
 
  When shooting a 360 degree video, you need to have enough battery and SD card. When using a GoPro camera, it requires a lot of power and storage space, especially if you are going to make a long video. It is recommended that you buy battery packs to keep your cameras charged while shooting. You should also bring extra SD cards to ensure that you have adequate storage space.
 
-<!-- affiliate ads begin -->
-<a href="https://tinyland.pxf.io/c/5597632/1793214/19135" target="_top" id="1793214"><img src="//a.impactradius-go.com/display-ad/19135-1793214" border="0" alt="" width="900" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793214/19135" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 3\. Make sure all the settings are the same
 
  When using multiple cameras, it is important to make sure that all the setting of each GoPro camera is the same. It is recommended to use manual mode, and turn off white balance, ISO, and color temperature. You should also use 4:3 ratio to ensure you have the largest coverage. That way editing the 360 degree will be easier. There will be fewer corrections to be made with the individual videos.
@@ -48,33 +49,37 @@ thumbnail: https://thmb.techidaily.com/ab7b24e72134add05d60a9c9878e14a3ae56dcbc7
  You need an unipod to keep the camera setup stable at all times, and at the same time allow you to move with ease. Moving with a tripod can be hard. Another benefit of using a unipod is that it is easier to clean after the video shoot because it only has a single leg, compared to the tripod’s three legs.
 
 <!-- affiliate ads begin -->
-<a href="https://turbotech.pxf.io/c/5597632/1450763/17212" target="_top" id="1450763"><img src="//a.impactradius-go.com/display-ad/17212-1450763" border="0" alt="" width="2560" height="1440"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1450763/17212" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 5\. Keep device at the same height as your line of sight
 
  The placement of the camera can affect the experience of the viewers. If the camera is too low, the viewers will feel like they are two feet shorter. It will be like see the world as a mouse. And if the camera is too high, the viewers will feel like they are giants. And if the viewers will be watching the 360 video with a VR headset, the effect will be exaggerated a lot more. That’s why it is important to keep the camera level with your line of sight.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### 6\. Keep all the videos in the same timeline for easier editing of the video
 
  When the videos are recorded in the same timeline, it will make it easier to edit the video. It is recommended to turn on all the GoPro cameras at the same time. Avoid using a remote control for the cameras because it will cost a lot of power. Another suggestion is to clap your hand around the device. That way you can identify the frame and make it easier to keep the six videos in the same timeline.
 
 <!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033095&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced-3YR.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 7\. Use natural light when available
 
  When shooting a 360 degree video, you should consider using natural light or utilize a panoramic shooting studio. That way there will be no light device shown in the resulting video.
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398457/3022" target="_top" id="398457"><img src="//a.impactradius-go.com/display-ad/3022-398457" border="0" alt="www.sentrypc.com" width="980" height="120"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398457/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### 8\. Hide the microphone
 
  For recording the audio, it is best to hide the camera. It is recommended to use a mini microphone when shooting the video. It will provide a more natural sound to other types of microphones. Hopefully in the future cameras are able to capture 360 degree sound that will make the sound shift as the viewer turns one’s head.
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4721564&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c14a8df1e1b4d5297e9cb30cb34d5a00/products/copy_power-tools-48.png" border="0">Power Tools add-on for Google Sheets, 12-month subscription</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### 9\. Keep an object in one camera
 
  It is important to keep the subject in one of the cameras or else it will be hard to stitch or edit the videos. Objects that are near the edge of the video should be static to make editing a lot easier.
@@ -82,10 +87,6 @@ thumbnail: https://thmb.techidaily.com/ab7b24e72134add05d60a9c9878e14a3ae56dcbc7
  These are the tips that you need to keep in mind when shooting a 360 degree video. It will take a lot of practice before you get the hang of shooting and editing the video. With a little stitching and editing, you can make good quality 360 degree videos that are worth sharing on YouTube.
 
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 
 Liza Brown
 
@@ -110,4 +111,18 @@ Follow @Liza Brown
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-elevate-your-content-strategies-for-youtube-success/"><u>[New] 2024 Approved Elevate Your Content Strategies for YouTube Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-how-to-use-luts-from-color-grading-central-to-color-grading-for-movies/"><u>[New] 2024 Approved How to Use Luts From Color Grading Central to Color Grading for Movies</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-seamlessly-stitch-words-onto-pictures-photo-editor-pros/"><u>[New] Seamlessly Stitch Words Onto Pictures Photo Editor Pros</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-banish-the-automatic-post-proposals-on-instagram/"><u>[Updated] Banish the Automatic Post Proposals on Instagram</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-premium-steadicam-brands-for-drones-and-camera-work-for-2024/"><u>[Updated] Premium Steadicam Brands for Drones and Camera Work for 2024</u></a></li>
+<li><a href="https://youtube-stream.techidaily.com/2024-approved-toddler-tycoon-turned-teen-titan-the-income-of-a-kid-star/"><u>2024 Approved Toddler Tycoon Turned Teen Titan The Income of a Kid Star</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-seamlessly-weaving-melodies-using-audacitys-features/"><u>In 2024, Seamlessly Weaving Melodies Using Audacity's Features</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/next-weeks-iphone-owners-meet-the-must-have-anker-charging-accessories-zdnet/"><u>Next Week's iPhone Owners, Meet the Must-Have Anker Charging Accessories! | ZDNet</u></a></li>
+<li><a href="https://article-tips.techidaily.com/step-by-step-guide-to-enhance-video-content-via-srt-transcoding-for-2024/"><u>Step-by-Step Guide to Enhance Video Content via SRT Transcoding for 2024</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/transforming-visual-narratives-with-creative-use-of-luts-in-pro-for-2024/"><u>Transforming Visual Narratives with Creative Use of LUTs in Pro for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/transition-to-darkness-premiere-pro-techniques-for-2024/"><u>Transition to Darkness Premiere Pro Techniques for 2024</u></a></li>
+</ul></div>
 

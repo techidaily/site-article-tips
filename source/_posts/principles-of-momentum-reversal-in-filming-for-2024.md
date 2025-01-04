@@ -1,7 +1,7 @@
 ---
 title: "Principles of Momentum Reversal in Filming for 2024"
-date: 2024-12-24T02:14:32.145Z
-updated: 2024-12-25T20:17:17.617Z
+date: 2024-12-27T22:11:02.316Z
+updated: 2025-01-03T19:57:08.941Z
 tags: 
   - screen-recording
   - ai video
@@ -50,7 +50,7 @@ You can also use a light that is 5,600 kelvins, which indicates blue light. We c
 ![blue light lighting setup](https://images.wondershare.com/filmora/article-images/2023/04/blue-light-lighting-setup.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 If you don't have an asset to get the lighting set up, then don't worry; we have another option.
@@ -62,10 +62,6 @@ Professional videographers create these effects using high-end lighting. But you
 First, wrap the colorful divider around the LED light or any other light you're using to take video. The dividers will be melt or burn when the light source gets too hot; therefore, check the temperature of the light after short gaps.
 
 ![wrap the led light with a plastic binder](https://images.wondershare.com/filmora/article-images/2023/04/wrap-the-led-light-with-a-plastic-binder.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * Shoot the video now, and experiment with adding suspense, terror, and cheerful effects with various colors.
 
@@ -86,10 +82,6 @@ After setting all equipment, now it's time to allow the character to perform in 
 For the first round, the subject has to do acting for the daytime script. Let the character do their performance according to the screenplay.
 
 In this article, we are doing a daytime performance in the first round. For this, the subject should go from right to left to step over for night time dimension.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### #1 night-time lighting setup
 
@@ -151,10 +143,6 @@ Find the best clips you have shotted for each dimension. Then follow the below s
 * Then, drag and drop the daytime clip on the bottom video track of the timeline.
 
 ![daytime clip on the bottom video track](https://images.wondershare.com/filmora/article-images/2023/04/daytime-clip-on-the-bottom-video-track.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/iOVkXoUxLf4?si=QfC18T2cb5OkiaXo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 After importing the daytime clip to the timeline, now it's time to add marks for better editing.
 
@@ -219,6 +207,10 @@ Play the video again and check out the smoothness of the actions. As we have alr
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** If your video actions are not aligning with each other, then adjust again according to the requirements.
 
 ##### Step9Add effects to the timeline
@@ -231,15 +223,7 @@ To show the energy pack between two time-travel clips, you have to add the effec
 
 ![elemental effects](https://images.wondershare.com/filmora/article-images/2023/04/elemental-effects.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** After dropping the effect, ensure that it starts simultaneously when the nighttime clip appears on the screen.
 
@@ -259,6 +243,10 @@ To apply the chromatic effect after the power pack effect, follow the below step
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Note:** Change the settings of the effects as needed from the top left setting panel on filmora.
 
 ##### Step11Apply the laser effects
@@ -274,6 +262,10 @@ To get the thrilling look, you have to apply the laser effect between the two cl
 
 * Reposition and adjust it according to the requirements if needed.
 * Extend the laser effect to the end of the scene.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/U6lCtLUeROA?si=se6OFuis9JpcTGJf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Final Results
 
@@ -331,10 +323,6 @@ It is a very important step that you don't have to change the camera position du
 
 ![camera alignment](https://images.wondershare.com/filmora/article-images/2023/04/camera-alignment.gif)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After setting all equipment, now it's time to allow the character to perform in front of the camera.
 
 **Character position**
@@ -343,6 +331,10 @@ For the first round, the subject has to do acting for the daytime script. Let th
 
 In this article, we are doing a daytime performance in the first round. For this, the subject should go from right to left to step over for night time dimension.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### #1 night-time lighting setup
 
 In the second round, you have to create a nighttime action indicating that you need a night light. You have to change the costume of a subject as well as you can change the set too.
@@ -350,6 +342,10 @@ In the second round, you have to create a nighttime action indicating that you n
 To film a night mode, you need a warmer light, which is used to make shots for the second round. You can also use a light that is under 2700-3000 kelvins because it indicates warm light.
 
 ![night time warmer light](https://images.wondershare.com/filmora/article-images/2023/04/night-time-warmer-light.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gSKkJrJ57EA?si=WDOmInPE9EgQa_tB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 You don't need to worry if you don't have enough budget to get this setup. Because plastic binders will make your way easy, and you can create your own at home, as told earlier.
 
@@ -362,10 +358,6 @@ In this round, the subject should start from the right to left and perform stepp
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### #3 cross line between two rounds
 
@@ -385,11 +377,11 @@ You can also create a marking by using anything in yours. We are using the midli
 
 ![cross line between two rounds](https://images.wondershare.com/filmora/article-images/2023/04/cross-line-between-two-rounds.jpg)
 
-After shooting all the clips, it's time to edit them on Filmora. To do this, check out the step to step guide below.
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+After shooting all the clips, it's time to edit them on Filmora. To do this, check out the step to step guide below.
 
 ## Part 3\. Edit Teleportation Effects in Filmora
 
@@ -411,6 +403,10 @@ Find the best clips you have shotted for each dimension. Then follow the below s
 * Then, drag and drop the daytime clip on the bottom video track of the timeline.
 
 ![daytime clip on the bottom video track](https://images.wondershare.com/filmora/article-images/2023/04/daytime-clip-on-the-bottom-video-track.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 After importing the daytime clip to the timeline, now it's time to add marks for better editing.
 
@@ -451,10 +447,6 @@ For better alignment of the clips, trim the nighttime clip where marker one is p
 
 ![trim the nighttime clip at marker 1](https://images.wondershare.com/filmora/article-images/2023/04/trim-the-nighttime-clip-at-marker-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/M5pwd2mwaQQ?si=qyZHgdTlbQbc32Mp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After alignment and trimming points, the timeline is finalized, then add the mask effects for a fascinating look.
 
 ##### Step8Apply a shape mask
@@ -474,6 +466,10 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 * Tweak the mask settings until the nighttime clip appears on the left and the daytime clip with the character on the right.
 
 ![change the shape mask settings](https://images.wondershare.com/filmora/article-images/2023/04/change-the-shape-mask-settings.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Play the video again and check out the smoothness of the actions. As we have already marked the points, that's why the actions match with each other and give an equivalent look!
 
@@ -508,6 +504,10 @@ To apply the chromatic effect after the power pack effect, follow the below step
 * Find the Distortion section and select the chromatic aberration effect.
 
 ![chromatic aberration effect from distortion](https://images.wondershare.com/filmora/article-images/2023/04/chromatic-aberration-effect-from-distortion.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
@@ -569,24 +569,16 @@ Create for you and add different effects and experiment with new features. You w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-get-the-glamour-swipes-masterful-tinder-profile-secrets-revealed/"><u>[New] Get the Glamour Swipes - Masterful Tinder Profile Secrets Revealed</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-jaunt-vr-unleashed-an-in-depth-look/"><u>[New] In 2024, Jaunt VR Unleashed An In-Depth Look</u></a></li>
-<li><a href="https://visual-screen-recording.techidaily.com/new-in-2024-next-level-broadcast-software-showdown-with-obs/"><u>[New] In 2024, Next-Level Broadcast Software Showdown with OBS</u></a></li>
-<li><a href="https://fox-direct.techidaily.com/updated-auroras-influence-on-modern-image-processing-techniques-for-2024/"><u>[Updated] Aurora's Influence on Modern Image Processing Techniques for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/updated-exceptional-uav-selection-for-optimal-gopro-footage/"><u>[Updated] Exceptional UAV Selection for Optimal GoPro Footage</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-from-dim-to-dazzling-a-guide-to-selecting-top-quality-displays/"><u>[Updated] From Dim to Dazzling A Guide to Selecting Top-Quality Displays</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-beneath-blue-waves-expert-tips-for-creating-stunning-underwater-footage-using-gopro/"><u>[Updated] In 2024, Beneath Blue Waves Expert Tips for Creating Stunning Underwater Footage Using GoPro</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-inspiring-video-concepts-for-impactful-presentations-for-2024/"><u>[Updated] Inspiring Video Concepts for Impactful Presentations for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-sony-s6700-updated-summary-unpacked/"><u>[Updated] Sony S6700 Updated Summary Unpacked</u></a></li>
-<li><a href="https://win-premium.techidaily.com/allavsoft-vs-movavi-discover-the-premier-mac-and-pc-companion-apps-for-seamless-screen-capturing/"><u>Allavsoft Vs. Movavi: Discover the Premier Mac & PC Companion Apps for Seamless Screen Capturing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/how-luts-revolutionize-your-photo-editing-experience-for-2024/"><u>How LUTs Revolutionize Your Photo Editing Experience for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-immersive-cinematography-anchors/"><u>In 2024, Immersive Cinematography Anchors</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/in-2024-perfecting-your-makeup-mastery/"><u>In 2024, Perfecting Your Makeup Mastery</u></a></li>
-<li><a href="https://article-tips.techidaily.com/melding-melodies-with-memories-in-cyberspace-for-2024/"><u>Melding Melodies with Memories in Cyberspace for 2024</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/roku-users-rejoice-upcoming-no-cost-premium-improvement-announced-by-zdnet/"><u>Roku Users Rejoice: Upcoming No-Cost Premium Improvement Announced by ZDNet</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/secure-steep-discounts-on-quality-roku-streaming-media-players-and-sticks/"><u>Secure Steep Discounts on Quality Roku Streaming Media Players & Sticks</u></a></li>
-<li><a href="https://techidaily.com/simple-ways-to-get-lost-messages-back-from-vivo-x-flip-by-fonelab-android-recover-messages/"><u>Simple ways to get lost messages back from Vivo X Flip</u></a></li>
-<li><a href="https://bypass-frp.techidaily.com/ultimate-guide-on-vivo-x100-frp-bypass-by-drfone-android/"><u>Ultimate Guide on Vivo X100 FRP Bypass</u></a></li>
-<li><a href="https://program-issues.techidaily.com/1722993098360-update-trouble-heres-how-you-can-fix-minecraft-launcher-issues-easily/"><u>Update Trouble? Here's How You Can Fix Minecraft Launcher Issues Easily</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-synchronized-success-audio-meets-visual-in-films/"><u>[New] 2024 Approved Synchronized Success Audio Meets Visual in Films</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-how-to-win-over-product-sponsors-in-the-youtube-arena/"><u>[New] In 2024, How to Win Over Product Sponsors in the YouTube Arena</u></a></li>
+<li><a href="https://some-tips.techidaily.com/new-swift-image-adaptation-techniques-for-iphone-users/"><u>[New] Swift Image Adaptation Techniques for iPhone Users</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-essential-breakdown-for-wm6-setup/"><u>[Updated] 2024 Approved Essential Breakdown for WM6 Setup</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-mastering-backtracking-in-twitch-broadcasts/"><u>[Updated] Mastering Backtracking in Twitch Broadcasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-strategic-insights-into-procuring-a-mountain-of-videos-from-tiktok/"><u>[Updated] Strategic Insights Into Procuring a Mountain of Videos From TikTok</u></a></li>
+<li><a href="https://article-tips.techidaily.com/essential-iphone-selfie-tools-ranked-8/"><u>Essential iPhone Selfie Tools Ranked #8</u></a></li>
+<li><a href="https://digital-screen-recording.techidaily.com/in-2024-enhancing-visual-presentation-before-and-after-team-calls/"><u>In 2024, Enhancing Visual Presentation Before & After Team Calls</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-iphone-x876-owners-must-have-gif-apps-guide/"><u>In 2024, IPhone X/8/7/6 Owners' Must-Have GIF Apps Guide</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/the-future-of-web-search-with-microsofts-latest-ai-enhancements-to-bing/"><u>The Future of Web Search with Microsoft's Latest AI Enhancements to Bing</u></a></li>
+<li><a href="https://win-answers.techidaily.com/1722995115910-valorant-playback-woes-heres-how-to-solve-them/"><u>Valorant Playback Woes? Here's How to Solve Them</u></a></li>
 </ul></div>
 

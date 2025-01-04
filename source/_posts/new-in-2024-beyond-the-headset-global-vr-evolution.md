@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Beyond the Headset  Global VR Evolution\""
-date: 2024-12-19T23:57:19.381Z
-updated: 2024-12-25T23:15:20.301Z
+date: 2025-01-02T07:28:42.134Z
+updated: 2025-01-03T22:38:40.839Z
 tags: 
   - screen-recording
   - ai video
@@ -31,6 +31,10 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/j5gTm5KxtQ0?si=onF1rBS2nEM5nLGg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## What’s the popular VR platforms and what is developing fast?
 
  Well, the fourth Annual GDC European State of the Industry was held just about a month ago and as always, developers from various parts of this continent took part in it. It was very clear from the developers that they are still launching games keeping the PC and Smart Phones in mind. These are still the most popular platforms where 49 percent of the developers made their latest release on PC/Mac, around 41 percent chose smart phones and tablets to be the best medium.
@@ -41,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
  )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oeSN3u4fO9M?si=Ua3Hzcil6u6akDgY" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -51,16 +55,12 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLO5dwmJAVs?si=1OYH8rv8aPaMsCiU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
 
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -79,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/84a4620f422e4279d6cc9c20449448701c42416df
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -107,20 +107,17 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-data.techidaily.com/024-approved-transformative-content-blocks-enhanced-youtube-decks/"><u>[New] 2024 Approved Transformative Content Blocks Enhanced Youtube Decks</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-your-path-to-superior-hdr-imagery-for-2024/"><u>[New] Your Path to Superior HDR Imagery for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-embark-on-a-virtual-odyssey-with-your-ios-device/"><u>[Updated] 2024 Approved Embark on a Virtual Odyssey with Your iOS Device</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/2024-approved-live-stream-longevity-preventing-and-fixing-interruptions-on-social-media/"><u>2024 Approved Live Stream Longevity Preventing and Fixing Interruptions on Social Media</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/decrypt-primes-audio-subtitles-puzzle-in-windows-11-ecosystem/"><u>Decrypt Prime's Audio-Subtitles Puzzle in Windows 11 Ecosystem</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/effortlessly-fast-forward-focus-in-video-content/"><u>Effortlessly Fast-Forward Focus in Video Content</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-minimizing-vr-nausea-effective-strategies/"><u>In 2024, Minimizing VR Nausea Effective Strategies</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-podcast-dominance-through-effective-seo-strategies/"><u>In 2024, Podcast Dominance Through Effective SEO Strategies</u></a></li>
-<li><a href="https://article-tips.techidaily.com/leveraging-periscope-for-real-time-engagement-for-2024/"><u>Leveraging Periscope for Real-Time Engagement for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/mastering-mac-passwords-retrieving-items-from-your-keychain-seamlessly/"><u>Mastering Mac Passwords: Retrieving Items From Your Keychain Seamlessly</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-best-free-speech-to-text-apps-on-mac-you-might-missed/"><u>The Best Free Speech to Text Apps on Mac You Might Missed</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/the-new-release-amds-latest-video-card-drivers-version-241/"><u>The New Release: AMD's Latest Video Card Drivers, Version 24.1</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ltimate-guide-to-designing-powerful-youtube-logos-for-2024/"><u>The Ultimate Guide to Designing Powerful YouTube Logos for 2024</u></a></li>
-<li><a href="https://pokemon-go-android.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-honor-magic-vs-2-drfone-by-drfone-virtual-android/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Honor Magic Vs 2 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/wallet-friendly-action-cam-gems-under-100-budget-for-2024/"><u>Wallet-Friendly ACTION Cam Gems Under $100 Budget for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-eco-visuals-cost-free-download/"><u>[New] Eco Visuals, Cost-Free Download</u></a></li>
+<li><a href="https://on-screen-recording.techidaily.com/new-ultimate-guide-to-choosing-winning-screen-recording-software-for-windows-for-2024/"><u>[New] Ultimate Guide to Choosing Winning Screen Recording Software for Windows for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ultimate-list-mac-video-editors-for-macos-big-sur-11-users-for-2024/"><u>[New] Ultimate List Mac Video Editors for macOS Big Sur 11 Users for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-cutting-edge-techniques-for-a-perfectly-setup-zoom-room/"><u>[Updated] 2024 Approved Cutting-Edge Techniques for a Perfectly Setup Zoom Room</u></a></li>
+<li><a href="https://youtube-sure.techidaily.com/ed-comprehensive-directory-extracting-yt-template-videos-online-for-2024/"><u>[Updated] Comprehensive Directory Extracting YT Template Videos Online for 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-in-2024-prime-filmmaker-forecasts-group/"><u>[Updated] In 2024, Prime Filmmaker Forecasts Group</u></a></li>
+<li><a href="https://vimeo-videos.techidaily.com/updated-in-2024-top-2-ios-video-editors-compared-cameo-versus-filmorago/"><u>[Updated] In 2024, Top 2 iOS Video Editors Compared Cameo Versus FilmoraGo</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-visionary-aiartisan-image-crafting-tools-for-2024/"><u>[Updated] Visionary AiArtisan Image Crafting Tools for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/approved-tele-loop-triumph-repeat-your-favorite-video-anytime-on-tv/"><u>2024 Approved Tele-Loop Triumph Repeat Your Favorite Video Anytime on TV</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/nurturing-discussions-strategies-to-connect-with-followers/"><u>Nurturing Discussions Strategies to Connect With Followers</u></a></li>
+<li><a href="https://win-solutions.techidaily.com/solving-frame-rate-issues-in-rainbow-six-extraction-a-comprehensive-guide/"><u>Solving Frame Rate Issues in Rainbow Six Extraction: A Comprehensive Guide</u></a></li>
+<li><a href="https://voice-adjusting.techidaily.com/updated-2024-approved-demystifying-pexelscom-the-ultimate-resource-for-photographers-and-designers/"><u>Updated 2024 Approved Demystifying Pexels.com The Ultimate Resource for Photographers and Designers</u></a></li>
 </ul></div>
 

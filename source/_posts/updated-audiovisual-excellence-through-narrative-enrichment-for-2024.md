@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Audiovisual Excellence Through Narrative Enrichment for 2024"
-date: 2024-08-15T08:53:08.276Z
-updated: 2024-08-16T08:53:08.276Z
+date: 2024-12-29T18:40:12.135Z
+updated: 2025-01-03T18:10:13.331Z
 tags: 
   - screen-recording
   - ai video
@@ -45,15 +45,17 @@ But here's the good news: the way you add either option is the same in Filmora.
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 <!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
+
 <!-- affiliate ads begin -->
-<a href="https://ukaidot.sjv.io/c/5597632/1793237/19578" target="_top" id="1793237"><img src="//a.impactradius-go.com/display-ad/19578-1793237" border="0" alt="" width="1200" height="1200"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1793237/19578" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ME5-sAQJVE4?si=ZfcvJSnhQevWtjI0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
@@ -61,9 +63,6 @@ A good example of this would be narrating a story on top of some still images an
 You put the playhead where you want to start recording and hit the microphone icon under the preview window.
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=195080&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.blumentals.net/scrwonder/images/screensaver-software.png" border="0">With Screensaver Wonder you can easily make a screensaver from your own pictures and video files. Create screensavers for your own computer or create standalone, self-installing screensavers for easy sharing with your friends. Together with its sister product Screensaver Factory, Screensaver Wonder is one of the most popular screensaver software products in the world, helping thousands of users decorate their computer screens quickly and easily.</a>
-<!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
@@ -81,9 +80,6 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
-<!-- affiliate ads begin -->
-<a href="https://martinic.evyy.net/c/5597632/1422856/4482" target="_top" id="1422856"><img src="//a.impactradius-go.com/display-ad/4482-1422856" border="0" alt="" width="580" height="309"/></a>
-<!-- affiliate ads end -->
 ## Narration is a great storytelling device
 
 Narration is a fantastic tool to have in your arsenal as a young filmmaker. It allows you to quickly communicate feelings, backstory, and context quickly and effectively.
@@ -92,20 +88,26 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/n4cc4BSqJls?si=Hkd9vwQDqeCGN7XG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Always use a good mic
 
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
 <!-- affiliate ads begin -->
-<a href="https://store.bitdefender.com/affiliate.php?ACCOUNT=BITLATIN&AFFILIATE=108875&PATH=http%3A%2F%2Fwww.bitdefender.com%2Fbusiness%3FAFFILIATE%3D108875%26RESOURCE%3D30%2525%2BOff%2Ball%2BGravityZone%2BProducts"><img src="https://www.bitdefender.com/content/dam/bitdefender/business/campaign/1200X628.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hHPljBHrvkA?si=HwdfDM9rlbABSIrx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Should you use narration in your next project?
 
 The best way to learn something is by doing it. So the next time you record a video, think about how you could augment your video project with narration.
@@ -142,4 +144,23 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-becoming-a-whatsapp-pro-uncovering-invaluable-tips-and-tricks/"><u>[New] 2024 Approved Becoming a WhatsApp Pro Uncovering Invaluable Tips and Tricks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-innovate-personalized-digital-chuckle-comedy/"><u>[New] 2024 Approved Innovate Personalized Digital Chuckle Comedy</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/new-2024-approved-simplified-steps-for-saving-gotomeeting-sessions/"><u>[New] 2024 Approved Simplified Steps for Saving GoToMeeting Sessions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-simplifying-connection-combining-linkedin-profile-with-your-tiktok-bio/"><u>[New] 2024 Approved Simplifying Connection Combining LinkedIn Profile with Your TikTok Bio</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultimate-guide-to-using-vlc-for-mp4-and-format-shifting/"><u>[New] 2024 Approved The Ultimate Guide to Using VLC for MP4 & Format Shifting</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-premier-android-storage-in-the-clouds-list/"><u>[New] In 2024, Premier Android Storage in the Clouds List</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/new-in-2024-top-10-best-hexacopter-drones/"><u>[New] In 2024, Top 10 Best Hexacopter Drones</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-visual-harmony-in-grids-the-top-10-photo-choices/"><u>[New] Visual Harmony in Grids The Top 10 Photo Choices</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-2024-approved-cutting-edge-techniques-for-stellar-fb-hd-video/"><u>[Updated] 2024 Approved Cutting-Edge Techniques for Stellar FB HD Video</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/updated-elevate-your-content-youtube-movie-maker-101/"><u>[Updated] Elevate Your Content YouTube Movie Maker 101</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-prime-ringtone-retailers-for-game-of-thrones-fans-for-2024/"><u>[Updated] Prime Ringtone Retailers for Game of Thrones Fans for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/best-ways-on-how-to-unlockbypassswiperemove-samsung-galaxy-m54-5g-fingerprint-lock-by-drfone-android/"><u>Best Ways on How to Unlock/Bypass/Swipe/Remove Samsung Galaxy M54 5G Fingerprint Lock</u></a></li>
+<li><a href="https://extra-information.techidaily.com/blending-images-with-moving-screens-on-iphone-for-2024/"><u>Blending Images with Moving Screens on iPhone for 2024</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/exploring-the-best-iphone-selfie-tools-ranked-8/"><u>Exploring the Best iPhone Selfie Tools, Ranked #8</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-essential-iphones-podcast-tools-ranked-5/"><u>In 2024, Essential iPhones Podcast Tools Ranked #5</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/why-isnt-my-bluetooth-connected-fixing-the-paired-but-not-connected-problem-on-windows-10/"><u>Why Isn’t My Bluetooth Connected? Fixing the ‘Paired but Not Connected’ Problem on Windows 10</u></a></li>
+</ul></div>
 

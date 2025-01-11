@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In Pursuit with Panasonic’s HX-A1 Wearable Cameras\""
-date: 2024-12-31T05:06:43.187Z
-updated: 2025-01-04T06:40:59.402Z
+date: 2025-01-10T01:17:36.829Z
+updated: 2025-01-10T22:09:52.608Z
 tags: 
   - screen-recording
   - ai video
@@ -38,21 +38,17 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Zgwn5kVI5V4?si=1j6j4OuSSndFieXU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Design and Usability
 
 ![panasonic-hx-a1-design](https://images.wondershare.com/filmora/article-images/panasonic-hx-a1-design.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The elongated cylindrical body of this camera is very compact and less quirky and helps in operating it as a single component system. It is available in luminous orange and black colour variants and both of them look smart and classy. Its shock-proof, freeze-proof and dustproof makes it stand out exceptionally. It is compliant with IPX8 and thus you are free from hassles of adding a separate waterproof case! With a weight of only 45 gms, A1 is one of those few smallest action cameras which are easy and safe to carry. There is no built-in screen and the basic three buttons for its functioning rest on top of the camera, which can be termed as one of its shortcoming in design, as it tends to roll from sides when is set down, and thus can damage these controls if not kept carefully. These three buttons help in turning on the device, toggle recording and switch between video, still image and slow motion modes. Its built-in WiFi module allows the camera to connect to the smartphone and then transfer the media easily. This feature can also be used whenever you are framing up your shots, so you don’t feel lack of built-in screen.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Specification
@@ -81,7 +77,7 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
 | Plenty of optional mounts for any activities to increase its operational feasibility at every location.                                                                | Built-in battery does not allow you to swap out for a fresh one so no scope of improving battery life. |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/X4q6gyaEojM?si=ImdFm6Zsr0azykqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Accessories in the box
@@ -121,6 +117,10 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
 
 [Learn more about Action Camera Accessories Buying Guide for 2017](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2ipTu54inBo?si=gRegjvtVq5gm_PHo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Features
 
 #### **1. Video and photo quality**
@@ -149,6 +149,10 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
 
  A1 connectivity to the Image App eases out its usage drastically. It gives a gateway to adjust the resolution and also provides access to various white balance options including dalylight and cloudy for outdoor and some user and automatic configured ones for indoor shoots. This app can also be used for live preview and toggling record acting as camera’s screen after complete configuration.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gOyLy8DeizY?si=GkAmK0hChZw6_2tW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
  The minor drawbacks in A1 are completely understandable. With its decent picture quality and plenty of other features such as SFDW formula, it can be rightly said that Panasonic has created a fine budget camera which is worth investing. There is always a way to capture your fun and thrills and Panasonic HX-A1 gets along your making it a capable action camera!
@@ -156,10 +160,6 @@ thumbnail: https://thmb.techidaily.com/965654acbd64cd762e18be6423e980e53d1c3fa7d
  Looking for action cameras with low budget? [Check best action cameras under 100 now.](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -186,19 +186,20 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-adding-music-to-photo-online-for-2024/"><u>[New] Adding Music to Photo Online for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-navigating-final-cut-pro-with-ease-an-insiders-guide-for-2024/"><u>[New] Navigating Final Cut Pro with Ease An Insider's Guide for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-unravel-the-secrets-of-saving-and-playing-gifs-on-your-ios-device/"><u>[New] Unravel the Secrets of Saving & Playing GIFs on Your iOS Device</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-boosting-videos-the-best-5-tech-aids/"><u>[Updated] 2024 Approved Boosting Videos The Best 5 Tech Aids</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-new-year-new-lg-bp550-the-2023-review/"><u>[Updated] 2024 Approved New Year, New LG BP550 The 2023 Review</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-praise-in-pixels-the-new-marketing-trend-for-2024/"><u>[Updated] Praise in Pixels The New Marketing Trend for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/isseur-of-cinematic-composition-for-2024/"><u>Connoisseur of Cinematic Composition for 2024</u></a></li>
-<li><a href="https://program-issues.techidaily.com/how-to-fix-unreal-process-has-crashed-on-outriders-ue4-bug-explained/"><u>How to Fix 'Unreal Process Has Crashed' On Outriders - UE4 Bug Explained</u></a></li>
-<li><a href="https://change-location.techidaily.com/how-to-fix-error-495-while-downloadupdating-android-apps-on-zte-axon-40-lite-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Fix Error 495 While Download/Updating Android Apps On ZTE Axon 40 Lite | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-apex-gk-quizmasters-video-channel-list/"><u>In 2024, Apex GK Quizmasters' Video Channel List</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/the-entrepreneurs-blueprint-for-profiting-from-video-content-for-2024/"><u>The Entrepreneur's Blueprint for Profiting From Video Content for 2024</u></a></li>
-<li><a href="https://techidaily.com/the-way-to-recover-deleted-photos-on-oppo-reno-11-5g-without-backup-by-fonelab-android-recover-photos/"><u>The way to recover deleted photos on Oppo Reno 11 5G without backup.</u></a></li>
-<li><a href="https://facebook.techidaily.com/turn-the-page-with-blocked-facebook-buddies/"><u>Turn the Page with Blocked Facebook Buddies</u></a></li>
-<li><a href="https://discover-cheats.techidaily.com/wma-files-explained-insights-into-a-common-digital-music-format/"><u>WMA Files Explained: Insights Into a Common Digital Music Format</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-explore-these-14-fascinating-text-based-animations/"><u>[New] 2024 Approved Explore These 14 Fascinating Text-Based Animations</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/024-approved-youtube-seo-guide-how-to-improve-youtube-videos-rankings/"><u>[New] 2024 Approved YouTube SEO Guide How to Improve YouTube Videos Rankings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-a-critical-evaluation-of-ustream-with-equivalents/"><u>[Updated] 2024 Approved A Critical Evaluation of Ustream with Equivalents</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-from-plate-to-screen-perfecting-the-art-of-food-cinema/"><u>[Updated] 2024 Approved From Plate to Screen Perfecting the Art of Food Cinema</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-how-to-take-portrait-photo-with-old-iphone-x8-plus7-plus-for-2024/"><u>[Updated] How to Take Portrait Photo with Old iPhone X/8 Plus/7 Plus for 2024</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-mastering-9gag-a-guide-for-memetic-creation/"><u>[Updated] Mastering 9GAG A Guide for Memetic Creation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-top-value-360-cameras-delivering-cost-effective-coverage-for-2024/"><u>[Updated] Top Value 360° Cameras Delivering Cost-Effective Coverage for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/complete-tutorial-to-use-vpna-to-fake-gps-location-on-xiaomi-redmi-k70e-drfone-by-drfone-virtual-android/"><u>Complete Tutorial to Use VPNa to Fake GPS Location On Xiaomi Redmi K70E | Dr.fone</u></a></li>
+<li><a href="https://tiktok-video-recordings.techidaily.com/efficient-tactics-for-exploring-and-joining-desired-discords/"><u>Efficient Tactics for Exploring and Joining Desired Discords</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/how-to-add-your-digital-signature-to-a-excel-document-by-ldigisigner-sign-a-excel-sign-a-excel/"><u>How to Add Your Digital Signature to a Excel Document</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-navigating-the-intricacies-of-morphvox-evolution/"><u>In 2024, Navigating the Intricacies of MorphVOX Evolution</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-top-tier-rankings-for-podcasts-a-seo-masterclass/"><u>In 2024, Top-Tier Rankings for Podcasts A Seo Masterclass</u></a></li>
+<li><a href="https://article-helps.techidaily.com/pros-in-mac-streaming-the-top-5-applications-for-2024/"><u>Pros in Mac Streaming The Top 5 Applications for 2024</u></a></li>
+<li><a href="https://hardware-help.techidaily.com/selecting-the-perfect-college-laptop-top-4-factors-and-10-recommended-models-insights/"><u>Selecting the Perfect College Laptop: Top 4 Factors & 10 Recommended Models - Insights</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-future-after-apples-departure-alternatives-to-the-discontinued-iphone-13-and-15-pro-tech-insights/"><u>The Future After Apple's Departure: Alternatives to the Discontinued iPhone 13 & 15 Pro | Tech Insights</u></a></li>
 </ul></div>
 

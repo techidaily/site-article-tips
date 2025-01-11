@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Rapid Races Recap  Olympic 2022 Short-Track Sprints\""
-date: 2025-01-02T03:55:29.995Z
-updated: 2025-01-04T07:46:41.832Z
+date: 2025-01-10T00:59:50.530Z
+updated: 2025-01-10T17:34:55.689Z
 tags: 
   - screen-recording
   - ai video
@@ -29,10 +29,6 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XVsiIO7hWOc?si=UvWnqxaI_yHwEr74" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1\. Introduce some highlights in short track speed skating with images
 
 Here are the main highlights of 1500 meter short track speed skating held at the Capital Indoor Stadium in Beijing on Wednesday.
@@ -41,28 +37,24 @@ Short track speed skating Korea Hwang Dae-heon wins the gold medal.
 
 ![dae heon wins the gold medal](https://images.wondershare.com/filmora/article-images/dae-heon-wins-the-gold-medal.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Canada’s Steven Dubois wins the silver medal.
 
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5FWCFI3f_cs?si=Kt2Onr_E4c616tbH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ren Ziwei shoved Hungarian Shaolin Sandor Liu during the event. The Hungarian naturally could not cope up with time.
@@ -73,6 +65,10 @@ Ren Ziwei was disqualified for arm blocking Liu. Ren Ziwei has won in 1000 meter
 
 ![ren ziwei was disqualified](https://images.wondershare.com/filmora/article-images/ren-ziwei-was-disqualified.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The last leg of competition among skaters before reaching the finishing line at men’s short track speed skating 1500m event.
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
@@ -80,6 +76,10 @@ The last leg of competition among skaters before reaching the finishing line at 
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/VxFUhesNCKo?si=Ti0ui6DXYP12sjSs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
@@ -94,6 +94,10 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1rCjQ09iG7s?si=Si1fUBric8MH1VHI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -123,10 +127,6 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -150,18 +150,24 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-essential-tools-elevate-your-online-video-quality/"><u>[New] Essential Tools Elevate Your Online Video Quality</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-audio-amplification-adding-tracks-to-premiere-projects-with-ease/"><u>[New] In 2024, Audio Amplification Adding Tracks to Premiere Projects with Ease</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-premium-mac-image-transformer/"><u>[Updated] 2024 Approved Premium Mac Image Transformer</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-iconic-stop-motion-creations-15-greatest-of-all-time-for-2024/"><u>[Updated] Iconic Stop-Motion Creations - #15 Greatest of All Time for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-ideal-episodic-unveiling-schedule/"><u>[Updated] Ideal Episodic Unveiling Schedule</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/craft-your-first-impactful-facebook-phenomenon-giveaway/"><u>Craft Your First Impactful Facebook Phenomenon Giveaway</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/crafting-compelling-thumbnails-to-captivate-youtube-viewers-and-encourage-clicks/"><u>Crafting Compelling Thumbnails to Captivate YouTube Viewers and Encourage Clicks</u></a></li>
-<li><a href="https://article-tips.techidaily.com/ideal-video-displays-the-best-5-for-playstation-5-for-2024/"><u>Ideal Video Displays The Best 5 for PlayStation 5 for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-apple-iphone-7-plus-drfone-by-drfone-virtual-ios/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Apple iPhone 7 Plus? | Dr.fone</u></a></li>
-<li><a href="https://video-content-creator.techidaily.com/new-revolutionize-your-classroom-top-animation-tools-for-teachers/"><u>New Revolutionize Your Classroom Top Animation Tools for Teachers</u></a></li>
-<li><a href="https://youtube-docs.techidaily.com/by-step-guide-to-creating-popular-youtube-openings-for-2024/"><u>Step-by-Step Guide to Creating Popular YouTube Openings for 2024</u></a></li>
-<li><a href="https://win11.techidaily.com/strategies-to-overcome-chromes-stumbling-block-with-file-downloads-in-windows/"><u>Strategies to Overcome Chrome's Stumbling Block with File Downloads in Windows</u></a></li>
-<li><a href="https://win11.techidaily.com/unlocking-windows-repair-top-10-methods/"><u>Unlocking Windows Repair: Top 10 Methods</u></a></li>
+<li><a href="https://program-issues.techidaily.com/among-us-online-teamwork-and-strategy-pc-troubleshooting-after-recent-patch/"><u>'Among Us: Online Teamwork and Strategy' PC Troubleshooting After Recent Patch</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-designing-custom-youtube-music-sequences/"><u>[New] Designing Custom YouTube Music Sequences</u></a></li>
+<li><a href="https://eaxpv-info.techidaily.com/new-harnessing-the-benefits-with-creative-commons-licenses-for-2024/"><u>[New] Harnessing the Benefits with Creative Commons Licenses for 2024</u></a></li>
+<li><a href="https://youtube-zero.techidaily.com/n-2024-brand-makeover-made-easy-revel-in-our-array-of-over-50-free-online-promotional-artwork/"><u>[New] In 2024, Brand Makeover Made Easy Revel in Our Array of over 50 Free Online Promotional Artwork</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-jokejuggernaut-top-humor-tool-for-2024/"><u>[New] JokeJuggernaut - Top Humor Tool for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-interface-interlink-bridging-ig-and-tiktok-worlds-for-2024/"><u>[New] The Interface Interlink Bridging IG & TikTok Worlds for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-box-it-up-the-top-10-online-houses-for-customized-gift-boxes/"><u>[Updated] 2024 Approved Box It Up! The Top 10 Online Houses for Customized Gift Boxes</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-devising-visual-temporal-anomalies-effects/"><u>[Updated] 2024 Approved Devising Visual Temporal Anomalies Effects</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-rev-up-your-mobile-vids-with-top-speed-apps/"><u>[Updated] 2024 Approved Rev Up Your Mobile Vids with Top Speed Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-ultimate-showdown-gopro-max-360-vs-hero-11-analysis/"><u>[Updated] The Ultimate Showdown GoPro Max 360 VS Hero 11 Analysis</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/2024-approved-perfecting-the-art-of-quiet-videography/"><u>2024 Approved Perfecting the Art of Quiet Videography</u></a></li>
+<li><a href="https://techtrends.techidaily.com/essential-tools-4-innovative-apps-transforming-home-painting-techniques/"><u>Essential Tools: 4 Innovative Apps Transforming Home Painting Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/guide-to-progressive-audio-diminishment-via-lumafusion/"><u>Guide to Progressive Audio Diminishment via Lumafusion</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-full-guide-to-bypass-samsung-galaxy-a54-5g-frp-by-drfone-android/"><u>In 2024, Full Guide to Bypass Samsung Galaxy A54 5G FRP</u></a></li>
+<li><a href="https://win-dash.techidaily.com/1722958139850-mastering-the-setup-seamless-integration-of-wacom-intuos-3-drivers-into-your-microsoft-based-pc-workstation-a-comprehensive-guide/"><u>Mastering the Setup: Seamless Integration of Wacom Intuos 3 Drivers Into Your Microsoft-Based PC Workstation – A Comprehensive Guide!</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-buggy-fcpx-learn-how-to-reset-and-reboot-for-2024/"><u>New Buggy FCPX? Learn How to Reset and Reboot for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premiere-music-collections-for-visual-media/"><u>Premiere Music Collections for Visual Media</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-8-ultimate-4k-blu-ray-playback-units-reviewed/"><u>Top 8 Ultimate 4K Blu-Ray Playback Units Reviewed</u></a></li>
+<li><a href="https://article-posts.techidaily.com/vloggers-guide-to-smooth-cinematography-equipment-for-2024/"><u>Vlogger’s Guide to Smooth Cinematography Equipment for 2024</u></a></li>
 </ul></div>
 

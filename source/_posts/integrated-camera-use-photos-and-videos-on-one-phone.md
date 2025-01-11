@@ -1,7 +1,7 @@
 ---
 title: "\"Integrated Camera Use  Photos and Videos on One Phone\""
-date: 2024-12-30T08:20:55.847Z
-updated: 2025-01-03T22:59:15.014Z
+date: 2025-01-05T18:53:48.512Z
+updated: 2025-01-10T19:08:26.127Z
 tags: 
   - screen-recording
   - ai video
@@ -45,12 +45,16 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 
 ![](https://images.wondershare.com/filmora/article-images/take-photo-while-recording-videos-iphone.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  Image resource: igeeksblog.com
 
 * Now, to take a still, just tap on the white 'take picture' button that can be noticed at the left of the red button. The screen will flicker each time you press the button to take the photo.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### The drawbacks of taking photos and videos simultaneously
@@ -69,7 +73,7 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 | **iPhone 7 series**  | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Nyp7-xVwqHA?si=XCuZbpKLFIdrGQQh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Extract frames from video
@@ -77,7 +81,7 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
  If you are one of those who wish to **take photos while recording videos** without compromising the quality, we are glad to inform you that there is a solution for this. You can easily extract a specific frame from the recorded video keeping the standard resolution quality via Wondershare Filmora and will never be bothered about missing anything interesting from the video.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/epKTCSREjhI?si=Ez_hObK1FZrmEE7f" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Why Choose Wondershare Filmora?
@@ -90,14 +94,10 @@ thumbnail: https://thmb.techidaily.com/33c08cf35f6b5e5c15d53520e124508a521ab9ce2
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -125,17 +125,24 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://tiktok-video-recordings.techidaily.com/new-scripting-the-final-push-for-your-tiktok-series/"><u>[New] Scripting the Final Push for Your TikTok Series</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-essential-iphone-and-android-apps-to-transform-your-gopro-shots/"><u>[Updated] 2024 Approved Essential iPhone & Android Apps to Transform Your GoPro Shots</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-expert-advice-for-saving-and-archiving-periscope-footage/"><u>[Updated] In 2024, Expert Advice for Saving and Archiving Periscope Footage</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-next-gen-cloud-vaults-ultimate-pick-list/"><u>[Updated] In 2024, Next-Gen Cloud Vaults Ultimate Pick List</u></a></li>
-<li><a href="https://tech-savvy.techidaily.com/7-typical-trips-in-the-terrain-of-tech-tools/"><u>7 Typical Trips in the Terrain of Tech Tools</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/easy-install-guide-zexmtes-high-performance-bluetooth-adapter-driver-for-windows-os/"><u>Easy Install Guide: Zexmte's High-Performance Bluetooth Adapter Driver for Windows OS</u></a></li>
-<li><a href="https://facebook-video-footage.techidaily.com/in-2024-top-editors-for-youtube-writers-and-creators-all-free/"><u>In 2024, Top Editors for YouTube' Writers and Creators - All Free!</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-ustream-live-and-comparable-platforms/"><u>In 2024, Ustream Live & Comparable Platforms</u></a></li>
-<li><a href="https://article-tips.techidaily.com/master-the-art-of-mobile-movie-watching-with-top-10-ios-apps/"><u>Master the Art of Mobile Movie Watching with Top 10 iOS Apps</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/patek-fly-12-tripod-review-your-versatile-partner/"><u>Patek Fly 12 Tripod Review - Your Versatile Partner</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/steps-to-take-if-your-instagram-profile-gets-disconnected/"><u>Steps to Take if Your Instagram Profile Gets Disconnected</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/xmedia-recode-2024/"><u>XMedia Recode による多様な設定手順の簡単ガイド -2024年</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-vividvistazoom-7-captivating-larger-images/"><u>[New] 2024 Approved VividVistaZoom 7 Captivating Larger Images</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-adding-chronological-markers-to-youtube-media/"><u>[New] Adding Chronological Markers to YouTube Media</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/he-power-of-precision-crafting-effective-video-titles-for-2024/"><u>[New] The Power of Precision Crafting Effective Video Titles for 2024</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/new-transitioning-shadows-a-minute-later/"><u>[New] Transitioning Shadows A Minute Later</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-vanguard-visions-ultimate-laptop-choices-for-uhd-content-creators/"><u>[New] Vanguard Visions Ultimate Laptop Choices for UHD Content Creators</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-download-and-store-linkedin-videos-the-ultimate-list-of-6-essential-apps/"><u>[Updated] 2024 Approved Download & Store LinkedIn Videos The Ultimate List of 6 Essential Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-investigating-ffmpeg-for-intact-audio-preservation/"><u>[Updated] 2024 Approved Investigating FFmpeg for Intact Audio Preservation</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ultimate-3d-experience-guide-to-top-blu-ray-players/"><u>[Updated] 2024 Approved Ultimate 3D Experience Guide to Top Blu-Ray Players</u></a></li>
+<li><a href="https://howto.techidaily.com/best-methods-for-oneplus-12-wont-turn-on-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Best Methods for OnePlus 12 Wont Turn On | Dr.fone</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210927045-9780857168054-i-talk-to-angels/"><u>I Talk to Angels | Free Book</u></a></li>
+<li><a href="https://fox-links.techidaily.com/in-2024-a-guide-to-perfect-portraits-with-background-blur/"><u>In 2024, A Guide to Perfect Portraits with Background Blur</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-are-reviews-for-goods-online-monetized/"><u>In 2024, Are Reviews For Goods Online Monetized?</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/initiating-meetings-on-the-move-tech-advice-for-2024/"><u>Initiating Meetings on the Move Tech Advice for 2024</u></a></li>
+<li><a href="https://data-recovery.techidaily.com/intelligent-data-extraction-toolkit-cutting-edge-tech-support-for-retrieving-diverse-file-types/"><u>Intelligent Data Extraction Toolkit: Cutting-Edge Tech Support for Retrieving Diverse File Types</u></a></li>
+<li><a href="https://win-exceptional.techidaily.com/nsv-to-mpeg-conversion-online-free-tool-with-movavi-video-editing/"><u>NSV to MPEG Conversion Online - Free Tool with Movavi Video Editing</u></a></li>
+<li><a href="https://win-bits.techidaily.com/sucht-nach-einer-alternative-zu-macrium-reflect-wir-empfehlen-unseren-besten-kostenlosen-speicherverwaltungsprogrammen/"><u>Sucht Nach Einer Alternative Zu Macrium Reflect - Wir Empfehlen Unseren Besten Kostenlosen Speicherverwaltungsprogrammen!</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-showdown-how-to-pick-the-ideal-tablet-amazon-fire-vs-samsung/"><u>The Ultimate Showdown: How to Pick the Ideal Tablet (Amazon Fire Vs. Samsung)</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ultimate-editing-techniques-for-final-cut-pro-professionals/"><u>Ultimate Editing Techniques for Final Cut Pro Professionals</u></a></li>
+<li><a href="https://win-answers.techidaily.com/windows-11-and-steam-games-overcoming-launch-problems-with-simple-solutions/"><u>Windows 11 and Steam Games: Overcoming Launch Problems with Simple Solutions</u></a></li>
 </ul></div>
 

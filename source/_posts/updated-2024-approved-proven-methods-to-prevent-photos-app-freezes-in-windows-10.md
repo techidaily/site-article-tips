@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Proven Methods to Prevent Photos App Freezes in Windows 10\""
-date: 2024-12-11T00:37:51.611Z
-updated: 2024-12-17T05:47:00.078Z
+date: 2025-01-09T17:42:53.167Z
+updated: 2025-01-11T04:36:19.774Z
 tags: 
   - screen-recording
   - ai video
@@ -45,11 +45,11 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fvAC8jgs62o?si=xqEXZ7dpAXZ4sZ7A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
 
@@ -65,6 +65,10 @@ Here is how to troubleshoot –
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### Solution 2: Restore Default Libraries
 
 Restoring the default libraries would resolve the Windows 10 Photos App crash issues. Resetting the Photo App to its default source to a valid network, path fixes the case.
@@ -78,10 +82,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 3: Reset it
 
 When you reset the Windows Photo App itself, your issue gets resolved. Plenty of Windows users have mentioned that resetting the Photo App has fixed the unresponsive or crashing app problems.
@@ -93,7 +93,7 @@ Here is how can you reset it –
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SyMZxS9479s?si=0T6zZpyN2LBftFTM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LdVT_-3gESA?si=_HfjpbUEHSRKTXjt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
@@ -108,7 +108,7 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 4. Now, the Windows 10 Photos App won’t crash.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-0Ww1YIIUe4?si=cQ-Gkh9UCJABuPZU" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0OxkndZbIA4?si=TWJlkTbYKsVag8-q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
@@ -122,6 +122,10 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/C3cJe7Wgn6I?si=EckDFML-VJ_2sYz8" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
@@ -129,10 +133,6 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/it8VkxDUdAc?si=ef6VZWR7kW4P9ikh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,16 +159,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-tips.techidaily.com/024-approved-6-free-software-to-convert-youtube-to-mp3-for-iphone/"><u>[New] 2024 Approved 6 Free Software to Convert YouTube to MP3 for iPhone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-audience-accumulation-expedition-tutorials-1mplus-milestone/"><u>2024 Approved Audience Accumulation Expedition Tutorial's 1M+ Milestone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-complete-guide-to-using-google-docs-for-speech-recognition/"><u>2024 Approved Complete Guide to Using Google Docs for Speech Recognition</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-interconnecting-your-music-collection-across-services/"><u>2024 Approved Interconnecting Your Music Collection Across Services</u></a></li>
-<li><a href="https://article-tips.techidaily.com/2024-approved-visionary-recording-devices-top-18-camcorders-best/"><u>2024 Approved Visionary Recording Devices - Top 18 Camcorders' Best</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/essential-steps-for-seamless-youtube-video-loops-for-2024/"><u>Essential Steps for Seamless YouTube Video Loops for 2024</u></a></li>
-<li><a href="https://some-techniques.techidaily.com/gentle-silence-how-to-fade-out-music-in-adobe-editing-for-2024/"><u>Gentle Silence How to Fade Out Music In Adobe Editing for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/izing-your-video-potential-through-smart-co-stars-selection/"><u>Maximizing Your Video Potential Through Smart Co-Stars Selection</u></a></li>
-<li><a href="https://extra-tips.techidaily.com/navigating-iphone-xs-biometrics-addressing-face-id-glitches/"><u>Navigating iPhone X's Biometrics Addressing Face ID Glitches</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/urban-design-mastery-unveiling-the-addiction-of-cities-skylines/"><u>Urban Design Mastery: Unveiling the Addiction of Cities: Skylines</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/we-tried-mistral-ais-le-chat-ai-chatbot-and-heres-how-it-compares-to-chatgpt/"><u>We Tried Mistral AI's Le Chat AI Chatbot, and Here's How It Compares to ChatGPT</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/new-elevate-your-video-content-with-desktopmobile-timestamps/"><u>[New] Elevate Your Video Content with Desktop/Mobile Timestamps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-navigating-digital-cropping-easy-online-methods/"><u>[New] In 2024, Navigating Digital Cropping - Easy Online Methods</u></a></li>
+<li><a href="https://fox-direct.techidaily.com/new-in-2024-streamlining-srt-file-integration-on-digital-platforms/"><u>[New] In 2024, Streamlining SRT File Integration on Digital Platforms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-optimal-visual-performance-in-4k-titles-for-2024/"><u>[New] Optimal Visual Performance in 4K Titles for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-pic-tastic-alterations-comedy-central-editors-online-for-2024/"><u>[New] Pic-Tastic Alterations Comedy Central Editors Online for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-uncover-10-keys-to-picking-your-perfect-broadcast-platform-for-2024/"><u>[New] Uncover 10 Keys to Picking Your Perfect Broadcast Platform for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-build-your-brand-memes-with-kinemaster/"><u>[Updated] 2024 Approved Build Your Brand Memes with KineMaster</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-films-best-shot-techniques-top-5-essentials/"><u>[Updated] 2024 Approved Film's Best Shot Techniques Top 5 Essentials</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-in-2024-gamelog-analysts-guide/"><u>[Updated] In 2024, GameLog Analyst's Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-rapid-results-elevate-images-on-windows-11-for-2024/"><u>[Updated] Rapid Results Elevate Images on Windows 11 for 2024</u></a></li>
+<li><a href="https://win-able.techidaily.com/expert-advice-resolving-manor-lords-pc-instability-and-ensuring-smooth-sailing-in-the-game/"><u>Expert Advice: Resolving 'Manor Lords' PC Instability and Ensuring Smooth Sailing in the Game</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/how-to-elevate-your-digital-self-with-memetic-skills-in-the-metaverse-for-2024/"><u>How to Elevate Your Digital Self with Memetic Skills in the Metaverse for 2024</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-pokemon-go-cooldown-chart-on-samsung-galaxy-f15-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Pokémon Go Cooldown Chart On Samsung Galaxy F15 5G | Dr.fone</u></a></li>
+<li><a href="https://fox-friendly.techidaily.com/in-2024-tailoring-humor-personalize-with-kinemaster/"><u>In 2024, Tailoring Humor Personalize with KineMaster</u></a></li>
+<li><a href="https://article-tips.techidaily.com/top-tunes-where-to-secure-soundscapes/"><u>Top Tunes Where to Secure Soundscapes</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshooting-steps-for-restoring-in-game-music-in-anthem-on-windows-11-machines/"><u>Troubleshooting Steps for Restoring In-Game Music in Anthem on Windows 11 Machines</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/wave-off-your-insta-footprint-complete-guide-to-permanent-delete-for-2024/"><u>Wave Off Your Insta Footprint Complete Guide to Permanent Delete for 2024</u></a></li>
 </ul></div>
 

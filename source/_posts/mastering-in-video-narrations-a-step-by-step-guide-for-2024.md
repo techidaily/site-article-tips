@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering In-Video Narrations  A Step-by-Step Guide for 2024\""
-date: 2024-12-09T21:47:03.528Z
-updated: 2024-12-17T01:39:33.592Z
+date: 2025-01-05T17:01:17.388Z
+updated: 2025-01-11T05:04:05.625Z
 tags: 
   - screen-recording
   - ai video
@@ -30,7 +30,7 @@ I'll be demonstrating how to add voiceovers and narrations in [Filmora](https://
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-yZKNLxj3po?si=-RbF6nCJEVlHWP-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Jfq2Wx1Bcs?si=YQrYpTy0g4aV5QaO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Voiceover or Narration?
@@ -53,15 +53,15 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/pRR3Oq03EuE?si=ZTy8-WH0AesA9zRh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
@@ -70,7 +70,7 @@ You put the playhead where you want to start recording and hit the microphone ic
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GyfJUhsz_AY?si=x2HjoLX1B89oEPgZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 A 3-second countdown will pop up and start recording immediately after this countdown.
@@ -78,6 +78,10 @@ A 3-second countdown will pop up and start recording immediately after this coun
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -90,7 +94,7 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LaWcXdTn5SE?si=QbxEkX-4a17J5RVs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E1ax-vnGdeo?si=bgTkOhOEwDTlRQE3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Narration is a great storytelling device
@@ -100,10 +104,6 @@ Narration is a fantastic tool to have in your arsenal as a young filmmaker. It a
 Practice adding it to your videos to see how it adds depth and dimension to your videos.
 
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Always use a good mic
 
@@ -151,18 +151,22 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://on-screen-recording.techidaily.com/new-cutting-edge-approaches-merging-obs-with-facebook-live-for-2024/"><u>[New] Cutting-Edge Approaches Merging OBS with Facebook Live for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-how-many-videos-fit-in-64128gb-data-insight-for-2024/"><u>[New] How Many Videos Fit In 64/128GB? Data Insight for 2024</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/new-revolutionizing-how-you-record-and-archive-ps3-gaming-for-2024/"><u>[New] Revolutionizing How You Record and Archive PS3 Gaming for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-androids-premier-8-apps-harmonizing-free-and-paid-videomosaic-experience/"><u>[Updated] 2024 Approved Android's Premier 8 Apps Harmonizing Free & Paid Videomosaic Experience</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-gopro-hero5-black-vs-yi-4k-latest-camera-showdown/"><u>[Updated] GoPro Hero5 Black VS Yi 4K - Latest Camera Showdown</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-best-webcam-tripods-and-stands/"><u>[Updated] In 2024, Best Webcam Tripods and Stands</u></a></li>
-<li><a href="https://article-tips.techidaily.com/craft-stunning-iphone-snaps-heed-these-10-guidelines-for-2024/"><u>Craft Stunning iPhone Snaps - Heed These 10 Guidelines for 2024</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/diving-deep-reviewing-your-old-tweets/"><u>Diving Deep Reviewing Your Old Tweets</u></a></li>
-<li><a href="https://youtube-clips.techidaily.com/edit-like-a-championtop-strategies-for-beginner-youtubers-for-2024/"><u>Edit Like a Champion—Top Strategies for Beginner YouTubers for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/how-to-change-country-on-app-store-for-apple-iphone-12-pro-max-with-7-methods-drfone-by-drfone-ios/"><u>How To Change Country on App Store for Apple iPhone 12 Pro Max With 7 Methods | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-advanced-editing-tips-remove-the-unnecessary-picture-border/"><u>In 2024, Advanced Editing Tips Remove the Unnecessary Picture Border</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/perfect-your-workflow-with-updated-dell-docking-station-driver-guides/"><u>Perfect Your Workflow with Updated DELL Docking Station Driver Guides</u></a></li>
-<li><a href="https://network-issues.techidaily.com/win11-graphic-glitch-rectified/"><u>Win11 Graphic Glitch Rectified</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-amplify-iphone-film-and-photo-experience-with-extra-gear/"><u>[New] 2024 Approved Amplify iPhone Film & Photo Experience with Extra Gear</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-finding-your-ideal-viewing-experience-with-projection-or-television-for-2024/"><u>[New] Finding Your Ideal Viewing Experience with Projection or Television for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-time-warp-techniques-harnessing-classic-80s-visual-flair-in-videos/"><u>[New] In 2024, Time Warp Techniques Harnessing Classic 80S Visual Flair in Videos</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-bringing-text-to-life-3d-techniques-in-illustrator/"><u>[Updated] 2024 Approved Bringing Text to Life 3D Techniques in Illustrator</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-fine-tune-viewing-the-ultimate-zoom-journey/"><u>[Updated] 2024 Approved Fine-Tune Viewing The Ultimate Zoom Journey</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unleash-your-devices-new-tone-with-top-5-chrome-extensions/"><u>[Updated] 2024 Approved Unleash Your Device's New Tone with Top 5 Chrome Extensions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-flashback-filmmaking-top-tricks-from-80s-vhs-to-enhance-todays-edits/"><u>[Updated] In 2024, Flashback Filmmaking Top Tricks From 80S VHS to Enhance Today’s Edits</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/updated-the-path-to-retrospective-facebook-content-mobile-plus-laptop/"><u>[Updated] The Path to Retrospective Facebook Content (Mobile + Laptop)</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-deciphering-streamer-dominance-twitch-vs-youtube-showdown/"><u>2024 Approved Deciphering Streamer Dominance Twitch vs YouTube Showdown</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/breeze-through-direct3d-download-simple-steps-for-success/"><u>Breeze Through Direct3D Download – Simple Steps for Success</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-motorola-edge-2023-is-unlocked-by-drfone-android/"><u>How To Check if Your Motorola Edge 2023 Is Unlocked</u></a></li>
+<li><a href="https://driver-download.techidaily.com/how-to-install-fingerprint-detection-tool-on-your-desktop-computer/"><u>How to Install Fingerprint Detection Tool on Your Desktop Computer</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-easy-ways-to-manage-your-google-pixel-8-pro-location-settings-drfone-by-drfone-virtual/"><u>In 2024, Easy Ways to Manage Your Google Pixel 8 Pro Location Settings | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-understanding-and-utilizing-phantoms-time-dilation/"><u>In 2024, Understanding and Utilizing Phantom’s Time-Dilation</u></a></li>
+<li><a href="https://fox-boxes.techidaily.com/metaverse-chronicles-the-best-sci-fi-movies-to-explore-new-universes-for-2024/"><u>Metaverse Chronicles The Best Sci-Fi Movies to Explore New Universes for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premier-tools-for-image-transformation-framecraft-pro-for-2024/"><u>Premier Tools for Image Transformation FrameCraft Pro for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/-vanishing-act-cutting-duration-on-youtube-for-2024/"><u>Video Vanishing Act Cutting Duration on YouTube for 2024</u></a></li>
 </ul></div>
 

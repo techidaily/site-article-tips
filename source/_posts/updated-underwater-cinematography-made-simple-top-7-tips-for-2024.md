@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Underwater Cinematography Made Simple  Top 7 Tips for 2024\""
-date: 2024-08-15T08:48:46.681Z
-updated: 2024-08-16T08:48:46.681Z
+date: 2025-01-03T23:49:57.871Z
+updated: 2025-01-10T17:53:04.463Z
 tags: 
   - screen-recording
   - ai video
@@ -60,6 +60,10 @@ thumbnail: https://thmb.techidaily.com/b1dd7a3474ae1af80798d89372f38597e9f807738
 
 ![lightinng](https://images.wondershare.com/filmora/article-images/lightinng-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/PKZUYice-ws?si=L8iMa9T3h7TMSWdQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 4\. Stay steady
 
  Many amateurs think they won’t have a problem with wobbly movements when filming underwater, but even the smallest amount of jerkiness can be detrimental to your content.
@@ -68,17 +72,29 @@ thumbnail: https://thmb.techidaily.com/b1dd7a3474ae1af80798d89372f38597e9f807738
 
 ![stay steady](https://images.wondershare.com/filmora/article-images/stay-steady-underwater.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jf0JvOqiAXc?si=kHEHQGC_PhBv4xij" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 5\. Be careful of other divers
 
  Unfortunately, other divers have a tendency to get in the way when you’re shooting footage underwater. Many video production professionals opt to intentionally include clips of divers in their footage so everything flows nicely and cuts work well together if their presence in other shots is unavoidable.
 
 ![careful driver](https://images.wondershare.com/filmora/article-images/careful-divers.JPG)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 #### 6\. Wide angle
 
  If you wish to include wide-angle shots in your work, make sure the camera is zoomed all the way out. Locking your elbows to your side, try to hold your breath to reduce the chances of shaking and pan shots slowly. You may need to shoot several takes to get it just right and will benefit from the use of a colour correcting filter.
 
 ![wide angle](https://images.wondershare.com/filmora/article-images/wide-angle-underwater.JPG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 #### 7\. Shoot the best colour
 
@@ -88,9 +104,6 @@ thumbnail: https://thmb.techidaily.com/b1dd7a3474ae1af80798d89372f38597e9f807738
 
 ![shoot shot](https://images.wondershare.com/filmora/article-images/shoot-colour.JPG)
 
-<!-- affiliate ads begin -->
-<a href="https://shop.incomedia.eu/order/checkout.php?PRODS=14095146&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8b6cc3ee5ec407721ce3bf5ff4c0f56b/PRO_BUY_728x90-EN.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## Edit your footage
 
  To make your underwater videos good rather than great, it’s important that the editing process is of the highest quality.
@@ -102,17 +115,11 @@ thumbnail: https://thmb.techidaily.com/b1dd7a3474ae1af80798d89372f38597e9f807738
  If you’re planning on making a DVD of your work, consider adding extras to the product such as highlights or photos. Filmora is a popular editing software solution that will help you add an extra dash of magic to your work.
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
-<!-- affiliate ads begin -->
-<a href="https://zonlipartnershipprogram.pxf.io/c/5597632/1821134/17882" target="_top" id="1821134"><img src="//a.impactradius-go.com/display-ad/17882-1821134" border="0" alt="" width="320" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1821134/17882" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
+
 <!-- affiliate ads begin -->
-<a href="https://secure.textstudio.com/order/checkout.php?PRODS=35633281&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/d6eb8222c9718486bdabce8b897380f7/products/2_premium-icon.png" border="0"> Take advantage of PREMIUM features. 
-Create your texts / logos without any limitation. 
-No attribution required when downloading. 
-No advertising on the website. 
- TextStudio.com  PREMIUM - Monthly Membership</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Ollie Mattison
@@ -138,4 +145,23 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-ultimate-guide-to-magix-mixcrafts-features/"><u>[New] 2024 Approved The Ultimate Guide to Magix Mixcraft's Features</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-inside-the-world-of-screencasts-understanding-fundamental-principles/"><u>[New] In 2024, Inside the World of Screencasts Understanding Fundamental Principles</u></a></li>
+<li><a href="https://fox-info.techidaily.com/new-in-2024-moto-z2s-brainpower-examined-in-detail/"><u>[New] In 2024, Moto Z2's Brainpower Examined in Detail</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-infuse-your-films-with-text-magic-top-10-techniques-unveiled/"><u>[New] Infuse Your Films with Text Magic Top 10 Techniques Unveiled</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-ultimate-list-of-10-best-zero-cost-srt-conversion-software-for-2024/"><u>[New] Ultimate List of 10 Best Zero-Cost Srt Conversion Software for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-xsplit-vault-expert-gaming-split-analysis-for-2024/"><u>[New] XSplit Vault Expert Gaming Split Analysis for 2024</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-2024-approved-getting-started-with-adobe-presenter-video-recordings/"><u>[Updated] 2024 Approved Getting Started with Adobe Presenter Video Recordings</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-onestepcams-evaluation-are-we-overlooking-gems/"><u>[Updated] In 2024, OneStepCams Evaluation Are We Overlooking Gems?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-insta-tones-101-learn-to-design-and-download-on-your-own/"><u>[Updated] Insta Tones 101 Learn to Design and Download on Your Own</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-speed-up-your-photo-journey-creating-rapid-google-collages/"><u>[Updated] Speed Up Your Photo Journey Creating Rapid Google Collages</u></a></li>
+<li><a href="https://iphone-transfer.techidaily.com/5-easy-ways-to-transfer-contacts-from-apple-iphone-15-pro-max-to-android-drfone-by-drfone-transfer-from-ios/"><u>5 Easy Ways to Transfer Contacts from Apple iPhone 15 Pro Max to Android | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/collaborate-with-winxdvd-a-strategic-partnership/"><u>Collaborate with WinXDVD – A Strategic Partnership</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/fade-in-fade-out-videos-in-4-easy-ways-for-2024/"><u>Fade In Fade Out Videos in 4 Easy Ways for 2024</u></a></li>
+<li><a href="https://android-location.techidaily.com/in-2024-3-effective-methods-to-fake-gps-location-on-android-for-your-google-pixel-fold-drfone-by-drfone-virtual/"><u>In 2024, 3 Effective Methods to Fake GPS location on Android For your Google Pixel Fold | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/leading-audio-designers-for-iphone-ringtones-for-2024/"><u>Leading Audio Designers for iPhone Ringtones for 2024</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/step-up-your-speaking-game-access-free-user-friendly-audio-alteration-tools-for-2024/"><u>Step Up Your Speaking Game - Access Free, User-Friendly Audio Alteration Tools for 2024</u></a></li>
+</ul></div>
 

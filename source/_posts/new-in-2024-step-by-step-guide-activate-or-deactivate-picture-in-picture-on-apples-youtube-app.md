@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide  Activate or Deactivate Picture-in-Picture on Apple's YouTube App\""
-date: 2024-12-30T02:56:11.238Z
-updated: 2025-01-03T19:43:46.154Z
+date: 2025-01-09T19:27:38.258Z
+updated: 2025-01-11T05:33:27.136Z
 tags: 
   - screen-recording
   - ai video
@@ -40,7 +40,7 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 ![enable pip on iphone](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-1.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. If you require a **YouTube PIP** shortcut app on your device to proceed, you can download it from App Store or [the Shortcuts Gallery browser](https://shortcutsgallery.com/shortcuts/youtube-pip/) and then add it to your Shortcut Library.
@@ -57,10 +57,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
 
@@ -70,7 +66,15 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![floating screen](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-5.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8dH3yHH9IX8?si=geiW5KbIljSFT9pz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 And there you go, now you will be able to watch your videos on a floating screen. This procedure may be pretty tedious, but it is all worth it if you follow keenly to the end. You will do it only once.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LBCobAYzzcc?si=J3eSTQ3AdyxWAjGo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2\. How to Disable Picture in Picture for YouTube on iPhone
 
@@ -81,10 +85,6 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 3. Go to **“** **Settings > General Settings”**
 4. Scroll down. You will see the **Picture-in-Picture**
 5. Tap the switch button to switch it off. And there you are. You have disabled PIP for YouTube on iPhone.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/wNhKhWc0wLc?si=1XLYV0sXV52Xc0lu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. How to enable Picture in Picture for YouTube on Mac and iPad
 
@@ -111,7 +111,7 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### PIP on Mac
@@ -132,7 +132,7 @@ And with the Control Commands, you can get into PIP on Mac very easily in only t
 ![get into pip on mac](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-7.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oB9V7rZzotw?si=d4xrCbq1jKHXGAWN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0nGlyEL5K6Y?si=3KZhTTBvKcPmyS68" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -169,16 +169,24 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-in-2024-enhancing-video-conferencing-skills-on-chromebooks/"><u>[New] In 2024, Enhancing Video Conferencing Skills on ChromeBooks</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-mastering-transitions-in-audition-fade-in-basics/"><u>[New] Mastering Transitions in Audition Fade-In Basics</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-painters-touch-mastering-color-artistry-for-2024/"><u>[New] The Painter's Touch Mastering Color Artistry for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-become-a-meme-wizard-with-these-9gag-strategies-for-2024/"><u>[Updated] Become a Meme Wizard with These 9GAG Strategies for 2024</u></a></li>
-<li><a href="https://screen-activity-recording.techidaily.com/updated-how-to-screen-record-on-dell-laptop-for-2024/"><u>[Updated] How to Screen Record on Dell Laptop for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-elevating-eyebrows-top-ten-meme-design-tips/"><u>[Updated] In 2024, Elevating Eyebrows - Top Ten Meme Design Tips</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/accessing-shared-media-in-facebook-messenger-how-in-2024/"><u>Accessing Shared Media in Facebook Messenger How, In 2024</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/exploring-what-drives-the-shift-toward-electric-transportation/"><u>Exploring What Drives the Shift Toward Electric Transportation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-prime-picks-experts-choice-of-4k-dslr-rigs/"><u>In 2024, Prime Picks Expert's Choice of 4K DSLR Rigs</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/1722875427456-kids-ultimate-game-list-7-amazing-online-adventures-awaits/"><u>Kids' Ultimate Game List: 7 Amazing Online Adventures Awaits</u></a></li>
-<li><a href="https://common-error.techidaily.com/troubleshooting-tips-when-asus-laptops-function-keys-stop-working-properly/"><u>Troubleshooting Tips When ASUS Laptop's Function Keys Stop Working Properly</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/new-in-2024-discovering-the-most-compelling-8-videomosaic-creators-for-android-devices/"><u>[New] In 2024, Discovering the Most Compelling #8 Videomosaic Creators for Android Devices</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-masterclass-in-making-panzoids/"><u>[New] Masterclass in Making Panzoids</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-exclusive-list-of-top-hd-video-player-apps-android/"><u>[Updated] 2024 Approved Exclusive List of Top HD Video Player Apps, Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-incorporating-speech-recognition-into-slides/"><u>[Updated] 2024 Approved Incorporating Speech Recognition Into Slides</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-navigate-with-ease-must-know-win11-tricks/"><u>[Updated] 2024 Approved Navigate with Ease Must-Know Win11 Tricks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-taking-control-the-hidden-tips-and-tricks-for-power-users-of-window-11/"><u>[Updated] 2024 Approved Taking Control The Hidden Tips and Tricks for Power Users of WINDOW 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-development-and-application-of-vr-shopping/"><u>[Updated] The Development and Application of VR Shopping</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-top-gamers-screen-guide-best-monitors-at-4k-quality-for-2024/"><u>[Updated] Top Gamers' Screen Guide Best Monitors at 4K Quality for 2024</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/updated-virtual-battlegrounds-top-7-fps-showdowns/"><u>[Updated] Virtual Battlegrounds Top 7 FPS Showdowns</u></a></li>
+<li><a href="https://location-fake.techidaily.com/11-best-location-changers-for-oneplus-ace-2-drfone-by-drfone-virtual-android/"><u>11 Best Location Changers for OnePlus Ace 2 | Dr.fone</u></a></li>
+<li><a href="https://howto.techidaily.com/fixes-for-apps-keep-crashing-on-oppo-find-x7-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Fixes for Apps Keep Crashing on Oppo Find X7 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-gopro-hero5-session-vs-hero-session/"><u>In 2024, GoPro Hero5 Session Vs Hero Session</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/in-2024-revolutionizing-your-tiktok-content-collection-game/"><u>In 2024, Revolutionizing Your TikTok Content Collection Game</u></a></li>
+<li><a href="https://article-tips.techidaily.com/optimal-zooctorial-design-arrays-for-2024/"><u>Optimal Zooctorial Design Arrays for 2024</u></a></li>
+<li><a href="https://fake-location.techidaily.com/prevent-cross-site-tracking-on-oneplus-ace-2-pro-and-browser-drfone-by-drfone-virtual-android/"><u>Prevent Cross-Site Tracking on OnePlus Ace 2 Pro and Browser | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/rootjunky-apk-to-bypass-google-frp-lock-for-htc-u23-by-drfone-android/"><u>Rootjunky APK To Bypass Google FRP Lock For HTC U23</u></a></li>
+<li><a href="https://article-tips.techidaily.com/secrets-of-earning-big-reddits-13-money-makers/"><u>Secrets of Earning Big Reddit's 13 Money Makers</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/the-pros-guide-to-efficient-win11-use/"><u>The Pro's Guide to Efficient Win11 Use</u></a></li>
+<li><a href="https://article-tips.techidaily.com/ultimate-web-compendium-alarm-rhythms-guidebook-for-2024/"><u>Ultimate Web Compendium Alarm Rhythms Guidebook for 2024</u></a></li>
 </ul></div>
 

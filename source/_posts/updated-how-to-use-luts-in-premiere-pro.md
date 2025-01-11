@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How To Use LUTs In Premiere Pro"
-date: 2024-12-28T18:02:02.730Z
-updated: 2025-01-03T21:47:36.765Z
+date: 2025-01-05T17:32:04.741Z
+updated: 2025-01-10T19:33:16.311Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ you grab the camera, follow your idea, and acquire your pictures, then transfer 
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/RvR5PNhspKE?si=uJcMYK9v-_Xq7fAg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 1\. How to install LUTs in Premiere Pro
@@ -41,6 +41,10 @@ Step2Locate the Lumetri LUTs folder in your Premiere Pro installation directory 
 
 Step3Paste all of your fresh LUTs in this folder at this time. Your new LUTs will now show up in the Lumetri Color Panel when you launch Premiere Pro (or restart the software if it was already open). Innovative >> Looks
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 2\. How to add LUTs to your footage
 
 Step1Choose the Color Workspace at the top after your clip is in the timeline and prepared for grading.
@@ -50,10 +54,6 @@ Step2Click OK after selecting New Item > Adjustment Layer in the Project window'
 Step3The first Basic Correction option in the right-hand panel of Lumetri Color is Input LUT. Choose this, click Browse, and then go to the location where your LUTs are stored.
 
 Step4Double-click the LUT you wish to use once you've located it, and it will be applied immediately.A tiny tip I like to use occasionally is to find the Effect Controls panel on the left side, then click the drop-down arrow next to Opacity, and make adjustments if you input your LUT and feel that it's too intense.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Why use LUTs in your project?
 
@@ -74,7 +74,7 @@ The entire color panel in Premiere Pro is packed with all of the color grading t
 The end outcome does not vary by a substantial amount, but how it looks can change depending on the LUT you use. In the event that something seems to be lacking, you can always modify the color grading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xg3PHS_Ee80?si=fE_iGIqHjKvWFIN3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/zWYVKFk3yPQ?si=Yu7xsjIYgRiq8zHk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Export LUTs
@@ -90,7 +90,7 @@ Step2Export ".cube" This function exports lookup tables in the.cube format so th
 Step3Store Preset: You can personalize the settings for each color effect, then save the resulting combinations as presets. Within the Save Preset dialog box, give your preset the name you want it to have. If desired, enter a description. Please visit the article on how to create and store an effect preset for further details.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/P6Wfzj6YNDM?si=WRZQD9zCdQ1_tW1b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Where can you find LUTs?
@@ -107,7 +107,7 @@ You might be asking, "Now that I've learned more about LUTs (Lookup Tables), whe
 * Urban Dark Creative LUTs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fZTlPdOFNmo?si=Ym8p7ayV1gtNzzXj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -146,22 +146,20 @@ Sometimes, some of them are out there to steal your money rather than provide th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-battle-of-broadcasting-is-xsplit-better-than-obs-for-livestreams/"><u>[New] 2024 Approved The Battle of Broadcasting Is XSplit Better Than OBS for Livestreams?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-excellence-in-quality-leading-4k-panels-for-filmmaking-for-2024/"><u>[New] Excellence in Quality Leading 4K Panels for Filmmaking for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-how-to-achieve-premium-picture-standards-without-paying-for-2024/"><u>[New] How to Achieve Premium Picture Standards Without Paying for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-color-profiles-explained-srgb-versus-rgb/"><u>[Updated] 2024 Approved Color Profiles Explained Srgb Versus Rgb</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-blend-photos-effortlessly-in-real-time/"><u>[Updated] Blend Photos Effortlessly in Real-Time</u></a></li>
-<li><a href="https://fox-http.techidaily.com/updated-harmonizing-audio-and-visuals-add-apple-music-to-videos/"><u>[Updated] Harmonizing Audio and Visuals Add Apple Music to Videos</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-in-2024-photography-clarity-revolution-best-fixers-of-the-web-age/"><u>[Updated] In 2024, Photography Clarity Revolution Best Fixers of the Web Age</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/updated-the-definitive-guide-to-efficient-screen-recording-on-an-hp-notebook-for-2024/"><u>[Updated] The Definitive Guide to Efficient Screen Recording on an HP Notebook for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-unveiling-the-secret-seeing-popular-youtube-reactions-for-2024/"><u>[Updated] Unveiling the Secret Seeing Popular YouTube Reactions for 2024</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/explaining-and-mending-error-code-0x8007251d-a-guide/"><u>Explaining and Mending Error Code 0X8007251d: A Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/high-end-8-cam-modifiers-for-crystal-clear-feeds-for-2024/"><u>High-End 8 Cam Modifiers for Crystal Clear Feeds for 2024</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/how-to-check-if-your-oneplus-nord-n30-5g-is-unlocked-by-drfone-android/"><u>How To Check if Your OnePlus Nord N30 5G Is Unlocked</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/in-2024-harmonizing-photos-with-musical-scores/"><u>In 2024, Harmonizing Photos With Musical Scores</u></a></li>
-<li><a href="https://win-top.techidaily.com/mp3wma/"><u>MP3形式にしたいWMA音楽: 信頼できるオンラインコンバーターをご紹介</u></a></li>
-<li><a href="https://fox-links.techidaily.com/optimal-transformation-tool-for-hd-videos/"><u>Optimal Transformation Tool for HD Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/ultimate-tutorial-for-downloading-wm6/"><u>Ultimate Tutorial for Downloading WM6</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/unleash-creativity-how-to-elegantly-add-descriptive-elements-in-photos-for-windows-and-macos/"><u>Unleash Creativity How to Elegantly Add Descriptive Elements in Photos for Windows & MacOS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-unlocking-the-secrets-of-srt-to-sub-transition/"><u>[New] In 2024, Unlocking the Secrets of SRT-to-SUB Transition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-masterclass-in-ios-podcast-management-and-download-for-2024/"><u>[New] Masterclass in iOS Podcast Management & Download for 2024</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-unlocking-kinemasters-fullscreen-magic/"><u>[New] Unlocking KineMaster's Fullscreen Magic</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/new-unveiling-effective-metaverse-engagement-tactics-for-2024/"><u>[New] Unveiling Effective Metaverse Engagement Tactics for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-virtual-reality-and-panoramic-videos-key-distinctions-for-2024/"><u>[New] Virtual Reality & Panoramic Videos Key Distinctions for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-2024-approved-nintendo-switch-leading-capture-card-selections/"><u>[Updated] 2024 Approved Nintendo Switch Leading Capture Card Selections</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-cutting-edge-techniques-in-3d-lut-making/"><u>[Updated] In 2024, Cutting-Edge Techniques in 3D LUT Making</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mixing-masterclass-for-dji-miniair-2-owners-no-cost-here/"><u>[Updated] Mixing Masterclass for DJI Mini/Air 2 Owners - No Cost Here</u></a></li>
+<li><a href="https://article-tips.techidaily.com/1723262420361-experience-next-level-gaming-with-an-rtx-4080-super-chip-lenovos-deal-priced-at-2091/"><u>Experience Next-Level Gaming with an RTX 4080 Super Chip - Lenovo's Deal Priced at $2,091!</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/how-to-unlock-samsung-galaxy-s23-fe-phone-without-pin-by-drfone-android/"><u>How to Unlock Samsung Galaxy S23 FE Phone without PIN</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-next-gen-vr-engines-the-2023-rundown/"><u>In 2024, Next-Gen VR Engines The 2023 Rundown</u></a></li>
+<li><a href="https://fox-links.techidaily.com/podcast-dissemination-instagram-stories-vs-feed/"><u>Podcast Dissemination Instagram Stories Vs. Feed</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/top-10-xiaomi-13-ultra-android-sim-unlock-apk-by-drfone-android/"><u>Top 10 Xiaomi 13 Ultra Android SIM Unlock APK</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/top-6-advantages-of-using-chatgpt-on-your-iphone-or-ipad/"><u>Top 6 Advantages of Using ChatGPT on Your iPhone or iPad</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-best-audio-chat-applications-tailored-for-gaming-enthusiasts/"><u>Updated In 2024, Best Audio Chat Applications Tailored for Gaming Enthusiasts</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Effortless Edits  Bending Image Into Shape\""
-date: 2024-12-27T20:54:50.999Z
-updated: 2025-01-03T17:11:41.811Z
+date: 2025-01-04T04:00:34.712Z
+updated: 2025-01-10T17:54:10.224Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/fqBKCGAKHmA?si=OkoaI17nE5qNqTHj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Simple Steps to Curve an Image in Photoshop
@@ -43,6 +43,10 @@ After creating the new document, open the image that you want to curve. You may 
 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ##### Step3Warp the Image
 
 Now we'll curve the image using the Warp Tool. Select the Warp Tool by clicking and holding on the Transform Tool in the toolbar. The Warp Tool is located at the bottom of the Transform Tool's fly-out menu. Alternatively, you may press Ctrl+T or Command+T on your keyboard to open the Transform Tool's fly-out menu and then select the Warp Tool from there.
@@ -55,20 +59,20 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change image height photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-image-height-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 20% **Horizontal Distortion** makes one side of the image appear larger than the other. This is what my photo looks like at 20%.
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_O8m9KphYzs?si=jITthzeyX_Kmt9X2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/lxv4NM-89CU?si=Uj5rOkhrwZ_6QIuW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 The **Bend Direction** option rotates the angle of the bend.
@@ -79,10 +83,6 @@ Flip any of these effects in the opposite direction by placing a negative sign i
 
 ![flip effect image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/flip-effect-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/LW6wNx3XAj8?si=VaIuFIIx8MM_RhUR" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ##### Step4Save the Image
 
 Once you're happy with the way your image looks, go to File > Save As in the menu bar or press Ctrl+Shift+S or Command+Shift+S on your keyboard. Choose a file format and location to save your image and click Save. And that's it! You've successfully curved
@@ -90,7 +90,7 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qmQjRcnaq9g?si=jadcGtXemUAlKOTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -127,19 +127,16 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-inverted-footage-whats-behind-instagrams-peculiarity/"><u>[New] 2024 Approved Inverted Footage What's Behind Instagram's Peculiarity?</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/new-2024-approved-streamline-your-creative-process-with-instagrams-photography-tips/"><u>[New] 2024 Approved Streamline Your Creative Process with Instagram's Photography Tips</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-one-minute-mastery-of-fades/"><u>[New] One-Minute Mastery of Fades</u></a></li>
-<li><a href="https://video-capture.techidaily.com/new-screen-scanning-with-fraps-a-critical-review/"><u>[New] Screen Scanning with Fraps A Critical Review</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-ultimate-5-minute-timelapse-video-maker/"><u>[New] Ultimate 5-Minute Timelapse Video Maker</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/ed-boosting-your-channels-viewer-count-12-must-try-approaches-for-2024/"><u>[Updated] Boosting Your Channel's Viewer Count - 12 Must-Try Approaches for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-step-by-step-guide-to-mastering-quantum-hdr/"><u>[Updated] In 2024, Step by Step Guide to Mastering Quantum HDR</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-supercharged-visuals-video-content-plus-filter-amplification-pcmobile/"><u>[Updated] In 2024, Supercharged Visuals Video Content + Filter Amplification (PC/Mobile)</u></a></li>
-<li><a href="https://screen-sharing-recording.techidaily.com/updated-pro-screen-recorder-battle-top-selections-unveiled/"><u>[Updated] Pro Screen Recorder Battle Top Selections Unveiled</u></a></li>
-<li><a href="https://games-able.techidaily.com/boost-your-console-experience-3-code-redemption-strategies/"><u>Boost Your Console Experience: 3 Code Redemption Strategies</u></a></li>
-<li><a href="https://android-location-track.techidaily.com/in-2024-how-do-i-stop-someone-from-tracking-my-vivo-s17e-drfone-by-drfone-virtual-android/"><u>In 2024, How Do I Stop Someone From Tracking My Vivo S17e? | Dr.fone</u></a></li>
-<li><a href="https://windows11.techidaily.com/restoring-lost-nvidia-configuration-a-guide-for-winx-users/"><u>Restoring Lost NVIDIA Configuration: A Guide for WinX Users</u></a></li>
-<li><a href="https://article-tips.techidaily.com/top-tier-eyeball-enticer-author/"><u>Top-Tier Eyeball Enticer Author</u></a></li>
-<li><a href="https://video-ai-editor.techidaily.com/troubleshooting-and-fixing-h265-playback-problems-on-your-roku-device-step-by-step-guide/"><u>Troubleshooting and Fixing H.265 Playback Problems on Your Roku Device - Step-by-Step Guide</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-strategic-giants-identifying-the-prime-7-total-war-battles/"><u>[New] In 2024, Strategic Giants Identifying the Prime 7 Total War Battles</u></a></li>
+<li><a href="https://fox-cloud.techidaily.com/new-iphones-and-gifs-perfecting-your-visual-playlist-for-2024/"><u>[New] IPhones & GIFs Perfecting Your Visual Playlist for 2024</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/new-the-complete-guide-to-live-streaming-on-instagram-via-obs/"><u>[New] The Complete Guide to Live Streaming on Instagram via OBS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-exclusive-vr-movie-experiences/"><u>[Updated] Exclusive VR Movie Experiences</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-in-2024-transform-your-work-from-home-experience-with-skype-screen-sharing-techniques/"><u>[Updated] In 2024, Transform Your Work-From-Home Experience with Skype Screen Sharing Techniques</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-voice-command-utilization-no-cost/"><u>[Updated] In 2024, Voice Command Utilization No Cost</u></a></li>
+<li><a href="https://some-tips.techidaily.com/1-ibm-advocates-using-generative-ai-for-streamlining-enterprise-operations-insights-from-zdnet/"><u>1. IBM Advocates Using Generative AI for Streamlining Enterprise Operations - Insights From ZDNet</u></a></li>
+<li><a href="https://article-tips.techidaily.com/extensive-analysis-the-complete-gear-360-camera-experience/"><u>Extensive Analysis The Complete Gear 360 Camera Experience</u></a></li>
+<li><a href="https://win-blog.techidaily.com/fixing-issues-how-to-prevent-constant-crashes-of-huoxijie-vii-on-your-pc/"><u>Fixing Issues: How to Prevent Constant Crashes of 'Huòxījié VII' On Your PC</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-3-ways-to-track-itel-p55t-without-them-knowing-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways to Track Itel P55T without Them Knowing | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-video-battle-2022-gopro-hero5-black-vs-garmin-virb-streamers/"><u>In 2024, Video Battle 2022 GoPro Hero5 Black Vs. Garmin VIRB Streamers</u></a></li>
 </ul></div>
 

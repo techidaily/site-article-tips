@@ -1,7 +1,7 @@
 ---
 title: "\"In 2024, Transforming Imagery  The Power of PS Curves\""
-date: 2024-08-15T08:43:18.767Z
-updated: 2024-08-16T08:43:18.767Z
+date: 2025-01-03T21:58:11.888Z
+updated: 2025-01-10T16:51:11.421Z
 tags: 
   - screen-recording
   - ai video
@@ -22,6 +22,10 @@ In this Photoshop tutorial, we're going to carve an image using four simple step
 
 ![curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/curve-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Simple Steps to Curve an Image in Photoshop
 
 ##### Step1Create a New Document
@@ -33,6 +37,10 @@ To keep things simple, let's start with a white canvas. Let's open a new documen
 After creating the new document, open the image that you want to curve. You may do so by going to File > Open in the menu bar or pressing Ctrl+O or Command+O on your keyboard. Once the image is open, go to Edit in the menu bar and select Place Embedded from the drop-down menu that appears. Select your image and click Place. The image will be placed on the canvas. If the document's size does not match that of the image, you will see a transformation box surrounding the image.
 
 ![place image in photoshop](https://images.wondershare.com/filmora/article-images/2022/09/place-image-in-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/cDNwgyE0nbY?si=3k_WBhpIw3WudJot" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ##### Step3Warp the Image
 
@@ -50,13 +58,25 @@ Play around with the settings in the options bar. There are quite a few differen
 
 ![change horizontal distortion photoshop](https://images.wondershare.com/filmora/article-images/2022/09/change-horizontal-distortion-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/UoBCgLTmznE?si=MXXiGsd2qpd_DrzE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Vertical Distortion** makes the image look as if it's leaning backward.
 
 ![verticle distortion image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/verticle-distortion-image-photoshop.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 The **Bend Direction** option rotates the angle of the bend.
 
 ![bend direction image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/bend-direction-image-photoshop.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Flip any of these effects in the opposite direction by placing a negative sign in front of the percentage. Here's -20% in the **Bend** box with a vertical bend.
 
@@ -68,9 +88,6 @@ Once you're happy with the way your image looks, go to File > Save As in the men
 
 ![save curve image photoshop](https://images.wondershare.com/filmora/article-images/2022/09/save-curve-image-photoshop.jpg)
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4576829&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/9e740b84bb48a64dde25061566299467/products/copy_1_jp_box_big.png" border="0">Jet Profiler for MySQL, Enterprise Version： Jet Profiler for MySQL is real-time query performance and diagnostics tool for the MySQL database server. Its detailed query information, graphical interface and ease of use makes this a great tool for finding performance bottlenecks in your MySQL databases. </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 We hope this post has helped you learn how to curve an image in Photoshop. The best part about it? It's easy to do, and you can do it quickly. So, don't wait another minute! Get out there and start curving your images today (we know we are).
@@ -103,4 +120,26 @@ We hope this post has helped you learn how to curve an image in Photoshop. The b
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-navigating-through-vlc-features-settings-and-troubleshooting-mac/"><u>[New] 2024 Approved Navigating Through VLC Features, Settings & Troubleshooting (Mac)</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-aim-for-picture-perfect-facebooks-hd-streaming/"><u>[New] Aim for Picture-Perfect Facebook's HD Streaming</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-bestow-photographic-frames-with-outer-radial-smearing/"><u>[New] In 2024, Bestow Photographic Frames with Outer Radial Smearing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-depth-appraisal-does-inshot-rule-in-video-edits-in-2024/"><u>[New] In-Depth Appraisal Does InShot Rule in Video Edits, In 2024</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-boxed-insights-unpacking-effective-strategy-for-2024/"><u>[Updated] Boxed Insights Unpacking Effective Strategy for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-capturing-clarity-selecting-10-superior-lenses-for-2024/"><u>[Updated] Capturing Clarity Selecting 10 Superior Lenses for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-giggle-grid-curated-list-of-uproarious-ringtone-sites-for-2024/"><u>[Updated] Giggle Grid Curated List of Uproarious Ringtone Sites for 2024</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/updated-streamline-your-screens-the-benefits-of-using-showmore/"><u>[Updated] Streamline Your Screens The Benefits of Using ShowMore</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/6-best-free-apps-to-compress-videos-on-android-for-2024/"><u>6 Best Free Apps to Compress Videos on Android for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/6-proven-ways-to-unlock-lava-blaze-pro-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Lava Blaze Pro 5G Phone When You Forget the Password</u></a></li>
+<li><a href="https://common-error.techidaily.com/fix-and-optimize-overcoming-non-operational-diagnostic-services-issues/"><u>Fix and Optimize: Overcoming Non-Operational Diagnostic Services Issues</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-verdict-on-toolwiz-top-notch-mobile-photo-editor/"><u>In 2024, The Verdict on Toolwiz Top-Notch Mobile Photo Editor?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-watermark-wisdom-for-every-photographers-toolkit/"><u>In 2024, Watermark Wisdom for Every Photographer's Toolkit</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-depth-training-on-googles-automatic-transcription-tool/"><u>In-Depth Training on Google's Automatic Transcription Tool</u></a></li>
+<li><a href="https://win-dash.techidaily.com/intel-wireless-wifi-6-ax200-driver-download-plus-upgrade-guide-for-windows-1110/"><u>Intel Wireless WiFi 6 AX200 Driver Download + Upgrade Guide for Windows 11/10</u></a></li>
+<li><a href="https://article-tips.techidaily.com/jest-juggler-mummified-memers/"><u>Jest Juggler Mummified Memers</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/1723808246011-spotting-overheating-signs-in-your-pcs-central-unit-fixes-inside/"><u>Spotting Overheating Signs in Your PC's Central Unit – Fixes Inside</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/unlocking-the-power-of-smart-lock-a-beginners-guide-for-vivo-y02t-users-by-drfone-android/"><u>Unlocking the Power of Smart Lock A Beginners Guide for Vivo Y02T Users</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/wevideo-the-simple-way-to-make-professional-looking-videos/"><u>WeVideo The Simple Way to Make Professional-Looking Videos</u></a></li>
+</ul></div>
 

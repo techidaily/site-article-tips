@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Unlock a World of Movies  Captions in Windows Media Player\""
-date: 2024-08-08T03:31:18.188Z
-updated: 2024-08-09T03:31:18.188Z
+date: 2025-01-12T17:38:21.816Z
+updated: 2025-01-16T17:24:07.856Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
 
 # How to add subtitles to windows media player
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4712430&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/c404a5adbf90e09631678b13b05d9d7a/products/dlnow_256.png" border="0">DLNow Video Downloader</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -31,23 +28,24 @@ thumbnail: https://thmb.techidaily.com/fa21f0e3da9170853bae87f9e51fccaaee500ab18
 
 Windows Media Player is still maintaining its wide popularity among users from every corner of world. There is no doubt to say that it hold impressive feature set with user friendly platform so people stay always curious to do adventurous things over it. The article below will help you to understand the trick to add subtitles into video clips using Window Media Player. By following few simple steps as discussed below, soon you will be able to gain access to your desired subtitles and then they can be merged with videos so easily. Keep reading:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Step by Step Guide
 
 The process of adding subtitles to video clips is quite simple; you need to follow these steps: First of all, you need to install Windows media player on your Personal Computer. Prefer to get the latest version, it is easily available over internet and can be downloaded and installed by beginners too. Once your software tool is ready on your system then proceed ahead.
 
 **Step 1:** First of all you need to save your video and subtitle file with same name. It is not possible to manually add subtitles using Window Media Player but it can easily detect all subtitles when both files are saved with same name.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4530091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pearlmountainsoft.com/n_img/product/cit_win/banScrn.jpg" border="0">CollageIt Pro</a>
-<!-- affiliate ads end -->
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-1.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/omWG4u39lmE?si=yk1AEo_gzDpGjYbl" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Step 2:** Once you are done with the first step then simply open your Window Media Player and move to the Library Mode. Now switch to play, then Lyrics, captions and finally you will reach at subtitles. Hit this option and choose “On if Available”. The same option is also available in the Now Playing Mode where you simply need to right click and this option will appear in drop down menu.
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35504869&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/1_FR-200-1.png" border="0">Glarysoft File Recovery Pro Annually -  Helps to recover your lost file/data, even permanently deleted data. 
-</a>
-<!-- affiliate ads end -->
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-2.jpg)
 
 **Step 3:** Now, it is time to download DirectVobSub codec and get it installed on your PC. This software is easily available in 32, 64 bit versions so you can easily access any of these. Simply install codec from this source; no need to work on configuration settings. Note that these codecs must be installed from a trusted source so that malware or virus attacks can be avoided.
@@ -56,6 +54,10 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-3.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 5:** Within very less time application will get opened with a fresh window on your system. Now move to tabs of different video file types then search for the option that says: “Disable Media Foundation for MP4/MKV and AVI etc”. Further, go to the swap tab and then disable window media foundation.
 
 ![ ](https://images.wondershare.com/filmora/article-images/subtitle-wmp-4.jpg)
@@ -63,8 +65,9 @@ The process of adding subtitles to video clips is quite simple; you need to foll
 As soon as you will finish all these settings, your subtitles will appear perfectly over video and you can enjoy great synchronism for all content. Window Media player tool is capable enough to make effective adjustments for subtitle placements and it will take just a few minutes to complete all these steps.
 
 <!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2097466/26400?prodsku=B700" target="_top" id="2097466"><img src="//a.impactradius-go.com/display-ad/26400-2097466" border="0" alt="" width="2048" height="1024"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2097466/26400" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Websites for Downloading Subtitles
 
 If you are searching for websites that can help you to download subtitles for your videos then this list can be useful for you:
@@ -78,15 +81,13 @@ You will be glad to know that this website offers subtitles in wide range of lan
 This website stays one of the top preferences lists of all professionals as well as beginners. It serves with easy to access search function so that users can easily navigate for their desired subtitle file. It also allows users to upload movie subtitle files and they can be rated.
 
 <!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082529/7443" target="_top" id="2082529"><img src="//a.impactradius-go.com/display-ad/7443-2082529" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082529/7443" style="position:absolute;visibility:hidden;" border="0" />
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jnITUsxMz5s?si=ohwRVH6eWhVnC6Xf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ### [3\. TVsubtitles.net:](http://www.tvsubtitles.net/tvshow-1568-3.html)
 
 There is no doubt to say that TVSubtitles.com is well known as best site for TV show subtitle download needs. This platform contains largest collection of popular TV show subtitles from every corner of world and they are available in multiple languages. Some of the most commonly downloaded subtitle files use to be in Korean, Russian, German, Greek, French and English language.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### [4. Tvsubs.net:](http://www.tvsubs.net/)
 
 One more online platform for downloading wide range of subtitles and the best thing to know about this website is that it possesses user friendly platform that has super cool appearance. As soon as you will open your website you will notice that well placed search box. Yeah! This is your biggest need when you need to search for subtitles. Enter your details inside this search box and it will soon bring all desired results to your computer screen. One can also access this site for uploading movie subtitles.
@@ -116,4 +117,21 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlocking-apples-podcast-potential-an-instructional-guide/"><u>[New] 2024 Approved Unlocking Apple's Podcast Potential An Instructional Guide</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-wallet-friendly-4k-camera-and-camcorder-deals/"><u>[New] Wallet-Friendly 4K Camera and Camcorder Deals</u></a></li>
+<li><a href="https://article-knowledge.techidaily.com/updated-2024-approved-troubleshooting-iphone-x-regaining-access-via-facial-id/"><u>[Updated] 2024 Approved Troubleshooting iPhone X Regaining Access via Facial ID</u></a></li>
+<li><a href="https://youtube-web.techidaily.com/ed-essential-youtube-strategies-compiling-10-basic-yet-engaging-ideas-for-everyone-for-2024/"><u>[Updated] Essential YouTube Strategies Compiling 10 Basic Yet Engaging Ideas for Everyone for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-mastering-the-science-of-writing-magnetic-vlogs/"><u>[Updated] Mastering the Science of Writing Magnetic Vlogs</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/2024-approved-following-review-innovative-outlooks/"><u>2024 Approved Following Review Innovative Outlooks</u></a></li>
+<li><a href="https://program-issues.techidaily.com/conquer-the-pitch-black-your-guide-to-fixing-elden-rings-startup-screen-problem/"><u>Conquer the Pitch-Black: Your Guide to Fixing Elden Ring’s Startup Screen Problem</u></a></li>
+<li><a href="https://app-tips.techidaily.com/discovering-your-macs-secrets-a-guide-to-finding-passwords-in-the-keychain/"><u>Discovering Your Mac's Secrets: A Guide to Finding Passwords in the Keychain</u></a></li>
+<li><a href="https://article-tips.techidaily.com/harness-your-creativity-with-high-quality-free-images-from-these-12-sites/"><u>Harness Your Creativity with High-Quality, Free Images From These 12 Sites</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/highspeed-slowscene-videograph-for-2024/"><u>HighSpeed SlowScene Videograph for 2024</u></a></li>
+<li><a href="https://ai-topics.techidaily.com/new-easy-steps-to-make-a-talking-avatar-with-ai-from-any-photos/"><u>New Easy Steps to Make a Talking Avatar with AI From Any Photos</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/secrets-unveiled-creating-professional-srt-files-for-2024/"><u>Secrets Unveiled Creating Professional SRT Files for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unlock-vivid-visuals-windows-hdplus-guide-to-hdr-mastery-for-2024/"><u>Unlock Vivid Visuals Windows HD+ Guide to HDR Mastery for 2024</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/why-you-might-want-a-human-touch-instead-of-chatgpt-when-it-comes-to-summaries/"><u>Why You Might Want a Human Touch Instead of ChatGPT When It Comes to Summaries</u></a></li>
+</ul></div>
 

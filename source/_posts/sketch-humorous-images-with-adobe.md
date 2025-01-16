@@ -1,7 +1,7 @@
 ---
 title: "Sketch Humorous Images with Adobe"
-date: 2024-08-08T03:31:45.675Z
-updated: 2024-08-09T03:31:45.675Z
+date: 2025-01-09T18:40:44.708Z
+updated: 2025-01-16T16:57:27.390Z
 tags: 
   - screen-recording
   - ai video
@@ -34,24 +34,27 @@ It helps you make your meme unique with free photos, fonts, and other elements. 
 
 Step1 Initially, you can search for meme in the task bar. After you click on it, you will see a side window with a number of templates for the meme design. You can select the desired template.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075461/7443" target="_top" id="2075461"><img src="//a.impactradius-go.com/display-ad/7443-2075461" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075461/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![create new project adobe express](https://images.wondershare.com/filmora/article-images/2022/07/create-new-project-adobe-express.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 Any desired design can be made on the meme and text can be written on any part of the template. You can also upload your own template design.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4727541&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/5f4f7141b65a730b4efb0e0d51f63e94/products/copy_copy_forexrobotronbox.gif" border="0">Forex Robotron Gold Package</a>
-<!-- affiliate ads end -->
 ![select a size adobe express](https://images.wondershare.com/filmora/article-images/2022/07/select-a-size-adobe-express.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/yr0yS_Ywrjs?si=QxzYiX1KmUaExmlo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step3 There are a number of actions that can be applied on the template, in the image below you can see taskbars on both the sides of the window. After you are done and satisfied with the design; you can save the project and download it for yourself.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ![video templates adobe express](https://images.wondershare.com/filmora/article-images/2022/07/video-templates-adobe-express.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step4 Even if you do not download it, it will be stored in the Adobe cloud and you can retrieve it anywhere using your email login.
 
@@ -77,15 +80,15 @@ Step3 The meme can then be enhanced by applying different actions after selectio
 
 Step4 Finally, save the meme. Go to file and choose "save". Select any extension you want and save.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=30901369&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/1_copy_vMixCallScreenshot1-large.jpg" border="0"> vMix 4K - Software based live production. vMix 4K includes everything in vMix HD plus 4K support, PTZ control, External/Fullscreen output, 4 Virtual Outputs, 1 Replay, 4 vMix Call, and 2 Recorders. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Part 3: Create Meme with After Effects
 
 Adobe After Effects is normally used for staging of a film, video game, and television production. The key objectives behind making after effects were to make a motion graphics, digital visual effects, and compositing technology. Keying, tracking, compositing, and animation are some of the tasks that can be performed with the help of After Effects. A basic media transcoder, non-linear editor and audio editor are also included in its list of capabilities.
 
 ![create meme in after effects](https://images.wondershare.com/filmora/article-images/2022/07/create-meme-in-after-effects.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6X24fPKs6AE?si=YtQy-8zy7GifgfA7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Steps to Use Adobe After Effects as Meme Maker**
 
@@ -93,15 +96,27 @@ Step1 Open a brand-new After Effects document. And set your image's dimensions t
 
 ![set image after effects](https://images.wondershare.com/filmora/article-images/2022/07/set-image-after-effects.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step2 If you want to adjust the size of the background layer, you can unlock it by clicking twice. Drag the desired image onto the After Effects workspace, after uploading it.
 
 Step3 Select your image in the layer panel and then change its size to fit in the required spot. Write the text for the top of the image. Instead of typing the bottom content, use the Duplicate Layer option to duplicate the top text and then change it, as required.
 
 ![change image size ae](https://images.wondershare.com/filmora/article-images/2022/07/change-image-size-ae.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Step4 After embellishments, you can save the file in your desired extension: By clicking on the file button and saving it.
 
 ![save meme file ae](https://images.wondershare.com/filmora/article-images/2022/07/save-meme-file-ae.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 4: Using Adobe Premiere Pro to Create Meme
 
@@ -115,16 +130,10 @@ It can be used to generate new or edited versions of videos, that can be exporte
 
 Step1 By clicking on ‘project’, launch a new Premiere Pro project Set the dimensions of your image to a reasonable size.
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087264/19272" target="_top" id="2087264"><img src="//a.impactradius-go.com/display-ad/19272-2087264" border="0" alt="" width="336" height="280"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087264/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![launch new project pr](https://images.wondershare.com/filmora/article-images/2022/07/launch-new-project-pr.jpg)
 
 Step2 After downloading the selected image, drag it onto the Premiere pro workspace. After choosing your image in the layer panel, adjust its size to make it fit in the designated area.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![adjust image premiere](https://images.wondershare.com/filmora/article-images/2022/07/adjust-image-premiere.jpg)
 
 Step3 Create the project by clicking on ‘create’ which will complete the work.
@@ -147,24 +156,23 @@ To start using Filmora, the good thing is that this software is free and compati
 
 Step1 Open the Filmora meme maker on your browser. Drag or upload your file on the center box as shown here:
 
-<!-- affiliate ads begin -->
-<a href="https://aligracehair.sjv.io/c/5597632/2087267/19272" target="_top" id="2087267"><img src="//a.impactradius-go.com/display-ad/19272-2087267" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2087267/19272" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![open filmora meme maker](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Step2 Add your desired text and put it in the right position.
 
-<!-- affiliate ads begin -->
-<a href="https://natural-cycles.sjv.io/c/5597632/2072200/17885" target="_top" id="2072200"><img src="//a.impactradius-go.com/display-ad/17885-2072200" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072200/17885" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add desired text](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 Step3 Complete your meme and download it.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4665597&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.pcclean.io/wp-content/uploads/2018/03/winutilities-box-130521.png" border="0">WinUtilities Pro</a>
-<!-- affiliate ads end -->
 ![complete meme and download it](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## The Bottom Line
 
@@ -178,28 +186,16 @@ To start using Filmora, the good thing is that this software is free and compati
 
 Step1 Open the Filmora meme maker on your browser. Drag or upload your file on the center box as shown here:
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=12653808&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/wt-500x500.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![open filmora meme maker](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
 Step2 Add your desired text and put it in the right position.
 
-<!-- affiliate ads begin -->
-<a href="https://modlily.sjv.io/c/5597632/2072819/17059" target="_top" id="2072819"><img src="//a.impactradius-go.com/display-ad/17059-2072819" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2072819/17059" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![add desired text](https://images.wondershare.com/filmora/guide/add-titles-win-1.png)
 
 Step3 Complete your meme and download it.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BConverter%2BBox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/8020c1dc-518e-3bdf-6e7b-e6d1bdf1597b.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![complete meme and download it](https://images.wondershare.com/filmora/guide/add-titles-win-2.png)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeacheu.sjv.io/c/5597632/1996818/23722" target="_top" id="1996818"><img src="//a.impactradius-go.com/display-ad/23722-1996818" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1996818/23722" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## The Bottom Line
 
 There are a number of different tools available on internet for meme making. And from this article, it is clear that they are quite easily available. Adobe has been the uncrowned king of media applications. All the adobe tools which were mentioned in this article are very meticulously crafted, each tool has its own extensive detail and requires good practice to understand it. Because of this vast functionality and very detailed setting, Adobe tools are difficult to use at first but with practice they prove to be the best of all. But for a quick job or a first timer, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) is much simpler and easier to work with.
@@ -226,4 +222,16 @@ There are a number of different tools available on internet for meme making. And
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-clearsnap-guide-how-to-exclude-distracting-picture-borders/"><u>[New] 2024 Approved ClearSnap Guide How to Exclude Distracting Picture Borders</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-compact-player-showcase-the-very-best-portables/"><u>[New] 2024 Approved Compact Player Showcase The Very Best Portables</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-2024-approved-maximizing-engagement-essential-strategies-for-facebook-video-promotion/"><u>[New] 2024 Approved Maximizing Engagement Essential Strategies for Facebook Video Promotion</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-a-step-by-step-approach-to-best-youtube-thumbnails/"><u>[Updated] 2024 Approved A Step-by-Step Approach to Best YouTube Thumbnails</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-best-chuckle-inducing-edits-on-mobile-platforms/"><u>[Updated] 2024 Approved Best Chuckle-Inducing Edits on Mobile Platforms</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-artists-journey-becoming-a-hue-heavyweight/"><u>[Updated] 2024 Approved The Artist's Journey Becoming a Hue Heavyweight</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-10-ultimate-virtual-worlds-for-party-gaming/"><u>In 2024, 10 Ultimate Virtual Worlds for Party Gaming</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-unlock-icloud-lock-from-your-apple-iphone-13-pro-and-ipad-by-drfone-ios/"><u>In 2024, How to Unlock iCloud lock from your Apple iPhone 13 Pro and iPad?</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210391759-9780646830094-run-mary-run/"><u>Run Mary Run | Free Book</u></a></li>
+</ul></div>
 

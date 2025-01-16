@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Creativity  Seamless Integration of Title & Caption Overlays on Video Clips via Microsoft Photos\""
-date: 2025-01-07T02:20:01.632Z
-updated: 2025-01-10T20:20:19.428Z
+date: 2025-01-09T19:08:43.278Z
+updated: 2025-01-16T19:59:41.234Z
 tags: 
   - screen-recording
   - ai video
@@ -38,10 +38,6 @@ Adding the titles/text to video is a great way to explain the people about a cer
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/H2cXnI9oOvM?si=3nz2sBB124ln-83T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 1: How to Add Titles/Text to Video on Photos in Windows 10
 
 Do you wish to add titles/text to video on Photos in Windows 10 for your video projects? You may not get several options for video editing in spite of some powerful addition of application in Microsoft Store. But, the Windows 10 Photos app feature offers an add-on for creating video from your phone’s media. Let’s learn how to add titles/text to video on Photos in Windows 10.
@@ -51,13 +47,17 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
 * Resize the image if black parts appear by clicking on resize and then, remove black parts
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=heERQcpMi77lqToE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
@@ -65,7 +65,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -80,7 +80,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/43goO8X0iX0?si=48Cqf6td2q_6T6h3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -95,15 +95,15 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 * Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3C51hzX46eY?si=o5qiDSkT7mXUGm3F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -130,21 +130,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-revealed-top-10-powerful-fcp-plugin-tools/"><u>[New] 2024 Approved Revealed Top 10 Powerful FCP Plugin Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-secrets-to-stunning-fisheye-sphere-photography/"><u>[New] 2024 Approved Secrets to Stunning Fisheye Sphere Photography</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-unleashing-potential-with-the-vida-editing-suite/"><u>[New] In 2024, Unleashing Potential with the Vida Editing Suite</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/new-smart-social-media-strategies-from-youtube-to-facebook-for-2024/"><u>[New] Smart Social Media Strategies From YouTube To Facebook for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-master-your-media-best-ios-players-for-phones-and-tablets/"><u>[Updated] 2024 Approved Master Your Media Best iOS Players for Phones & Tablets</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-a-guide-to-thriving-as-a-digital-creator/"><u>[Updated] A Guide to Thriving as a Digital Creator</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-designing-engaging-film-teasers/"><u>[Updated] In 2024, Designing Engaging Film Teasers</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/33730852-updated-pick-the-best-days-to-post-on-youtube/"><u>[Updated] Pick the Best Days to Post on YouTube</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/2024-approved-analyzing-social-media-reach-for-igtv-videos/"><u>2024 Approved Analyzing Social Media Reach for IGTV Videos</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/o-turn-on-or-off-comments-on-youtube-for-2024/"><u>How to Turn on or Off Comments on YouTube for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-does-life360-notify-when-you-log-out-on-oppo-reno-10-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Does Life360 Notify When You Log Out On Oppo Reno 10 Pro+ 5G? | Dr.fone</u></a></li>
-<li><a href="https://win-forum.techidaily.com/launching-the-advanced-version-meet-revo-uninstaller-pro-5/"><u>Launching the Advanced Version: Meet Revo Uninstaller Pro 5</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/sky-high-savings-grab-apples-hottest-deal-on-airpods-with-a-40-discount-before-independence-day/"><u>Sky-High Savings: Grab Apple's Hottest Deal on AirPods With a $40 Discount Before Independence Day</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/ultimate-troubleshooting-guide-correcting-stop-0x0000007b-errors-on-your-computer/"><u>Ultimate Troubleshooting Guide: Correcting STOP 0X0000007B Errors on Your Computer</u></a></li>
-<li><a href="https://article-tips.techidaily.com/video-creation-in-classroom-video-editing-tips/"><u>Video Creation in Classroom Video Editing Tips</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/what-is-a-sim-network-unlock-pin-get-your-oppo-f25-pro-5g-phone-network-ready-by-drfone-android/"><u>What Is a SIM Network Unlock PIN? Get Your Oppo F25 Pro 5G Phone Network-Ready</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-prime-20-anime-openers-soundscape/"><u>[New] 2024 Approved Prime 20 Anime Openers' Soundscape</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-leading-device-editors-for-app-development-art/"><u>[New] Leading Device Editors for App Development Art</u></a></li>
+<li><a href="https://facebook-clips.techidaily.com/new-retrospective-facebook-viewing-techniques-for-laptops-and-phones/"><u>[New] Retrospective Facebook Viewing Techniques for Laptops and Phones</u></a></li>
+<li><a href="https://article-helps.techidaily.com/updated-asmrs-role-in-better-nights-expert-vocal-guides-for-2024/"><u>[Updated] ASMR's Role in Better Nights Expert Vocal Guides for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-how-to-download-youtube-srt-subtitles-with-3-actionable-ways/"><u>[Updated] In 2024, How to Download YouTube SRT Subtitles with 3 Actionable Ways?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-standout-reddit-content-an-exclusive-look-at-top-10-threads/"><u>[Updated] In 2024, Standout Reddit Content An Exclusive Look at Top 10 Threads</u></a></li>
+<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-tecno-spark-10c-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Tecno Spark 10C Phone? | Dr.fone</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-xiaomi-redmi-note-13-proplus-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Xiaomi Redmi Note 13 Pro+ 5G Without Anyone Knowing? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-how-to-create-unique-ringtone-experiences-on-iphone/"><u>In 2024, How to Create Unique Ringtone Experiences on iPhone</u></a></li>
+<li><a href="https://driver-install.techidaily.com/optimize-performance-nvidia-gtx-970-driver-updates-wins/"><u>Optimize Performance: Nvidia GTX 970 Driver Updates Wins</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/strawberry-scented-pink-thermal-compound-a-match-with-extrememugurisu-4g-for-top-notch-cooling/"><u>Strawberry Scented Pink Thermal Compound: A Match with ExtremeMUGURISU 4G for Top-Notch Cooling</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Oppo Find N3 Flip | Dr.fone</u></a></li>
+<li><a href="https://video-screen-grab.techidaily.com/transformative-camera-movements-your-guide-to-ken-burns-in-camtasa-for-2024/"><u>Transformative Camera Movements Your Guide to Ken Burns in Camtasa for 2024</u></a></li>
 </ul></div>
 

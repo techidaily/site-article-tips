@@ -1,7 +1,7 @@
 ---
 title: "[New] Master Windows 10'S Native Features to Cut Videos Instantly"
-date: 2025-01-10T03:59:30.515Z
-updated: 2025-01-10T20:25:53.122Z
+date: 2025-01-12T19:43:27.508Z
+updated: 2025-01-16T19:22:14.265Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JlX-G8rBs1w?si=iIhUoWAq5x3YK9rA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to trim video in Windows 10 Photos
@@ -59,10 +59,14 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3koT_-kvbks?si=sQV7FzPiz6GYITrE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
 
@@ -76,15 +80,15 @@ Here comes the step by step guide to trim video in VLC –
 
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
 2. Select the position from where you want to keep the video and hit the play and record button together.
 3. Now, tap the 'Record' button again where you want to stop the recording. This clip automatically gets saved as an MP4 media file. You can find it within the 'Libraries/Videos' folder if it's a Windows 7 PC.
 
 Note: You won't be trimmed by cutting the video here, rather recording the desired part using the inbuilt VLC decoder. Using the 'Frame by frame' button found under the 'Advanced control' section (the last button from the left) move to the exact frame you wish to begin your recording.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6KXVWj6Ar1M?si=Cd_jktmoN3e9OzH3" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -92,14 +96,10 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/n-66V-LRK3Y?si=fNeB2pXCePeQli6E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -127,22 +127,22 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-discover-8-superb-tablets-to-boost-your-photo-editing-skills/"><u>[New] 2024 Approved Discover 8 Superb Tablets to Boost Your Photo Editing Skills</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-ahead-of-the-curve-professional-360-cams-reviewed-2023-edition/"><u>[New] In 2024, Ahead of the Curve Professional 360° Cams Reviewed - 2023 Edition</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-masterful-approaches-to-producing-captivating-fb-video-campaigns-for-2024/"><u>[New] Masterful Approaches to Producing Captivating FB Video Campaigns for 2024</u></a></li>
-<li><a href="https://extra-support.techidaily.com/new-maximizing-video-quality-with-gopro-max-or-hero-11/"><u>[New] Maximizing Video Quality with GoPro Max or Hero 11?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-iconic-images-uncovered-histories/"><u>[Updated] 2024 Approved Iconic Images Uncovered Histories</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ultimate-vivocut-guide-for-enhanced-video-creation/"><u>[Updated] 2024 Approved Ultimate VivoCut Guide for Enhanced Video Creation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-comprehensive-review-of-non-google-augmented-reality-accessories/"><u>[Updated] In 2024, Comprehensive Review of Non-Google Augmented Reality Accessories</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-hdr-tech-showdown-sns-vs-alternatives/"><u>[Updated] In 2024, HDR Tech Showdown SNS vs Alternatives</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-mastering-free-video-text-dynamics/"><u>[Updated] In 2024, Mastering FREE Video Text Dynamics</u></a></li>
-<li><a href="https://fox-helps.techidaily.com/updated-in-2024-smilescreen-simple-steps-for-video-making/"><u>[Updated] In 2024, SmileScreen Simple Steps for Video Making</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/best-selling-vr-games-on-oculus-devices-for-2024/"><u>Best-Selling VR Games on Oculus Devices for 2024</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/how-to-get-assistance-from-snapchats-customer-care-team/"><u>How To Get Assistance From Snapchat's Customer Care Team</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-how-to-share-screen-on-skype-when-working-at-home/"><u>In 2024, How to Share Screen on Skype When Working at Home</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-premier-list-photos-with-perfect-beats-recorders/"><u>In 2024, Premier List Photos with Perfect Beats Recorders</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-universal-unlock-pattern-for-infinix-smart-8-plus-by-drfone-android/"><u>In 2024, Universal Unlock Pattern for Infinix Smart 8 Plus</u></a></li>
-<li><a href="https://tech-revival.techidaily.com/ts-mp4-5/"><u>TS 라이브스트리밍에서 MP4 바꾸기 - 5번째로 좋은 전환 방법!</u></a></li>
-<li><a href="https://fake-location.techidaily.com/which-is-the-best-fake-gps-joystick-app-on-oppo-a79-5g-drfone-by-drfone-virtual-android/"><u>Which is the Best Fake GPS Joystick App On Oppo A79 5G? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-podcasters-handbook-writing-strategies-and-sample-scripts-available-free/"><u>[New] In 2024, The Podcaster's Handbook Writing Strategies & Sample Scripts Available Free</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-unlocking-real-time-collaboration-via-xbox-zoom-for-2024/"><u>[New] Unlocking Real-Time Collaboration via Xbox Zoom for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-visionaryzoom-7-x-perfect-photo-amplification/"><u>[Updated] 2024 Approved VisionaryZoom 7-X Perfect Photo Amplification</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-best-auto-tracking-camera-mount-for-2024/"><u>[Updated] Best Auto Tracking Camera Mount for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-ultimate-iphone-and-ipad-video-player-guide/"><u>[Updated] In 2024, Ultimate iPhone & iPad Video Player Guide</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-quality-microphone-recorders-for-mac-devices-our-five-choices-revealed/"><u>[Updated] Quality Microphone Recorders for Mac Devices Our Five Choices Revealed</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-smooth-integration-of-macos-sierra-on-old-systems-for-2024/"><u>[Updated] Smooth Integration of macOS Sierra on Old Systems for 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-samsung-galaxy-s23-fe-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Samsung Galaxy S23 FE to iPhone (13/14/15) | Dr.fone</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/in-2024-clearer-captures-await-with-next-gen-tracker-tech/"><u>In 2024, Clearer Captures Await with Next-Gen Tracker Tech</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-apple-iphone-12-mini-for-mobile-legends-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Fake GPS On Apple iPhone 12 mini For Mobile Legends? | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-tale-bearers-school-distinguished-dothee/"><u>In 2024, Tale Bearers School - Distinguished Dothee</u></a></li>
+<li><a href="https://article-tips.techidaily.com/innovative-way-of-merging-gopro-footage-into-continuous-360-degree-narratives/"><u>Innovative Way of Merging GoPro Footage Into Continuous 360-Degree Narratives</u></a></li>
+<li><a href="https://win-dash.techidaily.com/latest-driver-updates-for-enhanced-compatibility-with-your-evga-gpu-on-windows-pcs/"><u>Latest Driver Updates for Enhanced Compatibility with Your EVGA GPU on Windows PCs</u></a></li>
+<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Realme GT 3 | Dr.fone</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/transformative-techniques-for-high-quality-mp4s-from-instagram/"><u>Transformative Techniques for High-Quality MP4s From Instagram</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/unboxing-and-testing-in-depth-review-of-asus-rog-swift-oled-for-ultimate-gaming-experience/"><u>Unboxing and Testing: In-Depth Review of Asus ROG Swift OLED for Ultimate Gaming Experience</u></a></li>
+<li><a href="https://fox-search.techidaily.com/unveiling-potential-reasons-behind-your-computers-cpu-heat-spike-insights-from-yl-computing/"><u>Unveiling Potential Reasons Behind Your Computer's CPU Heat Spike - Insights From YL Computing</u></a></li>
 </ul></div>
 

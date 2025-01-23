@@ -1,7 +1,7 @@
 ---
 title: "\"Mastering In-Video Narrations  A Step-by-Step Guide for 2024\""
-date: 2025-01-13T16:05:54.397Z
-updated: 2025-01-16T17:40:53.802Z
+date: 2025-01-16T22:02:39.997Z
+updated: 2025-01-22T18:33:04.057Z
 tags: 
   - screen-recording
   - ai video
@@ -49,19 +49,15 @@ But here's the good news: the way you add either option is the same in Filmora.
 
 ![add either option](https://images.wondershare.com/filmora/guide/get-started-with-filmora-01.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15Ju8Cb4UZ8?si=5wdiQXdz1BOxIkDH" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to add narration
 
 So the easiest way to add narration is directly to a project. The benefit of this is that you can record your narration inside Filmora while you watch the preview of your edited video.
 
 ![add narration to project](https://images.wondershare.com/filmora/guide/stt-tts-srt-09.png)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 A good example of this would be narrating a story on top of some still images and video clips from a recent vacation. (In most cases you would want to turn off the sound of the video clip, or at least use ducking to help the viewer focus on the narration.)
 
@@ -69,15 +65,15 @@ You put the playhead where you want to start recording and hit the microphone ic
 
 ![hit microphone icon](https://images.wondershare.com/filmora/guide/stt-tts-srt-08.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZLb1ViO4WR8?si=g_aiHGNCd7eAvmDM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 A 3-second countdown will pop up and start recording immediately after this countdown.
 
 You can record your narration and click stop.
 
 After recording, you can trim and edit your narration, you can delete it and record it again, and can move it and edit it like any other feature.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/KaqfZcWg5sE?si=LPmSKk7AFp8VxDFD" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Some Tips for Recording Narration
 
@@ -90,7 +86,7 @@ You can edit pauses or weak parts out of the voiceover to trim it up. But if it 
 Fortunately, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/) comes equipped with video b-roll which is another great option. When using b-roll, it's better to use multiple shorter clips than one longer clip in most cases. But adding the same b-roll clip near the beginning and another section of the same b-roll clip, later on, should help you match the length of your narration to the video timeline.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/e4Nt2xXXtmE?si=CtKwFry4b0AJXnaN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Narration is a great storytelling device
@@ -102,7 +98,7 @@ Practice adding it to your videos to see how it adds depth and dimension to your
 It can also help make a connection with your audience because you can be relating to the images on the screen as they watch them. This is effective in building your YouTube audience.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UJJbj1vbzs8?si=X3zd8thLJKprfuEa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/LT4sdZgUvRQ?si=SvQD5FouEzu4UHpJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Always use a good mic
@@ -110,6 +106,10 @@ It can also help make a connection with your audience because you can be relatin
 When adding voiceover or narration to your project, be sure to use a good USB microphone. A good quality sound will elevate your entire project and just requires a little planning.
 
 ![use good microphone](https://images.wondershare.com/filmora/article-images/2022/11/use-good-microphone.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Also, be sure to check that your external microphone is selected when you start recording. There's nothing worse than nailing the perfect narration and realizing it was recorded with the built-in mic, not your USB microphone.
 
@@ -151,20 +151,22 @@ Filmora makes it easy to add narration of voice-overs to your video projects. Do
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-clips.techidaily.com/new-10-tiktok-sensations-dominating-twitter-for-2024/"><u>[New] 10 TikTok Sensations Dominating Twitter for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-unlock-the-best-places-to-explore-vector-artwork-at-no-cost/"><u>[New] 2024 Approved Unlock the Best Places to Explore Vector Artwork at No Cost</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-fabric-of-future-cutting-edge-vr-technology/"><u>[New] In 2024, The Fabric of Future Cutting-Edge VR Technology</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-initiate-impact-a-strategic-blueprint-for-setting-up-a-tech-reviews-channel-for-2024/"><u>[New] Initiate Impact A Strategic Blueprint for Setting Up a Tech Reviews Channel for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-digital-cinemas-on-iphone-apples-no1-freepluspaid-movie-app-guide/"><u>[Updated] 2024 Approved Digital Cinemas on iPhone Apple's No.1, FREE+PAID Movie App Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-pixel-perfecting-free-high-quality-mobile-photography-boost/"><u>[Updated] 2024 Approved Pixel Perfecting Free, High-Quality Mobile Photography Boost</u></a></li>
-<li><a href="https://fox-links.techidaily.com/updated-2024-approved-understanding-the-impact-of-nikon-d500s-4k-output/"><u>[Updated] 2024 Approved Understanding the Impact of Nikon D500's 4K Output</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/updated-harnessing-the-power-of-depth-perception-iphone-xs-advantage/"><u>[Updated] Harnessing the Power of Depth Perception IPhone X's Advantage</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-exquisite-makeup-moments-captured/"><u>[Updated] In 2024, Exquisite Makeup Moments Captured</u></a></li>
-<li><a href="https://tiktok-video-recordings.techidaily.com/updated-top-20-tiktok-anime-ideas-for-2024/"><u>[Updated] Top 20 TikTok Anime Ideas for 2024</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/facebooks-approach-for-automatic-youtube-video-playback-for-2024/"><u>Facebook's Approach for Automatic YouTube Video Playback for 2024</u></a></li>
-<li><a href="https://fix-guide.techidaily.com/how-to-flash-dead-vivo-g2-safely-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>How to Flash Dead Vivo G2 Safely | Dr.fone</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/in-2024-transforming-storytelling-into-cinematic-art/"><u>In 2024, Transforming Storytelling Into Cinematic Art</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/keep-older-systems-healthy-with-win10-improvements/"><u>Keep Older Systems Healthy with Win10 Improvements</u></a></li>
-<li><a href="https://article-tips.techidaily.com/transformative-strategies-for-podcast-rankings-and-visibility/"><u>Transformative Strategies for Podcast Rankings and Visibility</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/new-tweeting-videos-to-tweenish-animations-for-no-fee/"><u>[New] Tweeting Videos to Tweenish Animations for No Fee</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-expert-guides-to-mobile-screen-recording/"><u>[Updated] In 2024, Expert Guides to Mobile Screen Recording</u></a></li>
+<li><a href="https://article-tips.techidaily.com/bsplayer-9-pro-top-choice-for-streaming-for-2024/"><u>BSPlayer 9 Pro Top Choice for Streaming for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/budget-friendly-multiview-cameras-for-professional-use/"><u>Budget-Friendly Multiview Cameras for Professional Use</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/changing-the-face-of-healthcare-with-vr/"><u>Changing the Face of Healthcare with VR</u></a></li>
+<li><a href="https://article-tips.techidaily.com/dazzling-dynamics-the-essence-of-grading-aesthetics/"><u>Dazzling Dynamics The Essence of Grading Aesthetics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/deciphering-the-process-of-bulk-downloads-from-tiktoks-treasure-trove-for-2024/"><u>Deciphering the Process of Bulk Downloads From TikTok's Treasure Trove for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/direct-data-delivery-master-5-techniques-for-uploading-files-for-2024/"><u>Direct Data Delivery Master 5 Techniques for Uploading Files for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/dissecting-pickus-dominance-in-android-photo-editing-tools-for-2024/"><u>Dissecting PickU's Dominance in Android Photo Editing Tools for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevate-your-digital-presence-with-this-top-7-gear-list/"><u>Elevate Your Digital Presence with This Top 7 Gear List</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevating-your-video-posts-with-properly-uploaded-srt-files-for-2024/"><u>Elevating Your Video Posts with Properly Uploaded SRT Files for 2024</u></a></li>
+<li><a href="https://ai-vdieo-software.techidaily.com/fcp-x-essentials-how-to-achieve-flawless-green-screen-effects/"><u>FCP X Essentials How to Achieve Flawless Green Screen Effects</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-share-location-in-messenger-on-lava-blaze-curve-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Share Location in Messenger On Lava Blaze Curve 5G? | Dr.fone</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/launch-free-dvd-playback-capabilities-on-windowsmac-laptops/"><u>Launch Free DVD Playback Capabilities on Windows/Mac Laptops</u></a></li>
+<li><a href="https://driver-download.techidaily.com/1722974817511-seamless-driver-update-process-for-brother-mfc-7360n-on-windows-tips-and-tricks/"><u>Seamless Driver Update Process for Brother MFC-7360N on Windows - Tips & Tricks</u></a></li>
+<li><a href="https://ios-pokemon-go.techidaily.com/ultimate-guide-to-catch-the-regional-located-pokemon-for-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Ultimate Guide to Catch the Regional-Located Pokemon For Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://audio-editing.techidaily.com/updated-in-2024-the-comprehensive-technique-for-merging-diverse-auditory-elements/"><u>Updated In 2024, The Comprehensive Technique for Merging Diverse Auditory Elements</u></a></li>
 </ul></div>
 

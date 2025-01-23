@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] Unlocking Creativity  Seamless Integration of Title & Caption Overlays on Video Clips via Microsoft Photos\""
-date: 2025-01-09T19:08:43.278Z
-updated: 2025-01-16T19:59:41.234Z
+date: 2025-01-20T22:35:53.536Z
+updated: 2025-01-22T22:12:15.153Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/add-text-photos-app.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nlwr9LjJ-ng?si=I6UNAtfBkY2FTceu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * You may also add the image from the project library to the storyboard if you cannot find the image in the preset categories
@@ -56,16 +56,12 @@ Do you wish to add titles/text to video on Photos in Windows 10 for your video p
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/resize-photos-app.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * To add titles/text to video on Photos in Windows 10 that perfectly match the background, type out the title in the text box at the top right corner
 * Select the best-animated text fonts to suit the background. There are different layouts for each of the font style. Preview the animation by using Playback Control. If the text is not animating, you may try to increase the duration to 3-4 seconds that works well
 * For addition of credits, try to use the Classic text style. Put each of the credits in a new line and do give credits to yourself as well
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FLlUft1ZxI0?si=pBd5QdHEE27qsNlN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aG3NRuHrIJg?si=HwzwD0RXmrzIXX1V" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to Make Text Move in Windows 10 Photos App
@@ -80,7 +76,7 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/effects-photos.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/7JBG_O3Vnh4?si=lUO0fta6YPJ50qjg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 * Some of the effects might not have the option to move or anchor but if you choose the one that does allow moving of texts, you get an option to attach once you select it
@@ -93,17 +89,21 @@ The Photos app in Windows 10 is even easier than the old Windows Movie Maker. Yo
 
 ![add titles/text to video on photos in windows 10](https://images.wondershare.com/filmora/article-images/edit-text-photos.jpg)
 
-* Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MPoakxUNf9o?si=S-ppSqzHzN9VrxC7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aYH0B2HqcIM?si=3fkoG85L6hAeB4ok" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+* Start experiment by rotating the wheels, dragging the handles to resize, and anchoring for linking up the animation at different points within the video
 
 ## Conclusion
 
 To add titles/text to video on Photos in Windows 10 and to make the text move with the Windows 10 Photos app, follow the above steps and get going easily. The steps are really simple and you just need to understand and apply the steps for successfully adding texts to your videos.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/GPk8_xpN_rA?si=YbAdgsjAKsCn_UsB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -130,18 +130,19 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-prime-20-anime-openers-soundscape/"><u>[New] 2024 Approved Prime 20 Anime Openers' Soundscape</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-leading-device-editors-for-app-development-art/"><u>[New] Leading Device Editors for App Development Art</u></a></li>
-<li><a href="https://facebook-clips.techidaily.com/new-retrospective-facebook-viewing-techniques-for-laptops-and-phones/"><u>[New] Retrospective Facebook Viewing Techniques for Laptops and Phones</u></a></li>
-<li><a href="https://article-helps.techidaily.com/updated-asmrs-role-in-better-nights-expert-vocal-guides-for-2024/"><u>[Updated] ASMR's Role in Better Nights Expert Vocal Guides for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-how-to-download-youtube-srt-subtitles-with-3-actionable-ways/"><u>[Updated] In 2024, How to Download YouTube SRT Subtitles with 3 Actionable Ways?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-standout-reddit-content-an-exclusive-look-at-top-10-threads/"><u>[Updated] In 2024, Standout Reddit Content An Exclusive Look at Top 10 Threads</u></a></li>
-<li><a href="https://blog-min.techidaily.com/easiest-guide-how-to-clone-tecno-spark-10c-phone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>Easiest Guide How to Clone Tecno Spark 10C Phone? | Dr.fone</u></a></li>
-<li><a href="https://location-social.techidaily.com/how-to-leave-a-life360-group-on-xiaomi-redmi-note-13-proplus-5g-without-anyone-knowing-drfone-by-drfone-virtual-android/"><u>How To Leave a Life360 Group On Xiaomi Redmi Note 13 Pro+ 5G Without Anyone Knowing? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-how-to-create-unique-ringtone-experiences-on-iphone/"><u>In 2024, How to Create Unique Ringtone Experiences on iPhone</u></a></li>
-<li><a href="https://driver-install.techidaily.com/optimize-performance-nvidia-gtx-970-driver-updates-wins/"><u>Optimize Performance: Nvidia GTX 970 Driver Updates Wins</u></a></li>
-<li><a href="https://hardware-tips.techidaily.com/strawberry-scented-pink-thermal-compound-a-match-with-extrememugurisu-4g-for-top-notch-cooling/"><u>Strawberry Scented Pink Thermal Compound: A Match with ExtremeMUGURISU 4G for Top-Notch Cooling</u></a></li>
-<li><a href="https://android-pokemon-go.techidaily.com/top-15-augmented-reality-games-like-pokemon-go-to-play-on-oppo-find-n3-flip-drfone-by-drfone-virtual-android/"><u>Top 15 Augmented Reality Games Like Pokémon GO To Play On Oppo Find N3 Flip | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/transformative-camera-movements-your-guide-to-ken-burns-in-camtasa-for-2024/"><u>Transformative Camera Movements Your Guide to Ken Burns in Camtasa for 2024</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/new-temporaryfreeze-immediate-recording-guide-for-2024/"><u>[New] TemporaryFreeze Immediate Recording Guide for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-androidiphone-top-10-vr-gaming-picks/"><u>2024 Approved Android/iPhone Top 10 VR Gaming Picks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-craft-images-with-orbital-soft-edge-psx-tech/"><u>2024 Approved Craft Images with Orbital Soft Edge PSX Tech</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-deciphering-the-process-of-bulk-downloads-from-tiktoks-treasure-trove/"><u>2024 Approved Deciphering the Process of Bulk Downloads From TikTok's Treasure Trove</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-enhancing-quick-transfer-of-massive-videos-between-ios-and-macos/"><u>2024 Approved Enhancing Quick Transfer of Massive Videos Between iOS & macOS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/2024-approved-pros-recommendations-for-free-and-paid-drawing-software-on-pc/"><u>2024 Approved Pro's Recommendations for Free & Paid Drawing Software on PC</u></a></li>
+<li><a href="https://article-tips.techidaily.com/audiophiles-guide-to-the-premier-8-4k-blu-rays-for-2024/"><u>Audiophile's Guide to the Premier 8 4K Blu-Rays for 2024</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-top-10-nubia-red-magic-9-pro-android-sim-unlock-apk-by-drfone-android/"><u>In 2024, Top 10 Nubia Red Magic 9 Pro Android SIM Unlock APK</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/step-by-step-guide-to-the-best-iphone-virtual-reality-gaming-for-2024/"><u>Step-by-Step Guide to the Best iPhone Virtual Reality Gaming for 2024</u></a></li>
+<li><a href="https://fox-info.techidaily.com/streamlining-your-video-editing-with-device-filters/"><u>Streamlining Your Video Editing with Device Filters</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/tailoring-your-whatsapp-ringtone-for-ios-and-android-devices-for-2024/"><u>Tailoring Your WhatsApp Ringtone for iOS and Android Devices for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/top-rated-document-and-photo-scanners-in-2n24-your-ultimate-guide/"><u>Top-Rated Document & Photo Scanners in 2N24 - Your Ultimate Guide</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/ultimate-guide-eliminating-latency-in-dota-2-gaming/"><u>Ultimate Guide: Eliminating Latency in Dota 2 Gaming</u></a></li>
+<li><a href="https://graphic-issues.techidaily.com/windows-11-amd-radeon-hd-6950-updated-driver-now-available/"><u>Windows 11: AMD Radeon HD 6950 Updated Driver Now Available</u></a></li>
 </ul></div>
 

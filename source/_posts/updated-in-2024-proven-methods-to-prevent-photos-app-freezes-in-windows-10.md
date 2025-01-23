@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Proven Methods to Prevent Photos App Freezes in Windows 10"
-date: 2025-01-12T20:28:00.511Z
-updated: 2025-01-16T18:01:35.940Z
+date: 2025-01-18T21:02:36.186Z
+updated: 2025-01-22T17:38:27.796Z
 tags: 
   - screen-recording
   - ai video
@@ -45,14 +45,10 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1KKovVi9epE?si=EF7KA7b4KsEpWA-M" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5OmJZ4Z8jgk?si=YIoEaPI8geoiFSYE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -67,7 +63,7 @@ Here is how to troubleshoot –
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/FATJWpNYmio?si=72ugPTb3vJXz6cAM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
@@ -84,6 +80,10 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 ### Solution 3: Reset it
@@ -96,10 +96,6 @@ Here is how can you reset it –
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Solution 4: Repair Photos App package
 
 A corrupted Photos App package might wreak havoc in your photo viewing, as the app doesn’t buzz follow your commands. The least you can do here is repair the package to fix minor glitches within and get it going.
@@ -110,10 +106,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 2. Key in the command followed by ‘Enter’: Get-AppXPackage -AllUsers | Foreach {Add-AppxPackage -DisableDevelopmentMode -Register “$($\_.InstallLocation)\\AppXManifest.xml”}
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 5: Reinstall Windows 10 Photos app
 
@@ -132,7 +124,15 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Shanoon Cox
 
@@ -159,19 +159,21 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-cloud.techidaily.com/new-2024-approved-professional-edge-with-free-best-premiere-pro-resources/"><u>[New] 2024 Approved Professional Edge with FREE, Best Premiere Pro Resources</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-funny-ringtones-where-to-download-them/"><u>[New] Funny Ringtones Where to Download Them?</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-live-video-responses-on-twitter-your-ultimate-how-to-manual/"><u>[Updated] In 2024, Live Video Responses on Twitter Your Ultimate How-To Manual</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-perfecting-the-introduction-writing-impressive-summaries/"><u>[Updated] In 2024, Perfecting the Introduction Writing Impressive Summaries</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-turn-off-youtube-sneak-peek-embrace-uninterrupted-watching/"><u>[Updated] Turn Off YouTube Sneak Peek, Embrace Uninterrupted Watching</u></a></li>
-<li><a href="https://twitter-videos.techidaily.com/updated-twitch-out-streaming-twitters-hd-visuals-seamlessly-for-2024/"><u>[Updated] Twitch Out Streaming Twitter's HD Visuals Seamlessly for 2024</u></a></li>
-<li><a href="https://youtube-video-recordings.techidaily.com/engineering-captivating-video-teasers-for-online-presence/"><u>Engineering Captivating Video Teasers for Online Presence</u></a></li>
-<li><a href="https://article-tips.techidaily.com/filmoras-pathway-to-convert-video-avi-files-into-image-gif/"><u>Filmora’s Pathway to Convert Video (AVI) Files Into Image (GIF)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/gag-galore-a-treasury-of-no-cost-memes-for-2024/"><u>Gag Galore A Treasury of No-Cost Memes for 2024</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-dose-life360-notify-me-when-someone-checks-my-location-on-tecno-spark-go-2023-drfone-by-drfone-virtual-android/"><u>In 2024, Dose Life360 Notify Me When Someone Checks My Location On Tecno Spark Go (2023)? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-ranking-top-tools-convert-srt-files-with-zero-charge/"><u>In 2024, Ranking Top Tools Convert Srt Files with Zero Charge</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-top-11-free-apps-to-check-imei-on-honor-magic-v2-phones-by-drfone-android/"><u>In 2024, Top 11 Free Apps to Check IMEI on Honor Magic V2 Phones</u></a></li>
-<li><a href="https://fox-cloud.techidaily.com/in-2024-transforming-images-a-deep-dive-into-these-7-grading-styles/"><u>In 2024, Transforming Images A Deep Dive Into These 7 Grading Styles</u></a></li>
-<li><a href="https://win-able.techidaily.com/star-wars-jedi-fallen-order-wont-open-now-it-does/"><u>Star Wars Jedi: Fallen Order Won't Open - Now It Does</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/new-decoding-the-meaning-and-usage-facebooks-icon-in-chat-for-2024/"><u>[New] Decoding the Meaning and Usage Facebook's Icon in Chat for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/updated-harnessing-the-power-combine-zoom-and-google-mail/"><u>[Updated] Harnessing the Power Combine Zoom & Google Mail</u></a></li>
+<li><a href="https://article-tips.techidaily.com/blueprints-to-hiring-creative-cinematographers/"><u>Blueprints to Hiring Creative Cinematographers</u></a></li>
+<li><a href="https://extra-information.techidaily.com/bringing-smiles-without-dollars-the-mememakers-way/"><u>Bringing Smiles without Dollars – The MemeMaker’s Way</u></a></li>
+<li><a href="https://article-tips.techidaily.com/color-keying-101-the-easy-guide-to-digital-backdrops-and-filming-for-2024/"><u>Color Keying 101 The Easy Guide to Digital Backdrops and Filming for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/colorize-your-flight-dji-miniair-drone-visuals-at-no-cost/"><u>Colorize Your Flight – DJI Mini/Air Drone Visuals at No Cost</u></a></li>
+<li><a href="https://article-tips.techidaily.com/conquer-youtube-photos-an-experts-step-by-step-guide/"><u>Conquer YouTube Photos An Expert's Step-by-Step Guide</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/decoding-the-401-unauthorized-bug-tactics-to-restore-access-successfully/"><u>Decoding the 401 Unauthorized Bug: Tactics to Restore Access Successfully</u></a></li>
+<li><a href="https://article-tips.techidaily.com/differences-between-standard-360-and-vr-content-for-2024/"><u>Differences Between Standard 360° & VR Content for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discover-the-full-screen-fusion-potential-with-sierras-multimedia-capabilities/"><u>Discover the Full-Screen Fusion Potential with Sierra's Multimedia Capabilities</u></a></li>
+<li><a href="https://article-tips.techidaily.com/duel-of-the-camcorders-gopros-black-versus-sony-fdr-x1000v-for-2024/"><u>Duel of the Camcorders GoPro's Black Versus Sony FDR-X1000V for 2024</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-infinix-note-30-vip-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Infinix Note 30 VIP?</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-y77t-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo Y77t Phone</u></a></li>
+<li><a href="https://article-helps.techidaily.com/in-2024-htc-vive-the-pinnacle-of-immersive-3d-playing-experiences/"><u>In 2024, HTC Vive The Pinnacle of Immersive 3D Playing Experiences</u></a></li>
+<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-itel-a05s-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Itel A05s</u></a></li>
+<li><a href="https://games-able.techidaily.com/optimizing-your-mac-gaming-with-apples-innovative-game-mode-feature-in-sonoma-os/"><u>Optimizing Your Mac Gaming with Apple’s Innovative Game Mode Feature in Sonoma OS</u></a></li>
 </ul></div>
 

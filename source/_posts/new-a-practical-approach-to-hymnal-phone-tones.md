@@ -1,7 +1,7 @@
 ---
 title: "[New] A Practical Approach to Hymnal Phone Tones"
-date: 2025-01-10T19:37:24.503Z
-updated: 2025-01-16T18:53:51.865Z
+date: 2025-01-17T20:09:53.257Z
+updated: 2025-01-22T22:33:34.151Z
 tags: 
   - screen-recording
   - ai video
@@ -37,6 +37,10 @@ Let’s get going with our article!
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 4 Websites for Downloading Christian Ringtones
 
 YouTube is a great video resource for finding relaxing and energizing Christian music videos, and you'll learn to extract audio from the video later in the article. But there are many other extensive audio resources to **download Christian ringtones** that we’ve mentioned below:
@@ -46,6 +50,10 @@ YouTube is a great video resource for finding relaxing and energizing Christian 
 Zedge is a unique site for **downloading Christian ringtones** for free. However, you can also access premium content on Zedge by using credits or watching ads. Its app is available on iOS and Android, where you can access live and static wallpapers, short games, and many more personalization tools.
 
 ![zedge christian ringtones](https://images.wondershare.com/filmora/article-images/2023/03/zedge-christian-ringtones.PNG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Richness & Access**
 
@@ -67,31 +75,23 @@ MoboCup has become a familiar name for **downloading Christian ringtones** and h
 
 ![mobo cup christian ringtones](https://images.wondershare.com/filmora/article-images/2023/03/mobo-cup-christian-ringtones.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/djPqRkskaBo?si=O6FEI-KVW0HwN417" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 To show your creative skills, you can upload your custom-made content. Here’s how you can do it:
 
 Step1 First, open a browser on your PC or phone and head to MoboCup's site.
 
 ![mobo cup upload christian ringtones](https://images.wondershare.com/filmora/article-images/2023/03/mobo-cup-upload-christian-ringtones.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NTQGoOOiJzs?si=zbZwflEfXgBY3qbs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Create an account by signing up, then log into your account and choose **“Select File.”**
 
 ![mobo cup select file christian ringtones](https://images.wondershare.com/filmora/article-images/2023/03/mobo-cup-select-file-christian-ringtones.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zmXpl6irBYk?si=BXjGpQr6PXFcqhCI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 In this step, select a file you want to upload. Enter **“Title”** and **“Tags”** related to the file. Finally, click **“Upload,”** and that’s about it!
 
 ![mobo cup title tags upload christian ringtone](https://images.wondershare.com/filmora/article-images/2023/03/mobo-cup-title-tags-upload-christian-ringtone.PNG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/mHFtYJppXFk?si=ylFaAT4nXqCmlV8F" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Richness & Access**
 
@@ -124,19 +124,11 @@ The ringtones on the site are divided into two main groups; “New Ringtones” 
 * Christmas Verses
 * Holy
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [ProKerala](https://www.prokerala.com/downloads/ringtones/download.php?id=18437)
 
 ProKerala is the go-to choose for users to download free **Christian ringtones** due to its user-friendly interface. Not only that, but you can also access features like numerology, movies, videos, cars, bikes, and more on the site.
 
 ![pro kerala christian ringtones](https://images.wondershare.com/filmora/article-images/2023/03/pro-kerala-christian-ringtones.PNG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cC-HtDQVoG0?si=nQcoa7q8q2IL8U0m" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Richness & Access**
 
@@ -173,10 +165,6 @@ Step2 Drag the video files to the **“Timeline Panel”** at the bottom. Next, 
 
 ![detach audio filmora](https://images.wondershare.com/filmora/article-images/2023/03/detach-audio-filmora.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uSfA74aeYeA?si=HdJSMdeS7HVtS6-j" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Next up, right-click a particular audio file whose silent parts you want to remove and select **“Silence Detection.”** Here, a window will open up, showing three parameters; **“Threshold,” “Minimum Silence,” and “Buffer,”** which you can adjust using the slider.
 
 Now, click **“Start”** to initiate automatic silence detection for eliminating all the silent parts.
@@ -192,6 +180,10 @@ Step5 Next, trim the file to reduce its length. To do this, click on the file, a
 Step6 In the last step, click **“Create”** and hit the **“Export”** button to save the custom Christian ringtone on the desired location on your PC. Now, transfer the **Christian ringtone** to your phone using a USB cable or sync the file using Google Drive or any other cloud service.
 
 ![export christian ringtone filmora](https://images.wondershare.com/filmora/article-images/2023/03/export-christian-ringtone-filmora.PNG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/oP8grXxuy2o?si=uIRNhTYbecTcaC7J" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 And you are done! If you want to know more about Filmora’s fantastic features, you can watch the video below!
 
@@ -221,6 +213,10 @@ Hopefully, you appreciated our article and can now find and create exceptional p
 
 YouTube is a great video resource for finding relaxing and energizing Christian music videos, and you'll learn to extract audio from the video later in the article. But there are many other extensive audio resources to **download Christian ringtones** that we’ve mentioned below:
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/W5aJC8okA8s?si=L2rnYAp-gmGlLQSf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ### [Zedge](https://www.zedge.net/find/ringtones/christian)
 
 Zedge is a unique site for **downloading Christian ringtones** for free. However, you can also access premium content on Zedge by using credits or watching ads. Its app is available on iOS and Android, where you can access live and static wallpapers, short games, and many more personalization tools.
@@ -241,19 +237,11 @@ Zedge has a rich and easy-to-access **Christian ringtone** section.
 * Holy Spirit
 * Verses
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### [MoboCup](https://mobcup.one/ringtones/merry-christmas)
 
 MoboCup has become a familiar name for **downloading Christian ringtones** and high-quality wallpapers with an option to “Favorite” your most-desired tones to access them in the future. In addition, you can share the **Christian ringtones** using social media channels like Facebook, Twitter, LinkedIn, etc.
 
 ![mobo cup christian ringtones](https://images.wondershare.com/filmora/article-images/2023/03/mobo-cup-christian-ringtones.PNG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 To show your creative skills, you can upload your custom-made content. Here’s how you can do it:
 
@@ -265,13 +253,13 @@ Step2 Create an account by signing up, then log into your account and choose **�
 
 ![mobo cup select file christian ringtones](https://images.wondershare.com/filmora/article-images/2023/03/mobo-cup-select-file-christian-ringtones.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/NC0rdKEQ98o?si=HYgqC8CxF_WTO5if" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 In this step, select a file you want to upload. Enter **“Title”** and **“Tags”** related to the file. Finally, click **“Upload,”** and that’s about it!
 
 ![mobo cup title tags upload christian ringtone](https://images.wondershare.com/filmora/article-images/2023/03/mobo-cup-title-tags-upload-christian-ringtone.PNG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Richness & Access**
 
@@ -291,6 +279,10 @@ The site offers many alert tones, notification sounds, and **Christian ringtones
 Tones 7 is a plain and simple site for **downloading Christian ringtones** and wallpapers that, too, are free of cost. Every ringtone has a short description written with it to explain its primary theme. But ads ruin the downloading experience!
 
 ![tones 7 christian ringtones](https://images.wondershare.com/filmora/article-images/2023/03/tones-7-christian-ringtones.PNG)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 **Richness & Access**
 
@@ -318,10 +310,6 @@ Step1 Head to ProKerala’s site and click **“Upload Ringtones.”**
 
 ![upload ringtones prokerala](https://images.wondershare.com/filmora/article-images/2023/03/upload-ringtones-prokerala.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Choose files and fill out a form to describe the file. Next, click **“Submit Ringtone,”** and you’re done!
 
 ![submit ringtone pro kerala](https://images.wondershare.com/filmora/article-images/2023/03/submit-ringtone-pro-kerala.PNG)
@@ -334,6 +322,10 @@ Step2 Choose files and fill out a form to describe the file. Next, click **“Su
 * Church Chimes
 * Contemporary Worship
 * Gospel
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## How To Create Custom Christian Ringtones By Yourself?
 
@@ -367,6 +359,10 @@ Step6 In the last step, click **“Create”** and hit the **“Export”** butt
 
 And you are done! If you want to know more about Filmora’s fantastic features, you can watch the video below!
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c17xsnbinCQ?si=xHKslFgC3QbxY4qW" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## Bonus: How To Set Personalized Ringtones for Android and iPhone?
 
 After making a **customized Christian ringtone** using Wondershare Filmora, the next task is to set it as your Android or iPhone ringtone. You can also save a Christian YouTube video as a ringtone on your device.
@@ -380,6 +376,10 @@ A Detailed Guidance: How To Change Or Customize Your Ringtone On An iPhone
 Customize the Ringtone on Android:
 
 A Detailed Guidance: How To Change Or Customize Your Ringtone On An iPhone
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/BR4gsW-J7as?si=9a56UDKZKhREZnwz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -413,18 +413,24 @@ Hopefully, you appreciated our article and can now find and create exceptional p
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-elevating-engagement-with-expert-level-niche-creators-for-2024/"><u>[New] Elevating Engagement with Expert-Level Niche Creators for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-professionals-choice-best-top-10-4k-monitors/"><u>[New] Professional's Choice Best Top 10 4K Monitors</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-visual-mastery-premier-cameras-for-professional-use/"><u>[New] Visual Mastery Premier Cameras for Professional Use</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-chucklebox-top-meme-generator/"><u>[Updated] In 2024, ChuckleBox - Top Meme Generator</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-step-by-step-build-your-own-google-cardboard-vr-setup/"><u>[Updated] In 2024, Step-by-Step Build Your Own Google Cardboard VR Setup</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-maximize-your-tiktok-pro-editors-playbook-for-2024/"><u>[Updated] Maximize Your TikTok Pro Editor's Playbook for 2024</u></a></li>
-<li><a href="https://snapchat-videos.techidaily.com/updated-unraveling-the-mystery-what-hides-in-snapchat-emoji-meanings/"><u>[Updated] Unraveling the Mystery What Hides in Snapchat Emoji Meanings?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-virtual-frontier-top-pc-vr-headset-innovations-of-the-year-for-2024/"><u>[Updated] Virtual Frontier Top PC VR Headset Innovations of the Year for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/10-best-agricultural-games-for-group-fun-for-2024/"><u>10 Best Agricultural Games for Group Fun for 2024</u></a></li>
-<li><a href="https://android-location.techidaily.com/10-free-location-spoofers-to-fake-gps-location-on-your-itel-p40plus-drfone-by-drfone-virtual/"><u>10 Free Location Spoofers to Fake GPS Location on your Itel P40+ | Dr.fone</u></a></li>
-<li><a href="https://video-screen-grab.techidaily.com/2024-approved-oneclickfreeze-easy-screen-recording-quit/"><u>2024 Approved OneClickFreeze Easy Screen Recording Quit</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/maximize-your-indoor-viewing-with-the-amplified-hd-antenna-from-1byone-digital-top-budget-pick-reviewed/"><u>Maximize Your Indoor Viewing with the Amplified HD Antenna From 1byOne Digital - Top Budget Pick Reviewed</u></a></li>
-<li><a href="https://common-error.techidaily.com/what-to-do-if-you-cant-delete-text-a-guide-to-fixing-backspace-issues/"><u>What to Do If You Can't Delete Text – A Guide to Fixing Backspace Issues</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-2024-approved-quick-launch-diving-into-live-conversations-on-instagram/"><u>[New] 2024 Approved Quick Launch Diving Into Live Conversations on Instagram</u></a></li>
+<li><a href="https://youtube-docs.techidaily.com/uick-transition-from-original-pictures-to-standout-youtube-thumbnails/"><u>[New] Quick Transition From Original Pictures To Standout YouTube Thumbnails</u></a></li>
+<li><a href="https://facebook-video-content.techidaily.com/updated-2023-how-to-make-facebook-videos-full-screen-in-2024/"><u>[Updated] 2023 | How to Make Facebook Videos Full Screen, In 2024</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-cheap-vr-headsets-from-china/"><u>[Updated] Cheap VR Headsets From China?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-vr-equipment-enhancing-flight-control/"><u>Best VR Equipment Enhancing Flight Control</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crafting-a-plan-to-locate-breathtaking-photos-in-minutes-on-pexels-for-2024/"><u>Crafting a Plan to Locate Breathtaking Photos in Minutes on Pexels for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/creating-emotional-depth-scriptwriting-tips-for-2024/"><u>Creating Emotional Depth Scriptwriting Tips for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/crossplatform-vmix-conductor/"><u>CrossPlatform VMix Conductor</u></a></li>
+<li><a href="https://article-tips.techidaily.com/decreasing-decibits-gradually-for-calm-soundscapes-in-lumafusion/"><u>Decreasing Decibits Gradually for Calm Soundscapes in Lumafusion</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discovering-your-perfect-vr-experience-should-you-choose-mobile-freedom-or-connectivity-with-tethers/"><u>Discovering Your Perfect VR Experience Should You Choose Mobile Freedom or Connectivity with Tethers?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/dji-flight-packages-essential-premium-high-definition-pro/"><u>DJI Flight Packages Essential, Premium, High Definition Pro</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevate-your-experience-with-windows-11-games-for-2024/"><u>Elevate Your Experience with Windows 11 Games for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/elevating-enthrallment-yt-storytellers-to-track-in-23/"><u>Elevating Enthrallment YT Storytellers to Track in '23</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/enhancing-online-safety-combining-chatgpt-with-a-vpn/"><u>Enhancing Online Safety: Combining ChatGPT with a VPN?</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/heroic-duel-noir-knights-vs-aurora-guardians-for-2024/"><u>Heroic Duel Noir Knights Vs Aurora Guardians for 2024</u></a></li>
+<li><a href="https://iphone-unlock.techidaily.com/in-2024-how-to-unlock-iphone-15-pro-max-passcode-without-itunes-without-knowing-passcode-drfone-by-drfone-ios/"><u>In 2024, How to Unlock iPhone 15 Pro Max Passcode without iTunes without Knowing Passcode? | Dr.fone</u></a></li>
+<li><a href="https://technical-tips.techidaily.com/leverage-the-power-of-google-assistant-on-pc-easy-setup-and-usage-guide/"><u>Leverage the Power of Google Assistant on PC: Easy Setup and Usage Guide</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-6-appsservices-to-trace-any-realme-12-proplus-5g-location-by-mobile-number-drfone-by-drfone-virtual-android/"><u>Top 6 Apps/Services to Trace Any Realme 12 Pro+ 5G Location By Mobile Number | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/why-your-whatsapp-location-is-not-updating-and-how-to-fix-on-itel-p55-drfone-by-drfone-virtual-android/"><u>Why Your WhatsApp Location is Not Updating and How to Fix On Itel P55 | Dr.fone</u></a></li>
 </ul></div>
 

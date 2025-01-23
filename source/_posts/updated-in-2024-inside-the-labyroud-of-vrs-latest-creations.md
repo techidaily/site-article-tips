@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Inside the Labyroud of VR's Latest Creations"
-date: 2025-01-04T18:58:51.775Z
-updated: 2025-01-11T02:11:42.463Z
+date: 2025-01-19T00:36:01.062Z
+updated: 2025-01-22T17:10:13.722Z
 tags: 
   - screen-recording
   - ai video
@@ -32,7 +32,7 @@ thumbnail: https://thmb.techidaily.com/3c44f0be88269dfe58e87652a332c52a578262780
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/K7fATC_lI7o?si=UFotPJqflDRZr-mv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Dn-24B6AURY?si=ErES2KWVnintY6h9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## What’s the popular VR platforms and what is developing fast?
@@ -45,7 +45,7 @@ thumbnail: https://thmb.techidaily.com/3c44f0be88269dfe58e87652a332c52a578262780
  )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-G7cU8dYvuI?si=JaKqRcW6qq9CDvty" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## The VR gaming development is truly rising then
@@ -54,13 +54,13 @@ thumbnail: https://thmb.techidaily.com/3c44f0be88269dfe58e87652a332c52a578262780
 
 ![vr-gaming ](https://images.wondershare.com/filmora/resource/vr-gaming1.jpg )
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/9sk53d1bBhY?si=yaTeDogLb3D4dYu1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
  This clears the air that VR is turning to be an emerging platform for the European game developers but, which one is preferred more by the professional game developers – is it the Oculus Rift or HTC Vive or something else for that matter? The survey also includes a detailed report on that as well. Asking about which VR platform they are using – 23.1 percent developers said they are using Rift, Vive is slightly behind with 22 percent developers’ preferences. There is PlayStation VR headset as well with 11.8 percent preferences.
 
  However, despite having such acceptance by the professional game developers, the confidence for the VR games market seems to have dropped a bit – at least the recent survey is showing something like that. Last year, 71.7 percent of the game developers considered VR to be a sustainable long-term market while in this year, it slipped a little with 68.8 percent developers are thinking VR could be a long sustaining gaming market.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/-Bov2KfWQ_Y?si=MnVczisgeJ-sGW2r" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## About the European VR game makers and their funding
 
@@ -69,7 +69,7 @@ thumbnail: https://thmb.techidaily.com/3c44f0be88269dfe58e87652a332c52a578262780
 ![ vr-developer](https://images.wondershare.com/filmora/resource/vr-developer.jpg )
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/kiW7sLvL65k?si=IHSeRFsYCrfqpn2o" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
  We know that crowdsourced funding is also a preferable way to manage funds but, this seems not very convenient for the VR game developers since a very poor percentage (5.2) of the developers replied that they are working on games the fund of which is crowdsourced. While some developers consider this as an awful idea, some mentioned this to be a tricky process.
@@ -79,7 +79,7 @@ thumbnail: https://thmb.techidaily.com/3c44f0be88269dfe58e87652a332c52a578262780
 ![author avatar](https://lh5.googleusercontent.com/-AIMmjowaFs4/AAAAAAAAAAI/AAAAAAAAABc/Y5UmwDaI7HU/s250-c-k/photo.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GFHH14XlFCk?si=2HcjQbDx5eG0ZQAt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/YpnYKIrpgZQ?si=94zicAHp1CH-0oso" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Liza Brown
@@ -107,17 +107,18 @@ Follow @Liza Brown
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-complete-dynamics-review-2023/"><u>[New] Complete Dynamics Review 2023</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-curated-collection-of-top-tamil-ringtone-downloads-platforms/"><u>[New] Curated Collection of Top Tamil Ringtone Downloads Platforms</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/new-empower-your-viewing-experience-with-funimate/"><u>[New] Empower Your Viewing Experience with Funimate</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-artisans-nexus-reports-in-depth-studio-scrutiny-2023-edition/"><u>[New] In 2024, Artisan's Nexus Reports In-Depth Studio Scrutiny, 2023 Edition</u></a></li>
-<li><a href="https://facebook-video-recording.techidaily.com/updated-explore-our-1-ranked-facebook-video-downloading-apps-for-ios/"><u>[Updated] Explore Our #1 Ranked Facebook Video Downloading Apps for iOS</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-melodic-milestinas-where-to-find-elegant-mobile-alerts/"><u>[Updated] In 2024, Melodic Milestinas Where to Find Elegant Mobile Alerts</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-the-key-to-attracting-views-youtube-image-marketing/"><u>[Updated] The Key to Attracting Views YouTube Image Marketing</u></a></li>
-<li><a href="https://ai-video-translation.techidaily.com/2024-approved-top-10-ai-subtitle-translators-for-content-creators-that-anyone-can-use/"><u>2024 Approved Top 10 AI Subtitle Translators for Content Creators That Anyone Can Use</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/how-to-remove-a-previously-synced-google-account-from-your-vivo-s17-by-drfone-android/"><u>How to Remove a Previously Synced Google Account from Your Vivo S17</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-honor-x9b-phone-with-broken-screen-by-drfone-android/"><u>In 2024, How to Unlock Honor X9b Phone with Broken Screen</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/reviews-economical-and-reliable-194ghz-dual-band-tp-link-re200-wifi-range-extender/"><u>Reviews: Economical and Reliable 1,9/4GHz Dual Band TP-Link RE200 WiFi Range Extender</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/what-you-need-to-know-amazfit-helio-rings-price-point-availability-date-and-full-tech-specs-explained/"><u>What You Need to Know: Amazfit Helio Ring's Price Point, Availability Date, and Full Tech Specs Explained</u></a></li>
+<li><a href="https://article-posts.techidaily.com/new-essential-strategies-for-effective-use-of-luts-in-video-edits/"><u>[New] Essential Strategies for Effective Use of LUTs in Video Edits</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-how-to-seamlessly-download-and-install-movie-maker-6/"><u>[New] How to Seamlessly Download and Install Movie Maker 6</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-elite-interactive-web-summit-title/"><u>[New] In 2024, Elite Interactive Web Summit Title</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-smile-saver-essential-free-meme-templates/"><u>[New] Smile Saver Essential Free Meme Templates</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-streaming-selection-saga-choose-between-engaging-podcasts-and-youtube-channels/"><u>[Updated] 2024 Approved Streaming Selection Saga Choose Between Engaging Podcasts and YouTube Channels</u></a></li>
+<li><a href="https://blue-screen-error.techidaily.com/expert-guide-overcoming-windows-10-bsod-how-to-address-critical-process-died-mishaps-effectively/"><u>Expert Guide: Overcoming Windows 10 BSOD – How to Address Critical Process Died Mishaps Effectively</u></a></li>
+<li><a href="https://article-tips.techidaily.com/free-srt-conversion-uncover-top-8-online-options/"><u>Free SRT Conversion Uncover Top 8 Online Options</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-how-to-record-internet-radio-a-simple-guide/"><u>In 2024, How To Record Internet Radio - A Simple Guide</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-remove-or-bypass-knox-enrollment-service-on-samsung-galaxy-xcover-7-by-drfone-android/"><u>In 2024, How To Remove or Bypass Knox Enrollment Service On Samsung Galaxy XCover 7</u></a></li>
+<li><a href="https://apple-account.techidaily.com/in-2024-your-account-has-been-disabled-in-the-app-store-and-itunes-on-iphone-6-by-drfone-ios/"><u>In 2024, Your Account Has Been Disabled in the App Store and iTunes On iPhone 6?</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/in-depth-look-at-newly-released-gen-3-airpods-from-apple-spotlighting-key-upgrades/"><u>In-Depth Look at Newly Released Gen 3 AirPods From Apple: Spotlighting Key Upgrades</u></a></li>
+<li><a href="https://review-topics.techidaily.com/quick-fixes-to-repair-microsoft-excel-2010-content-related-error-by-stellar-guide/"><u>Quick Fixes to Repair Microsoft Excel 2010 Content related error</u></a></li>
+<li><a href="https://article-tips.techidaily.com/zooming-into-facebook-live-with-ease-using-zoom/"><u>Zooming Into Facebook Live with Ease Using Zoom</u></a></li>
 </ul></div>
 

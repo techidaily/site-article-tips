@@ -1,7 +1,7 @@
 ---
 title: "[New] Master Windows 10'S Native Features to Cut Videos Instantly"
-date: 2025-01-12T19:43:27.508Z
-updated: 2025-01-16T19:22:14.265Z
+date: 2025-01-15T20:17:17.559Z
+updated: 2025-01-22T22:09:30.810Z
 tags: 
   - screen-recording
   - ai video
@@ -39,7 +39,7 @@ The in-built editor in Windows 10 Photos can do that for you. Through this artic
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xIP8ktrmOdg?si=zRnjbGzM6PDx2jCq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/HMuxjTCMX2E?si=ylRTMJuUstpjLsZc" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 1: How to trim video in Windows 10 Photos
@@ -54,18 +54,18 @@ Here is how to trim videos in [Windows 10 Photos](https://www.microsoft.com/en-u
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/photos-trim.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/0dOfcihxjiw?si=_fkp1S1Uw0N1dp6b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 **Step 3**: On the bottom part of the screen, there are three circles. The start and end of the markers clips are represented by two small white circles. For chopping off the unwanted portions you need to drag and adjust the marker circles. The movement of markers shows a text denoting the total selected length of the clip over the marker. The larger marker represents the present spot of your video clip. Make sure to drag around and adjust the video for including all the important parts within the video.
 
 ![trim videos in windows 10 Photos](https://images.wondershare.com/filmora/article-images/start-trim-photos.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GU08CQVsZz0?si=V-SvPfzRsQysMS0e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Step 4**: Once you are happy with the changes, hit the save icon from the top menu. The clip is saved as a copy without impacting your original video in your Windows computer.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2: How to trim video in Windows 10 with VLC
@@ -81,7 +81,7 @@ Here comes the step by step guide to trim video in VLC –
 ![trim videos in windows 10 using VLC](https://images.wondershare.com/filmora/article-images/vlc-trim-video.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/8Y-k_3N-0OI?si=1J-aFBXLJl5b3x4h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 1. Upon activation of the 'Advanced controls' option, four additional buttons appear over the VLC media player's play/pause button. Now, you got to add the video by 'Open File'. Well, you can also do that by dragging and dropping the video as well.
@@ -96,11 +96,11 @@ From the above article, we found that **trimming video in VLC and Windows 10 Pho
 
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
-
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Xa2_mFu-obA?si=_xDGF1pv-dnuaDOr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Xq2r4ZKM-Po?si=fA2DdEB1op-atCkz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
+![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
 
@@ -127,22 +127,17 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-podcasters-handbook-writing-strategies-and-sample-scripts-available-free/"><u>[New] In 2024, The Podcaster's Handbook Writing Strategies & Sample Scripts Available Free</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-unlocking-real-time-collaboration-via-xbox-zoom-for-2024/"><u>[New] Unlocking Real-Time Collaboration via Xbox Zoom for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-visionaryzoom-7-x-perfect-photo-amplification/"><u>[Updated] 2024 Approved VisionaryZoom 7-X Perfect Photo Amplification</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-best-auto-tracking-camera-mount-for-2024/"><u>[Updated] Best Auto Tracking Camera Mount for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-ultimate-iphone-and-ipad-video-player-guide/"><u>[Updated] In 2024, Ultimate iPhone & iPad Video Player Guide</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/updated-quality-microphone-recorders-for-mac-devices-our-five-choices-revealed/"><u>[Updated] Quality Microphone Recorders for Mac Devices Our Five Choices Revealed</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-smooth-integration-of-macos-sierra-on-old-systems-for-2024/"><u>[Updated] Smooth Integration of macOS Sierra on Old Systems for 2024</u></a></li>
-<li><a href="https://android-transfer.techidaily.com/in-2024-5-ways-to-move-contacts-from-samsung-galaxy-s23-fe-to-iphone-131415-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 5 Ways to Move Contacts From Samsung Galaxy S23 FE to iPhone (13/14/15) | Dr.fone</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/in-2024-clearer-captures-await-with-next-gen-tracker-tech/"><u>In 2024, Clearer Captures Await with Next-Gen Tracker Tech</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-fake-gps-on-apple-iphone-12-mini-for-mobile-legends-drfone-by-drfone-virtual-ios/"><u>In 2024, How To Fake GPS On Apple iPhone 12 mini For Mobile Legends? | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-tale-bearers-school-distinguished-dothee/"><u>In 2024, Tale Bearers School - Distinguished Dothee</u></a></li>
-<li><a href="https://article-tips.techidaily.com/innovative-way-of-merging-gopro-footage-into-continuous-360-degree-narratives/"><u>Innovative Way of Merging GoPro Footage Into Continuous 360-Degree Narratives</u></a></li>
-<li><a href="https://win-dash.techidaily.com/latest-driver-updates-for-enhanced-compatibility-with-your-evga-gpu-on-windows-pcs/"><u>Latest Driver Updates for Enhanced Compatibility with Your EVGA GPU on Windows PCs</u></a></li>
-<li><a href="https://fake-location.techidaily.com/read-this-guide-to-find-a-reliable-alternative-to-fake-gps-on-realme-gt-3-drfone-by-drfone-virtual-android/"><u>Read This Guide to Find a Reliable Alternative to Fake GPS On Realme GT 3 | Dr.fone</u></a></li>
-<li><a href="https://instagram-video-recordings.techidaily.com/transformative-techniques-for-high-quality-mp4s-from-instagram/"><u>Transformative Techniques for High-Quality MP4s From Instagram</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/unboxing-and-testing-in-depth-review-of-asus-rog-swift-oled-for-ultimate-gaming-experience/"><u>Unboxing and Testing: In-Depth Review of Asus ROG Swift OLED for Ultimate Gaming Experience</u></a></li>
-<li><a href="https://fox-search.techidaily.com/unveiling-potential-reasons-behind-your-computers-cpu-heat-spike-insights-from-yl-computing/"><u>Unveiling Potential Reasons Behind Your Computer's CPU Heat Spike - Insights From YL Computing</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-in-2024-convenient-method-to-design-original-shorts-thumbnails/"><u>[New] In 2024, Convenient Method to Design Original Shorts Thumbnails</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/updated-2024-approved-strategies-for-effective-obs-live-feeds-on-facebook/"><u>[Updated] 2024 Approved Strategies for Effective OBS Live Feeds on Facebook</u></a></li>
+<li><a href="https://article-tips.techidaily.com/best-worth-steadicams-for-high-end-aerial-film-production-for-2024/"><u>Best-Worth Steadicams for High-End Aerial Film Production for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/choreographing-photography-and-filming-in-one-sweep/"><u>Choreographing Photography and Filming in One Sweep</u></a></li>
+<li><a href="https://article-tips.techidaily.com/comprehensive-picsart-2024-analysis-and-tutorial/"><u>Comprehensive PicsArt 2024 Analysis & Tutorial</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/crafting-a-connected-collection-across-applications-for-2024/"><u>Crafting a Connected Collection Across Applications for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/discover-the-fine-print-accurate-and-simple-zooming-methods-for-2024/"><u>Discover the Fine Print Accurate and Simple Zooming Methods for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/effective-methods-for-downloading-audio-tracks-from-pinterest-videos/"><u>Effective Methods for Downloading Audio Tracks From Pinterest Videos</u></a></li>
+<li><a href="https://ai-video-apps.techidaily.com/new-free-mp4-video-trimming-software-top-picks-for-2024/"><u>New Free MP4 Video Trimming Software Top Picks for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/perfect-pitch-integrating-music-with-cropping-and-editing-in-canva/"><u>Perfect Pitch Integrating Music with Cropping and Editing in Canva</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/simplifying-systems-administration-how-red-hat-leverages-artificial-intelligence/"><u>Simplifying Systems Administration: How Red Hat Leverages Artificial Intelligence</u></a></li>
+<li><a href="https://tech-revival.techidaily.com/unveiling-the-mechanics-of-on-device-ai-an-informative-guide/"><u>Unveiling the Mechanics of On-Device AI: An Informative Guide</u></a></li>
 </ul></div>
 

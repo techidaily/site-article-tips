@@ -1,7 +1,7 @@
 ---
 title: "[Updated] In 2024, Proven Methods to Prevent Photos App Freezes in Windows 10"
-date: 2025-01-18T21:02:36.186Z
-updated: 2025-01-22T17:38:27.796Z
+date: 2025-01-23T22:46:13.736Z
+updated: 2025-01-30T06:20:39.772Z
 tags: 
   - screen-recording
   - ai video
@@ -48,7 +48,7 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 ## How to fix Windows 10 Photos app crashes
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MHafwnWSEQk?si=rejNVNpJZH2SqNLy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
@@ -62,12 +62,12 @@ Here is how to troubleshoot –
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/xtylXDY9YfA?si=VonzSiDFGCpJm2uC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pejPLJBLmXw?si=WD97jA3doqbMCkCX" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 2: Restore Default Libraries
 
@@ -80,10 +80,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gkdZ3A1mock?si=2zeR5GtTU2VujM_w" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 ### Solution 3: Reset it
@@ -95,6 +91,10 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4qA2pGQ5qmw?si=1mAA9WTi2Z5F7n6s" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -125,13 +125,13 @@ From the above article, we have concluded that experiencing Windows 10 Photos Ap
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/g6xXIR_Uh1A?si=TMXzklPEY50MUM05" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XA_wP7rS9ww?si=LarMG3sEHAhSoL6q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qbuund2HKOQ?si=NaGHqIrx8hSL7gWV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/c1yHj02oP3w?si=mwi3FyP0p68gkBqV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Shanoon Cox
@@ -159,21 +159,20 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://facebook-video-content.techidaily.com/new-decoding-the-meaning-and-usage-facebooks-icon-in-chat-for-2024/"><u>[New] Decoding the Meaning and Usage Facebook's Icon in Chat for 2024</u></a></li>
-<li><a href="https://some-knowledge.techidaily.com/updated-harnessing-the-power-combine-zoom-and-google-mail/"><u>[Updated] Harnessing the Power Combine Zoom & Google Mail</u></a></li>
-<li><a href="https://article-tips.techidaily.com/blueprints-to-hiring-creative-cinematographers/"><u>Blueprints to Hiring Creative Cinematographers</u></a></li>
-<li><a href="https://extra-information.techidaily.com/bringing-smiles-without-dollars-the-mememakers-way/"><u>Bringing Smiles without Dollars – The MemeMaker’s Way</u></a></li>
-<li><a href="https://article-tips.techidaily.com/color-keying-101-the-easy-guide-to-digital-backdrops-and-filming-for-2024/"><u>Color Keying 101 The Easy Guide to Digital Backdrops and Filming for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/colorize-your-flight-dji-miniair-drone-visuals-at-no-cost/"><u>Colorize Your Flight – DJI Mini/Air Drone Visuals at No Cost</u></a></li>
-<li><a href="https://article-tips.techidaily.com/conquer-youtube-photos-an-experts-step-by-step-guide/"><u>Conquer YouTube Photos An Expert's Step-by-Step Guide</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/decoding-the-401-unauthorized-bug-tactics-to-restore-access-successfully/"><u>Decoding the 401 Unauthorized Bug: Tactics to Restore Access Successfully</u></a></li>
-<li><a href="https://article-tips.techidaily.com/differences-between-standard-360-and-vr-content-for-2024/"><u>Differences Between Standard 360° & VR Content for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/discover-the-full-screen-fusion-potential-with-sierras-multimedia-capabilities/"><u>Discover the Full-Screen Fusion Potential with Sierra's Multimedia Capabilities</u></a></li>
-<li><a href="https://article-tips.techidaily.com/duel-of-the-camcorders-gopros-black-versus-sony-fdr-x1000v-for-2024/"><u>Duel of the Camcorders GoPro's Black Versus Sony FDR-X1000V for 2024</u></a></li>
-<li><a href="https://blog-min.techidaily.com/how-to-rescue-lost-pictures-from-infinix-note-30-vip-by-fonelab-android-recover-pictures/"><u>How to Rescue Lost Pictures from Infinix Note 30 VIP?</u></a></li>
-<li><a href="https://android-unlock.techidaily.com/in-2024-how-to-enable-usb-debugging-on-a-locked-vivo-y77t-phone-by-drfone-android/"><u>In 2024, How To Enable USB Debugging on a Locked Vivo Y77t Phone</u></a></li>
-<li><a href="https://article-helps.techidaily.com/in-2024-htc-vive-the-pinnacle-of-immersive-3d-playing-experiences/"><u>In 2024, HTC Vive The Pinnacle of Immersive 3D Playing Experiences</u></a></li>
-<li><a href="https://sim-unlock.techidaily.com/in-2024-three-ways-to-sim-unlock-itel-a05s-by-drfone-android/"><u>In 2024, Three Ways to Sim Unlock Itel A05s</u></a></li>
-<li><a href="https://games-able.techidaily.com/optimizing-your-mac-gaming-with-apples-innovative-game-mode-feature-in-sonoma-os/"><u>Optimizing Your Mac Gaming with Apple’s Innovative Game Mode Feature in Sonoma OS</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-mastering-the-art-of-tinder-profiles-top-tricks-for-instant-love-interest/"><u>[New] 2024 Approved Mastering the Art of Tinder Profiles Top Tricks for Instant Love Interest</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-gigglegenius-funniest-memes-await/"><u>[New] GiggleGenius Funniest Memes Await</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-enhance-your-iphones-photography-top-rated-film-and-shot-accessories/"><u>[Updated] Enhance Your iPhone's Photography Top-Rated Film & Shot Accessories</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-the-ultimate-fix-guide-resolving-srt-not-working-problems/"><u>[Updated] In 2024, The Ultimate Fix Guide Resolving SRT Not Working Problems</u></a></li>
+<li><a href="https://fox-hovers.techidaily.com/2024-approved-a-novices-vision-on-vectors-categories-explored-and-apps/"><u>2024 Approved A Novice's Vision on Vectors Categories Explored and Apps</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/cookiebot-enhancing-your-website-with-smart-tracking-tools/"><u>Cookiebot: Enhancing Your Website with Smart Tracking Tools</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-xiaomi-redmi-note-13-proplus-5g-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from Xiaomi Redmi Note 13 Pro+ 5G to iPhone | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-oneplus-12-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from OnePlus 12 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://article-files.techidaily.com/in-2024-curated-queries-to-spark-interest-in-audio-stories/"><u>In 2024, Curated Queries to Spark Interest in Audio Stories</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-scoping-out-superior-cloud-platforms-for-secure-storing/"><u>In 2024, Scoping Out Superior Cloud Platforms for Secure Storing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/mastering-motion-blur-aadobe-photoshop-tutorial-for-2024/"><u>Mastering Motion Blur AAdobe Photoshop Tutorial for 2024</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/microsoft-word-is-there-a-way-to-use-it-without-spending-money/"><u>Microsoft Word: Is There A Way To Use It Without Spending Money?</u></a></li>
+<li><a href="https://facebook.techidaily.com/patterns-in-digital-identity-theft/"><u>Patterns in Digital Identity Theft</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/the-ultimate-guide-to-bypassing-icloud-activation-lock-on-apple-iphone-xr-by-drfone-ios/"><u>The Ultimate Guide to Bypassing iCloud Activation Lock on Apple iPhone XR</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-ultimate-guide-to-kinemasters-android-gameplay-for-2024/"><u>The Ultimate Guide to KineMaster's Android Gameplay for 2024</u></a></li>
 </ul></div>
 

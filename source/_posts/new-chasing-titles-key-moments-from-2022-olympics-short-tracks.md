@@ -1,7 +1,7 @@
 ---
 title: "\"[New] Chasing Titles  Key Moments From 2022 Olympics Short Tracks\""
-date: 2025-01-16T17:26:53.591Z
-updated: 2025-01-22T22:46:55.763Z
+date: 2025-01-23T19:35:40.724Z
+updated: 2025-01-30T05:39:25.393Z
 tags: 
   - screen-recording
   - ai video
@@ -28,7 +28,7 @@ Just two nights ago, the Beijing 2022 Olympic Winter Games was marred with contr
 >
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ### Watch Video: 10 Best Winter Olympics Highlight Moment \[2022\]
@@ -46,12 +46,16 @@ Canada’s Steven Dubois wins the silver medal.
 ![steven dubois wins the silver medal](https://images.wondershare.com/filmora/article-images/steven-dubois-wins-the-silver-medal.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/620kcQ7Dw7w?si=a5ussGs5HV7sG3hF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/Q_69vX9wnRE?si=FtLxkpRhPORqcMeE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
@@ -69,12 +73,16 @@ The last leg of competition among skaters before reaching the finishing line at 
 
 ![the last leg of competition](https://images.wondershare.com/filmora/article-images/the-last-leg-of-competition.jpg)
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awarding ceremony in short track speed skating Olympics 2022.
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/y3VlwHTQQMs?si=BXYwD1pKiaTuev4y" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/4YCkNXJjC3c?si=9Tn8KiqKGTZi1o7E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
@@ -90,10 +98,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Iz2LYWd8EqI?si=G_3CqFRAmeVPczjj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -123,10 +127,6 @@ Step 5: Select individual slides and apply Transition, Effects or add Titles and
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Q8Feep0Rc0?si=YkPhRxXGvrRRMJtb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 South Korean skater Hwang Dae-heon has won the gold medal in men’s short track speed skating 1500m. This has buried the controversy that cropped up due to South Korean disqualification in 1000m short track speed skating. If you want to make a video highlighting all the important scenes and moments of any sports event, we have illustrated how to make a professional-quality video with Wondershare Filmora.
@@ -150,24 +150,17 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-definitive-guide-to-superior-4k-mirrorless-cams/"><u>[New] 2024 Approved The Definitive Guide to Superior 4K Mirrorless Cams</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-chasing-the-crash-action-cameras-reviewed-for-2024/"><u>[New] Chasing the Crash Action Cameras Reviewed for 2024</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/new-expertise-on-crafting-premium-webcam-footage-for-2024/"><u>[New] Expertise on Crafting Premium Webcam Footage for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-from-darkness-to-brilliance-mastering-iphones-hdr-techniques-for-2024/"><u>[New] From Darkness to Brilliance Mastering iPhone's HDR Techniques for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-navigating-the-nuances-of-premieres-fullscreen-mode/"><u>[New] Navigating the Nuances of Premiere's Fullscreen Mode</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-unlocking-true-tints-and-shades-in-photos-for-2024/"><u>[New] Unlocking True Tints and Shades in Photos for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-elite-psd-bevel-and-emboss-styles/"><u>[Updated] 2024 Approved Elite PSD Bevel & Emboss Styles</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-cutting-edge-background-switchers-lightart-masters-for-2024/"><u>[Updated] Cutting-Edge Background Switchers LightArt Masters for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-prime-15-web-based-editing-platforms-reviewed-all-free/"><u>[Updated] In 2024, Prime 15 Web-Based Editing Platforms Reviewed, All FREE</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-ultimate-virtual-world-cinema-lineup/"><u>[Updated] Ultimate Virtual World Cinema Lineup</u></a></li>
-<li><a href="https://article-files.techidaily.com/2024-approved-efficient-color-grading-in-ar-understanding-and-downloading-luts/"><u>2024 Approved Efficient Color Grading in AR Understanding and Downloading LUTs</u></a></li>
-<li><a href="https://win-howtos.techidaily.com/best-practices-to-resolve-game-latency-a-focus-on-fallout/"><u>Best Practices to Resolve Game Latency: A Focus on Fallout</u></a></li>
-<li><a href="https://buynow-marvelous.techidaily.com/find-the-perfect-keyboard-comfort-accessory-top-wrist-pads-of-2024-reviewed/"><u>Find the Perfect Keyboard Comfort Accessory: Top Wrist Pads of 2024 Reviewed</u></a></li>
-<li><a href="https://techidaily.com/how-to-downgrade-apple-iphone-xs-to-an-older-ios-system-version-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>How to Downgrade Apple iPhone XS to an Older iOS System Version? | Dr.fone</u></a></li>
-<li><a href="https://unlock-android.techidaily.com/in-2024-how-to-unlock-itel-a05s-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Itel A05s Bootloader Easily</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-mastering-close-up-views-in-roblox-games/"><u>In 2024, Mastering Close-Up Views in Roblox Games</u></a></li>
-<li><a href="https://ai-live-streaming.techidaily.com/new-2024-approved-6-must-have-tools-for-successful-game-streaming/"><u>New 2024 Approved 6 Must-Have Tools for Successful Game Streaming</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/step-by-step-solution-for-overcoming-the-bad-pool-header-problem-on-various-windows-versions/"><u>Step-by-Step Solution for Overcoming the 'Bad Pool Header' Problem on Various Windows Versions</u></a></li>
-<li><a href="https://buynow-reviews.techidaily.com/unveiling-the-features-of-the-advanced-linksys-ea9thz-router-an-seo-experts-perspective/"><u>Unveiling the Features of the Advanced Linksys EA9tHz Router – An SEO Expert's Perspective</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-2024-approved-frame-by-frame-excellence-selecting-webcams-for-podcasts/"><u>[New] 2024 Approved Frame-by-Frame Excellence Selecting Webcams for Podcasts</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/new-capturing-gaming-sessions-pick-between-obs-or-shadowplay-for-2024/"><u>[New] Capturing Gaming Sessions Pick Between OBS or ShadowPlay for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-key-steps-turning-visual-media-from-pinterest-into-music-files/"><u>[New] In 2024, Key Steps Turning Visual Media From Pinterest Into Music Files</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-starting-strong-in-screen-sharpness-your-first-tutorial-on-hd-video/"><u>[New] In 2024, Starting Strong in Screen Sharpness Your First Tutorial on HD Video</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-uniting-platforms-the-seamless-addition-of-linktree-to-tiktok/"><u>[New] In 2024, Uniting Platforms The Seamless Addition of Linktree to TikTok</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/updated-2024-approved-journey-through-animated-expression-your-guide-to-snapface-magic/"><u>[Updated] 2024 Approved Journey Through Animated Expression Your Guide to Snapface Magic</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/2024-approved-social-media-content-conundrums-finding-elusive-vids/"><u>2024 Approved Social Media Content Conundrums Finding Elusive Vids</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/2024-approved-streamline-slack-collaboration-with-best-10-free-tools/"><u>2024 Approved Streamline Slack Collaboration with Best 10 Free Tools</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/divine-warriors-convergence-ragnarok-epoch-for-2024/"><u>Divine Warriors Convergence Ragnarok Epoch for 2024</u></a></li>
+<li><a href="https://win-forum.techidaily.com/fixing-windows-11-wont-run-issues-expert-advice-and-solutions/"><u>Fixing Windows 11 Won't Run Issues: Expert Advice & Solutions</u></a></li>
+<li><a href="https://discord-videos.techidaily.com/how-to-delete-discord-account-step-by-step/"><u>How to Delete Discord Account [Step-by-Step]</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-navigating-aspers-methodology-for-sleep-success/"><u>In 2024, Navigating Asper's Methodology for Sleep Success</u></a></li>
 </ul></div>
 

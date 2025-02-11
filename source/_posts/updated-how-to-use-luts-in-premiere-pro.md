@@ -1,7 +1,7 @@
 ---
 title: "[Updated] How To Use LUTs In Premiere Pro"
-date: 2025-01-26T19:55:42.235Z
-updated: 2025-01-29T23:23:39.418Z
+date: 2025-02-09T18:03:05.827Z
+updated: 2025-02-11T19:12:11.781Z
 tags: 
   - screen-recording
   - ai video
@@ -27,6 +27,10 @@ you grab the camera, follow your idea, and acquire your pictures, then transfer 
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/rdNq2Sp031s?si=3FcJa3dQLraUDHKv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
+
 ## 1\. How to install LUTs in Premiere Pro
 
 LUTs can be applied in Premiere Pro in two different ways. Utilizing LUTs through the Creative tab of the Lumetri Color Panel is the simplest method. However, it does not make the LUTs a permanent part of the collection.
@@ -38,7 +42,7 @@ Step2Locate the Lumetri LUTs folder in your Premiere Pro installation directory 
 Step3Paste all of your fresh LUTs in this folder at this time. Your new LUTs will now show up in the Lumetri Color Panel when you launch Premiere Pro (or restart the software if it was already open). Innovative >> Looks
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/r_wWybMqZEM?si=0nPjCQDLS2MCaQbG" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/pGHmqD53gc8?si=ymgHIB6Aa7_MoUUf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 2\. How to add LUTs to your footage
@@ -50,10 +54,6 @@ Step2Click OK after selecting New Item > Adjustment Layer in the Project window'
 Step3The first Basic Correction option in the right-hand panel of Lumetri Color is Input LUT. Choose this, click Browse, and then go to the location where your LUTs are stored.
 
 Step4Double-click the LUT you wish to use once you've located it, and it will be applied immediately.A tiny tip I like to use occasionally is to find the Effect Controls panel on the left side, then click the drop-down arrow next to Opacity, and make adjustments if you input your LUT and feel that it's too intense.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9hsPbiic0O8?si=58mZ2Cu6wicQfsUP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## 3\. Why use LUTs in your project?
 
@@ -74,7 +74,7 @@ The entire color panel in Premiere Pro is packed with all of the color grading t
 The end outcome does not vary by a substantial amount, but how it looks can change depending on the LUT you use. In the event that something seems to be lacking, you can always modify the color grading.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/vFQCEZiYA08?si=xjIu5IAy77RlHWii" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/aIx71tPaWKg?si=lG5OiUe-M6eBJf5b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 5\. Export LUTs
@@ -90,7 +90,7 @@ Step2Export ".cube" This function exports lookup tables in the.cube format so th
 Step3Store Preset: You can personalize the settings for each color effect, then save the resulting combinations as presets. Within the Save Preset dialog box, give your preset the name you want it to have. If desired, enter a description. Please visit the article on how to create and store an effect preset for further details.
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RAnyQ0uj9Yg?si=Es4_ulcdM_-LuDcq" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/DBMTAJBx-X4?si=sje5pFJXiHzJJGbP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## 6\. Where can you find LUTs?
@@ -107,7 +107,7 @@ You might be asking, "Now that I've learned more about LUTs (Lookup Tables), whe
 * Urban Dark Creative LUTs
 
 <!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QRaEdFMU-Xc?si=OjaiTvlogJy5wHhN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
 
 ## Conclusion
@@ -146,24 +146,20 @@ Sometimes, some of them are out there to steal your money rather than provide th
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-boxes.techidaily.com/new-2024-approved-enhancing-video-narratives-mastering-fade-effects/"><u>[New] 2024 Approved Enhancing Video Narratives Mastering Fade Effects</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-gradual-transition-tactics-for-premiere-professionals/"><u>[New] 2024 Approved Gradual Transition Tactics for Premiere Professionals</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-leading-vr-gear-for-drone-operators/"><u>[New] 2024 Approved Leading VR Gear for Drone Operators</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-gentle-fading-audio-paths-in-live-for-2024/"><u>[New] Gentle Fading Audio Paths in Live for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-how-to-remove-signature-background-in-seconds/"><u>[New] In 2024, How to Remove Signature Background in Seconds</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-youtube-tunes-integration-with-visual-content/"><u>[New] YouTube Tunes Integration with Visual Content</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-obsessed-with-broadcasting-choose-between-xsplit-and-obs-for-2024/"><u>[Updated] Obsessed with Broadcasting? Choose Between XSplit & OBS for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-prior-upgrades-key-points-revisited/"><u>[Updated] Prior Upgrades? Key Points Revisited</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/elevate-your-social-media-reach-fb-ad-mastery-techniques-for-2024/"><u>Elevate Your Social Media Reach FB Ad Mastery Techniques for 2024</u></a></li>
-<li><a href="https://techidaily.com/enhance-digital-strategies-with-our-advanced-cookiebot-technology/"><u>Enhance Digital Strategies with Our Advanced Cookiebot Technology</u></a></li>
-<li><a href="https://article-tips.techidaily.com/highlight-effects-assessment-essential-or-excessive/"><u>Highlight Effects Assessment Essential or Excessive?</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-9-mind-blowing-tricks-to-hatch-eggs-in-pokemon-go-without-walking-on-vivo-y100-drfone-by-drfone-virtual-android/"><u>In 2024, 9 Mind-Blowing Tricks to Hatch Eggs in Pokemon Go Without Walking On Vivo Y100 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-economical-dslrs-for-the-cost-conscious/"><u>In 2024, Economical DSLRs for the Cost-Conscious</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-planning-to-use-a-pokemon-go-joystick-on-samsung-galaxy-m14-4g-drfone-by-drfone-virtual-android/"><u>In 2024, Planning to Use a Pokemon Go Joystick on Samsung Galaxy M14 4G? | Dr.fone</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-the-ultimate-guide-to-crafting-exquisite-hdr-portraits/"><u>In 2024, The Ultimate Guide to Crafting Exquisite HDR Portraits</u></a></li>
-<li><a href="https://win-answers.techidaily.com/launch-unlocked-the-duo-behind-the-success/"><u>Launch Unlocked: The Duo Behind the Success</u></a></li>
-<li><a href="https://screen-video-capture.techidaily.com/mastering-easy-ipad-video-recording-methods/"><u>Mastering Easy iPad Video Recording Methods</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/the-ultimate-compendium-hands-free-device-interaction-for-2024/"><u>The Ultimate Compendium Hands-Free Device Interaction for 2024</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/user-perspectives-an-exhaustive-guide-to-understanding-googles-voice-calling-app/"><u>User Perspectives: An Exhaustive Guide to Understanding Google's Voice Calling App</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-plunge-into-metaverse-top-8-high-tech-goggles-and-helmets/"><u>[New] 2024 Approved Plunge Into Metaverse Top 8 High-Tech Goggles & Helmets</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-effortless-note-management-on-mematic-platform/"><u>[New] In 2024, Effortless Note Management on Mematic Platform</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/new-in-2024-free-mobile-screen-snatching-androids-leading-eight/"><u>[New] In 2024, Free Mobile Screen Snatching - Android's Leading Eight</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-fundamentals-of-creating-dynamic-podcast-feeds/"><u>[New] In 2024, The Fundamentals of Creating Dynamic Podcast Feeds</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-ideal-steadicams-for-capturing-quality-uav-visuals/"><u>[Updated] 2024 Approved Ideal Steadicams for Capturing Quality UAV Visuals</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-filmmakers-toolkit-essential-color-grading-of-7-techniques/"><u>[Updated] The Filmmaker's Toolkit Essential Color Grading of 7 Techniques</u></a></li>
+<li><a href="https://youtube-blog.techidaily.com/ed-the-perfected-practice-of-combining-youtube-videos-for-2024/"><u>[Updated] The Perfected Practice of Combining YouTube Videos for 2024</u></a></li>
+<li><a href="https://buynow-tips.techidaily.com/exploring-the-unparalleled-experience-a-comprehensive-review-of-the-samsung-galaxy-note-9s-big-screen-dominance/"><u>Exploring the Unparalleled Experience: A Comprehensive Review of the Samsung Galaxy Note 9'S Big-Screen Dominance</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-elevate-design-15-must-have-plugins-for-after-effects/"><u>In 2024, Elevate Design 15 Must-Have Plugins for After Effects</u></a></li>
+<li><a href="https://activate-lock.techidaily.com/in-2024-how-to-fix-icloud-lock-from-your-iphone-se-2022-and-ipad-by-drfone-ios/"><u>In 2024, How to fix iCloud lock from your iPhone SE (2022) and iPad</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-master-the-art-of-listening-select-best-android-music-video-apps/"><u>In 2024, Master the Art of Listening Select Best Android Music Video Apps</u></a></li>
+<li><a href="https://tech-haven.techidaily.com/is-chatgpt-trustworthy-for-summarizing-your-content-unpacking-the-hidden-dangers/"><u>Is ChatGPT Trustworthy for Summarizing Your Content? Unpacking the Hidden Dangers</u></a></li>
+<li><a href="https://techidaily.com/this-is-how-you-can-recover-deleted-pictures-from-realme-by-fonelab-android-recover-pictures/"><u>This is how you can recover deleted pictures from Realme .</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/top-15-no-cost-antivirus-solutions-essential-bootable-options/"><u>Top 15 No-Cost Antivirus Solutions: Essential Bootable Options</u></a></li>
+<li><a href="https://os-tips.techidaily.com/upgrade-your-smartphone-experience-the-accessory-that-makes-it-feel-like-a-superior-nintendo-switch/"><u>Upgrade Your Smartphone Experience: The Accessory That Makes It Feel Like a Superior Nintendo Switch</u></a></li>
 </ul></div>
 

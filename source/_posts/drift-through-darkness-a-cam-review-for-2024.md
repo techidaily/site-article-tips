@@ -1,7 +1,7 @@
 ---
 title: "\"Drift Through Darkness  A CAM Review for 2024\""
-date: 2024-07-29T02:26:05.553Z
-updated: 2024-07-30T02:26:05.553Z
+date: 2025-02-05T16:51:55.482Z
+updated: 2025-02-11T17:00:17.462Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/d529ee3f9777395e3e6b4e63c228e25fbb4330a46
 
 # Drift Innocations Ghost-S Action Camera Review
 
-<!-- affiliate ads begin -->
-<a href="https://electronicx.pxf.io/c/5597632/1872496/14483" target="_top" id="1872496"><img src="//a.impactradius-go.com/display-ad/14483-1872496" border="0" alt="" width="750" height="625"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1872496/14483" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 ##### Max Wales
@@ -33,16 +30,14 @@ thumbnail: https://thmb.techidaily.com/d529ee3f9777395e3e6b4e63c228e25fbb4330a46
 
  Ghost S follows the same design as that of HD Ghost and its bullet shaped model assists athletes in easy scene recording. The overall weight of this device is 5.9 ounces so it can be easily paired with goggles or strapped over helmet. The 2 inch LCD screen is protected with Gorilla Glass protection and the wide angle lens can cover views up to 160 degree. You will have plenty of mounting options with Drift Ghost-S device and it always stays safe with quick connect clip. Further, this device can be easily controlled from Wi-Fi remote and the outstanding combination of audio and video make it significantly stunning and fragile camera.
 
-<!-- affiliate ads begin -->
-<a href="https://store.massmailsoftware.com/order/checkout.php?PRODS=1047974&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/dc87c13749315c7217cdc4ac692e704c/banera_for_partners-04_%281%29.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![drift-ghost-s-image](https://images.wondershare.com/filmora/article-images/drift-innocations-ghost-s-1.jpg)
 
 [Check price at Amazon](https://www.amazon.com/gp/product/B00GJRCPRO/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00GJRCPRO&linkId=02d9f7ab2afeae8b2f0e96dcd1f5f44b)
 
 <!-- affiliate ads begin -->
-<a href="https://purchase.swifdoo.com/order/checkout.php?PRODS=40002580&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/8b932759a5a04ddb34bf79e3f9072e4b/products/3_Product%20box%20white-1024x1024.png" border="0">SwifDoo PDF 2-Year Plan</a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/dKjioJQaUh8?si=Ls_AeuvGsSyL5ny2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ## Complete Review for Drift Ghost-S
 
 #### **Specs table:**
@@ -116,15 +111,17 @@ thumbnail: https://thmb.techidaily.com/d529ee3f9777395e3e6b4e63c228e25fbb4330a46
 
  What’s more, it has all the features you will need to make you feel like a pro. Simple editing functionalities like trimming, cropping, merging, adjusting speed, fast or slow motion, mosaic etc. will meet most of your demands. Besides all that, advanced features like split screen, green screen, filters&overlay effects, together with hundreds of licensed music, motion elements, transiton effects etc will definitely turn your video into something extraordinary with the least amount of effort. Check to video below to get an overview of this gorgeous video editing program:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 <!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4715391&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/7f687767ccf20fcea1c9dc4a5adc2326/Digisigner_banner_728_x_90_color_version.png" border="0"></a>
+<iframe width="560" height="315" src="https://www.youtube.com/embed/K4lRBnNnd9k?si=5e0MbdOz-fF6Ry_k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <!-- affiliate ads end -->
+
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
+
+<!-- affiliate ads begin -->
+<iframe width="560" height="315" src="https://www.youtube.com/embed/2En1CHbiYwA?si=jZKzTr9EIT2ShjGK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+<!-- affiliate ads end -->
 
 Max Wales
 
@@ -149,4 +146,24 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-popular-tiktok-creations-dominating-twitter-discussions/"><u>[New] 2024 Approved Popular TikTok Creations Dominating Twitter Discussions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-straightforward-strategies-for-podcast-streaming/"><u>[New] 2024 Approved Straightforward Strategies for Podcast Streaming</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-syncing-youtube-audio-to-film-compositions/"><u>[New] 2024 Approved Syncing YouTube Audio to Film Compositions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-essential-photo-changers-ultimate-online-upgrade-for-2024/"><u>[New] Essential Photo Changers Ultimate Online Upgrade for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-photo-vid-mosaic-designer-slideshows-for-sierra-for-2024/"><u>[New] Photo-Vid Mosaic Designer Slideshows for Sierra for 2024</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/remium-talker-alteration-tech-for-bloggers-and-streamers/"><u>[New] Premium Talker Alteration Tech for Bloggers and Streamers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-perfect-harmony-in-canvas-cropping-adding-music-to-video/"><u>[Updated] 2024 Approved Perfect Harmony in Canvas Cropping, Adding Music to Video</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/updated-best-platforms-for-futuristic-font-designs/"><u>[Updated] Best Platforms for Futuristic Font Designs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unlocking-srt-files-accessing-on-windowsmac/"><u>[Updated] Unlocking SRT Files Accessing on Windows/Mac</u></a></li>
+<li><a href="https://extra-resources.techidaily.com/best-12-affordable-and-accessible-online-video-playing-software-pctabletphone/"><u>Best 12 Affordable & Accessible Online Video Playing Software (PC/Tablet/Phone)</u></a></li>
+<li><a href="https://techtrends.techidaily.com/duelling-digitally-essential-techniques-for-friendly-battles-in-the-world-of-pokemon-go/"><u>Duelling Digitally: Essential Techniques for Friendly Battles in the World of Pokémon GO</u></a></li>
+<li><a href="https://article-tips.techidaily.com/exclusive-discoveries-prime-websites-and-methods-to-download-tamil-ringtone-files/"><u>Exclusive Discoveries Prime Websites & Methods to Download Tamil Ringtone Files</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-how-to-safely-procure-pure-photography-collections/"><u>In 2024, How to Safely Procure Pure Photography Collections</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/making-an-informed-ai-selection-comparing-bing-chat-to-chatgpt/"><u>Making an Informed AI Selection: Comparing Bing Chat to ChatGPT</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/most-affordable-3d-printer-offers-available-this-year/"><u>Most Affordable 3D Printer Offers Available This Year</u></a></li>
+<li><a href="https://driver-download.techidaily.com/ultimate-guide-to-installing-and-updating-fingerprint-recognition-tools-on-windows/"><u>Ultimate Guide to Installing and Updating Fingerprint Recognition Tools on Windows</u></a></li>
+<li><a href="https://data-safeguard.techidaily.com/ultimate-guide-protect-your-macs-privacy-by-learning-drive-encryption-and-restoration-methods/"><u>Ultimate Guide: Protect Your Mac's Privacy by Learning Drive Encryption and Restoration Methods</u></a></li>
+</ul></div>
 

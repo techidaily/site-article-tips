@@ -1,7 +1,7 @@
 ---
 title: "[New] In 2024, Xiaomi's Aerial Camera Test in Full HD"
-date: 2025-02-06T19:01:46.527Z
-updated: 2025-02-11T16:40:28.126Z
+date: 2025-02-23T17:19:56.779Z
+updated: 2025-03-02T16:09:46.499Z
 tags: 
   - screen-recording
   - ai video
@@ -53,17 +53,9 @@ In the last few years, Xiaomi has developed remarkable performance in the market
 
 Even with a reasonable price tag, this advanced drone unit has several features to offer its users. The most impressive one is its 4K recording ability with higher stability whereas still shots are recorded with 1080p resolution level. The wireless transmitter is designed with 2.4GHz frequency range whereas the altitude range goes as high as up to 800m. Control distance offered by Xiaomi MI is 3000m and the overall flight time offered by this tiny drone unit is 27 min. It has 5199mAh rechargeable battery with 17.4 Volt rating that takes total 3 and half hours for complete charging.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Design
 
 Xiaomi Mi has impressive aesthetics and most of its features are comparable to DJI Phantom 4 Drone. The best part is that this drone unit is designed with light weight structure so you can easily carry it to your tour. Even, the propeller guards as well as the gimbal unit are detachable so that you can put this drone easily inside your backpack. The overall weight of Xiaomi Mi is only 149 grams due to carbon fiber and polycarbonate material.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/h5uImbOWmTg?si=z4kP-R0QbXbBAJTa" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Battery Life
 
@@ -75,17 +67,9 @@ Like most of the advanced drone units, Xiaomi Mi also features autonomous flying
 
 The most amazing feature of Xiaomi Mi is its ability to communicate via mobile phone so that users can manage the recording focus of its camera. One more appreciable feature is its surrounded flight ability; you can make it circle around any specific object by sending commands from a smartphone. You will love to capture videos with its 360-degree motion ability that leads to incredible clicks. How can we forget to talk about the most advanced feature of this special drone unit that is Preset Rout following ability! Users can make pre adjustments for all flights and it will capture smooth shots every time. The automatic landing and takeoff feature helps in easy controls whereas if this drone goes far from 3meter range then it will switch back to its preset path. It is possible to bring this drone back with only one button and in order to improve its performance, you can access the calibration settings. Note that, if somehow your drone gets lost then it will take almost 30 to 45 minutes for coming back.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/0Kr7Dpw0HuM?si=05wWDXdPgmC-oBBE" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Control Range
 
 As we have discussed earlier that Xiaomi Mi is designed to work on 2.4GHz transmitter frequency range. It has left-hand throttle ability along with the handy built-in type phone clamp. In order to operate this drone from remote distance you simply need to configure its flight settings to Mode 2\. Note that MI is able to fly at a maximum height of 800m and it can go as far as up to 3000 meters from the operator.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/JMgRzDANfSQ?si=NDy01ntXGGOi1Uxs" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Camera
 
@@ -96,10 +80,6 @@ Xiaomi Mi Drone unit comes with two different variants where the professional on
 The 1080p variant of Mi Drone is available with a price tag of $380 whereas for 4K camera facility you need to pay $460 when ordered from China. All the advanced features of this drone unit make it suitable for professional users. It can beat several high-end competitors with its all-new specifications. Prefer to carry an additional battery for your long-distance tours so that you can enjoy all-time flights without worrying about battery backup.
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/15TKQ-BOENI?si=Ri4B2AuxAdi0Bglz" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -126,19 +106,14 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-discover-the-elite-live-streaming-platforms/"><u>[New] In 2024, Discover the Elite Live Streaming Platforms</u></a></li>
-<li><a href="https://screen-capture.techidaily.com/new-must-have-offline-mobile-games-to-keep-you-entertained-on-android-for-2024/"><u>[New] Must-Have Offline Mobile Games to Keep You Entertained on Android for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-boosting-buzz-and-views-masterful-strategies-for-youtube-success-for-2024/"><u>[Updated] Boosting Buzz & Views Masterful Strategies for YouTube Success for 2024</u></a></li>
-<li><a href="https://facebook-record-videos.techidaily.com/updated-flavorful-faves-top-online-chefs-and-culinary-stars/"><u>[Updated] Flavorful Faves Top Online Chefs & Culinary Stars</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/10-leading-4k-displays/"><u>10 Leading 4K Displays</u></a></li>
-<li><a href="https://some-tips.techidaily.com/2024-approved-tailoring-web-clarity-with-advanced-zoom-tools/"><u>2024 Approved Tailoring Web Clarity with Advanced Zoom Tools</u></a></li>
-<li><a href="https://smart-video-editing.techidaily.com/debut/"><u>Debutの初心者向けスクリーン記録ガイド</u></a></li>
-<li><a href="https://fake-location.techidaily.com/dose-life360-notify-me-when-someone-checks-my-location-on-sony-xperia-5-v-drfone-by-drfone-virtual-android/"><u>Dose Life360 Notify Me When Someone Checks My Location On Sony Xperia 5 V? | Dr.fone</u></a></li>
-<li><a href="https://tech-haven.techidaily.com/expert-tips-for-fixing-and-preventing-slow-response-times-in-logitech-mice/"><u>Expert Tips for Fixing and Preventing Slow Response Times in Logitech Mice</u></a></li>
-<li><a href="https://article-tips.techidaily.com/free-logos-sculpt-your-brand-with-stock-imagery-for-2024/"><u>Free Logos Sculpt Your Brand with Stock Imagery for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-streamline-your-screen-share-with-enhanced-zoom-on-google-meet/"><u>In 2024, Streamline Your Screen Share with Enhanced Zoom on Google Meet</u></a></li>
-<li><a href="https://article-tips.techidaily.com/leading-ai-photographic-composer/"><u>Leading AI Photographic Composer</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/the-ultimate-walkthrough-for-setting-up-your-fire-stick-through-cellular-hotspots/"><u>The Ultimate Walkthrough for Setting Up Your Fire Stick Through Cellular Hotspots</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unlock-epic-video-with-gopro-time-lapse-strategies-for-2024/"><u>Unlock Epic Video with GoPro Time Lapse Strategies for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-acknowledgement-pack-free-and-paid-otus-ready/"><u>[Updated] Acknowledgement Pack Free & Paid OTUs Ready</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-transform-textual-treasures-ae-font-exploration/"><u>[Updated] In 2024, Transform Textual Treasures AE Font Exploration</u></a></li>
+<li><a href="https://extra-support.techidaily.com/updated-maximizing-your-iphones-creative-capabilities/"><u>[Updated] Maximizing Your iPhone's Creative Capabilities</u></a></li>
+<li><a href="https://article-tips.techidaily.com/essential-vr-game-guide-top-8-on-oculus-for-2024/"><u>Essential VR Game Guide Top 8 on Oculus for 2024</u></a></li>
+<li><a href="https://location-social.techidaily.com/how-to-change-your-oppo-reno-11-pro-5g-location-on-twitter-drfone-by-drfone-virtual-android/"><u>How to Change your Oppo Reno 11 Pro 5G Location on Twitter | Dr.fone</u></a></li>
+<li><a href="https://review-topics.techidaily.com/how-to-xiaomi-redmi-note-13-pro-5g-get-deleted-photos-back-with-ease-and-safety-by-fonelab-android-recover-photos/"><u>How to Xiaomi Redmi Note 13 Pro 5G Get Deleted photos Back with Ease and Safety?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-top-10-audio-change-tools-enhancing-virtual-presence/"><u>In 2024, Top 10 Audio Change Tools Enhancing Virtual Presence</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/pioneering-methods-to-develop-a-memorable-youtube-introduction/"><u>Pioneering Methods to Develop a Memorable YouTube Introduction</u></a></li>
+<li><a href="https://win-blog.techidaily.com/top-6-solutions-to-stop-hogwarts-legacy-game-lag/"><u>Top 6 Solutions to Stop Hogwarts Legacy Game Lag !</u></a></li>
 </ul></div>
 

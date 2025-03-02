@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Ultimate List of Public Domain Picture Banks\""
-date: 2024-08-08T03:13:51.963Z
-updated: 2024-08-09T03:13:51.963Z
+date: 2025-02-24T19:04:18.378Z
+updated: 2025-03-02T17:56:20.483Z
 tags: 
   - screen-recording
   - ai video
@@ -32,9 +32,6 @@ Pexels is one of the largest free stock photo sites online. The site has over 50
 
 Pexels' images have various categories, including nature, food, objects, and architecture. You can also browse by keyword or search by image type, such as "food" or "people.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BGmail%2BBackup"><img src="https://www.systoolsgroup.com/box/gmail-backup.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 2\. Unsplash
 
 ![unsplash](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-02.JPG)
@@ -53,9 +50,6 @@ Kaboompics is a free stock photo site that offers a good selection of images. Th
 
 Kaboompics also has a "free commercial" section which provides more than 1 million images for your commercial projects without any restrictions or attribution required.
 
-<!-- affiliate ads begin -->
-<a href="https://ephamedtechinc.pxf.io/c/5597632/2095369/26400" target="_top" id="2095369"><img src="//a.impactradius-go.com/display-ad/26400-2095369" border="0" alt="" width="1024" height="512"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2095369/26400" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 4\. Pixabay
 
 ![pixabay](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-04.JPG)
@@ -64,9 +58,6 @@ Pixabay is one of the most popular websites for free images. It has a wide range
 
 The site is easy to navigate and searchable by keyword or category. You can also browse by "popular" images, which will show you what other people are looking at on Pixabay at any given time.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/728__90banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 5\. Snappa
 
 ![snappa](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-05.JPG)
@@ -77,9 +68,6 @@ The site has an extensive library of free stock photos, vectors, mockups, and te
 
 It can be a little hard to find exactly what you're looking for as there are so many options; if you have trouble finding what you want in Snappa's search engine, try clicking on one of the categories listed above to narrow it down some more.
 
-<!-- affiliate ads begin -->
-<a href="https://store.movavi.com/affiliate.php?ACCOUNT=MOVAVI&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.movavi.com%3FAFFILIATE%3D108875%26RESOURCE%3DMovavi%2BVideo%2BEditor%2Bbox"><img src="https://mcusercontent.com/0885a03ded3d480dca9287f12/images/6d3207fd-9f15-4c21-f0ad-59c68e6a7e2a.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 6\. Freerange
 
 ![freerange](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-06.JPG)
@@ -88,9 +76,6 @@ Freerange is a photo agency that offers free and premium photos.
 
 The site has a wide range of subjects, including nature, animals, food, etc. Photos are high-quality, royalty-free images you can use commercially if you choose.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4620778&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/07dd4d5a72f5740ef0f035f201951476/300__250banner.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 7\. Shutterstock Collection
 
 ![shutterstocks collection](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-07.JPG)
@@ -99,9 +84,6 @@ One of the best places to get free images is Shutterstock. They have a collectio
 
 You can search through the site's entire collection or narrow it down by category (e.g., animals or nature). You can also download all images in full resolution or view them as thumbnails on their website.
 
-<!-- affiliate ads begin -->
-<a href="https://estore.winxdvd.com/order/checkout.php?PRODS=4612444&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.winxdvd.com/affiliate/new-banner/pt-728x90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ## 8\. Morguefile
 
 ![morguefile](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-08.JPG)
@@ -110,29 +92,16 @@ Morguefile is a free photo archive founded in 1996, during the early days of the
 
 Here, you can find free, high-resolution digital stock photos for business or public use. The images are available in various formats and high quality to meet the needs of various scenarios, such as cartoonists, comic book artists, designers, educators, and all creative arts.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.copernic.com/order/checkout.php?PRODS=41033091&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.2checkout.com/images/merchant/8d30aa96e72440759f74bd2306c1fa3d/Copernic-2023-Affiliate-728x90-Advanced.png" border="0"></a>
-<!-- affiliate ads end -->
 ## 9\. Dreamstime Images
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![dreamstime images](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-09.JPG)
 
 Dreamstime is a stock photography website with over 20 million images. It allows you to search for images by keyword, color, and style. Dreamstime also offers thousands of different licenses, from $1 to $50 per image.
 
 If you're looking for something specific, Dreamstime has many categories, including animals, architecture, people, nature, and more.
 
-<!-- affiliate ads begin -->
-<a href="https://laganoo.pxf.io/c/5597632/1657399/16446" target="_top" id="1657399"><img src="//a.impactradius-go.com/display-ad/16446-1657399" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1657399/16446" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## 10\. CC Search
 
-<!-- affiliate ads begin -->
-<a href="https://shop.emeditor.com/order/checkout.php?PRODS=4610657&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.emeditor.com/wp-content/uploads/2024/06/emeditor_chat_ai.png" border="0">
-EmEditor is a fast, lightweight, yet extensible, easy-to-use text editor, code editor, CSV editor, and large file viewer for Windows. Both native 64-bit and 32-bit builds are available, and moreover, the 64-bit includes separate builds for SSE2 (128-bit), AVX-2 (256-bit), and AVX-512 (512-bit) instruction sets. New versions support AI-assisted writing.</a>
-<!-- affiliate ads end -->
 ![cc search](https://images.wondershare.com/filmora/article-images/2022/12/10-sites-to-get-free-images-10.JPG)
 
 CC Search is a search engine for Creative Commons photos, which means you can use the images on your website without paying anything. CC Search has an extensive collection of images to choose from, and they are all free. Just type your keyword in the search bar, and you'll find plenty of relevant results.
@@ -173,6 +142,21 @@ Remember, if you're looking for images that aren't copyrighted or stock photos, 
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-add-personality-to-your-device-a-comprehensively-tailored-sound-and-ringtone-guide-for-android/"><u>[New] 2024 Approved Add Personality to Your Device A Comprehensively Tailored Sound & Ringtone Guide for Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-the-m1-market-the-top-pick-for-apple-enthusiasts/"><u>[New] In 2024, Mastering the M1 Market The Top Pick for Apple Enthusiasts</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-2024-approved-effortless-youtube-content-crafting-10-basic-video-ideas-for-all/"><u>[Updated] 2024 Approved Effortless YouTube Content Crafting 10 Basic Video Ideas for All</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-how-to-create-a-google-meet-account/"><u>[Updated] 2024 Approved How to Create a Google Meet Account</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-techniques-to-achieve-consistent-frame-rates-in-obs-studio/"><u>[Updated] 2024 Approved Techniques to Achieve Consistent Frame Rates in OBS Studio</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-crystal-clear-comparison-rating-the-best-8k-tvs-of-year-for-2024/"><u>[Updated] Crystal Clear Comparison Rating the Best 8K TVs of Year for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-behind-the-scenes-how-apples-m1-max-attachments-work/"><u>[Updated] In 2024, Behind-the-Scenes How Apple’s M1 Max Attachments Work</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-browse-and-compare-leading-affordable-quality-webm-streamers/"><u>[Updated] In 2024, Browse and Compare Leading Affordable, Quality WebM Streamers</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-in-2024-the-ultimate-high-definition-showdown-comparing-8k-tvs/"><u>[Updated] In 2024, The Ultimate High-Definition Showdown Comparing 8K TVs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-unleash-creative-potential-a-detailed-breakdown-of-photoshops-background-eraser-feature/"><u>[Updated] In 2024, Unleash Creative Potential A Detailed Breakdown of Photoshop's Background Eraser Feature</u></a></li>
+<li><a href="https://buynow-reviews.techidaily.com/budget-rc-helicopter-unveiled-the-holy-stone-hs170-predator-mini-drones-tested-and-revealed/"><u>Budget RC Helicopter Unveiled: The Holy Stone HS170 Predator Mini Drones Tested and Revealed</u></a></li>
+<li><a href="https://blog-min.techidaily.com/die-effektivste-methode-zum-kombinieren-mehrerer-mp4-video-dateien/"><u>Die Effektivste Methode Zum Kombinieren Mehrerer MP4-Video-Dateien</u></a></li>
+<li><a href="https://windows11.techidaily.com/essential-insights-access-and-customize-your-fax-cover-in-win11/"><u>Essential Insights: Access & Customize Your Fax Cover in Win11</u></a></li>
+<li><a href="https://facebook.techidaily.com/redefining-relationships-facebooks-launch-into-a-new-era-as-meta/"><u>Redefining Relationships: Facebook’s Launch Into a New Era as Meta</u></a></li>
+</ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "[Updated] Professional Tips for Erasing Borders in Canva Graphics"
-date: 2025-02-07T16:22:28.555Z
-updated: 2025-02-11T18:48:16.019Z
+date: 2025-02-23T20:12:27.873Z
+updated: 2025-03-02T18:44:30.388Z
 tags: 
   - screen-recording
   - ai video
@@ -35,10 +35,6 @@ Canva is beloved by bloggers and small businesses for its simple, intuitive desi
 
 Here's a quick step-by-step guide on how to use Canva to remove the background from an image on PC or mobile:
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OFDHJnZLwTA?si=WThcb2h76AnZDzcQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### On PC
 
 To remove the image's background in Canva using your PC, follow the steps below:
@@ -53,10 +49,6 @@ Step2 Click **"Create a Design"** and select **"Edit Photo."** Click the **"Use 
 
 ![remove an image background in canva on pc](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-canva-on-pc.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/E3yY7lZ-FKA?si=g8VEuExP8GH59B69" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Now, you will be directed to a new tab. Select your image and click the **"Edit Image"** option from the top ribbon.
 
 Step4 From the left side menu, click **"Background Remover."** Wait for the background to be processed and click **"Erase."** You can also use the cursor brush to remove the sides manually.
@@ -64,10 +56,6 @@ Step4 From the left side menu, click **"Background Remover."** Wait for the back
 ![background remover in canva](https://images.wondershare.com/filmora/article-images/2023/03/background-remover-in-canva.png)
 
 Once the background is disappeared, click **"Apply"** to save your changes.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### On Mobile
 
@@ -77,10 +65,6 @@ Step1 Install Canva from [App Store](https://apps.apple.com/us/app/canva-design-
 
 ![remove an image background in canva on mobile](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-canva-on-mobile.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/gyGoQi7hsZk?si=8OcKcPUj2wSBmVZ1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Go to the **"More Ways To Create"** section and tap the **"See All"** option. Select your image and tap **"Create"** at the top right corner of the screen.
 
 Step3 Next, tap the **"Effects"** option from the menu below and select **"BG Remover."** Wait for the tool to process your image and remove the background.
@@ -88,10 +72,6 @@ Step3 Next, tap the **"Effects"** option from the menu below and select **"BG Re
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** The **"Background Remover"** is available only in the premium version, letting you remove BG from up to 500 images daily.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/d-COuhPT5mk?si=wLZU6jkkAdJuAn6h" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Facilitate Functions Of Removing Image's Background More Accurately
 
@@ -163,10 +143,6 @@ Step2 Let the tool process your image, and the background will be removed instan
 
 ![remove an image background in pixcut](https://images.wondershare.com/filmora/article-images/2023/03/remove-an-image-background-in-pixcut.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/5EKBEujWCw4?si=PwVvvervi8OrYaEA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 In this article, we've explored how to remove an image's background using the web version and mobile app with quick and simple steps. However, if you want to learn more about Canva editor, [click here to learn the 10 secret tips](https://tools.techidaily.com/wondershare/filmora/download/).
@@ -183,14 +159,6 @@ Canva's Erase and Restore function makes it easy to remove image backgrounds. [W
 
 ![erase and restore options in canva](https://images.wondershare.com/filmora/article-images/2023/03/erase-and-restore-options-in-canva.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RJNYTGHVlLc?si=lhdUUVYMVQjzHXBh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/tPgf_wSdhS8?si=BHoH1ryaxmwk-8FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### To erase an element from an image
 
 Step1 Select the **Erase** brush from the left panel under the **Background Remover** option
@@ -206,10 +174,6 @@ Step1 Select the **Restore** brush from the left panel under the **Background Re
 Step2 Click on the **area** you want to restore.
 
 ![](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/GBWcw6rXIdg?si=Tlue44bW-bPA4tH9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** These tools are only available in the Canva web and desktop version.
 
@@ -289,22 +253,22 @@ Hopefully, you've found this article helpful and can now optimize your images in
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-helps.techidaily.com/new-2024-approved-best-4k-video-recorders-the-leading-18-models/"><u>[New] 2024 Approved Best 4K Video Recorders The Leading 18 Models</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-top-8-best-free-srt-translators-online-tips-to-choose/"><u>[New] 2024 Approved Top 8 Best Free SRT Translators Online (Tips to Choose)</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-detailed-close-ups-made-easy-in-videoleap-editing/"><u>[New] Detailed Close-Ups Made Easy in Videoleap Editing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-haptic-feedback-in-e-commerce-trials/"><u>[New] Haptic Feedback in E-Commerce Trials</u></a></li>
-<li><a href="https://tiktok-clips.techidaily.com/new-in-2024-3-strategies-for-tiktok-livestreaming-from-desktop/"><u>[New] In 2024, 3 Strategies for TikTok Livestreaming From Desktop</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-in-2024-preserving-audio-broadcasts-a-simple-internet-radio-technique/"><u>[New] In 2024, Preserving Audio Broadcasts A Simple Internet Radio Technique</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-top-11-techniques-for-spectacular-color-enhancement-for-2024/"><u>[New] Top 11 Techniques for Spectacular Color Enhancement for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/new-transform-video-beats-into-ringtones-must-visit-sites-explored-for-2024/"><u>[New] Transform Video Beats Into Ringtones Must-Visit Sites Explored for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-unmatched-gaming-laptops-top-4k-picks-reviewed-for-2024/"><u>[New] Unmatched Gaming Laptops - Top 4K Picks Reviewed for 2024</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/ed-2024-approved-strategies-to-arrange-content-in-youtube-media/"><u>[Updated] 2024 Approved Strategies to Arrange Content in YouTube Media</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/ed-low-investment-high-rewards-channel-size-doesnt-deter-sponsorship-for-2024/"><u>[Updated] Low-Investment, High Rewards Channel Size Doesn't Deter Sponsorship for 2024</u></a></li>
-<li><a href="https://games-able.techidaily.com/behind-the-blogosphere-why-we-should-doubt-critics/"><u>Behind the Blogosphere: Why We Should Doubt Critics</u></a></li>
-<li><a href="https://win-webmaster.techidaily.com/efficiently-remove-empty-areas-from-your-pc-the-best-techniques-for-windows-tips-and-tricks-to-erase-untouched-disk-space-on-a-windows-10-machine/"><u>Efficiently Remove Empty Areas From Your PC: The Best Techniques for Windows # Tips and Tricks to Erase Untouched Disk Space on a Windows 10 Machine</u></a></li>
-<li><a href="https://article-tips.techidaily.com/essential-tips-for-ordering-photos-on-iphone-with-icloud-backup-for-2024/"><u>Essential Tips for Ordering Photos on iPhone, With iCloud Backup for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-a-visual-voyage-with-toolwiz-comprerande-review-2023-edition/"><u>In 2024, A Visual Voyage with Toolwiz Comprerande Review, 2023 Edition</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/in-2024-maximizing-action-footage-with-gopro-a-comparison-between-max-360-and-hero-11/"><u>In 2024, Maximizing Action Footage with GoPro A Comparison Between Max 360 and Hero 11</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-pro-4k-capture-the-definitive-seven-cameras/"><u>In 2024, Pro 4K Capture The Definitive Seven Cameras</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2022s-pinnacle-moments-in-snowboarding-x-for-2024/"><u>[New] 2022'S Pinnacle Moments in Snowboarding X for 2024</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-exquisite-drone-fleet-the-pinnacle-of-visual-artistry/"><u>[New] Exquisite Drone Fleet The Pinnacle of Visual Artistry</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-fostering-fun-with-metaverse-satirical-artifacts/"><u>[New] Fostering Fun with Metaverse Satirical Artifacts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-discovering-phantoms-temporal-expansion-capabilities/"><u>[New] In 2024, Discovering Phantom's Temporal Expansion Capabilities</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-improving-the-endurance-of-your-gopro-power-source/"><u>[Updated] 2024 Approved Improving the Endurance of Your GoPro Power Source</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-organizing-your-iphones-picture-collection-from-sorting-to-icloud-backing-up/"><u>[Updated] 2024 Approved Organizing Your iPhone's Picture Collection From Sorting to iCloud Backing Up</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-elevate-your-space-top-cloud-choices/"><u>[Updated] Elevate Your Space Top Cloud Choices</u></a></li>
+<li><a href="https://some-tips.techidaily.com/updated-ultimate-selection-best-idevice-custom-alerts/"><u>[Updated] Ultimate Selection Best iDevice Custom Alerts</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-blueprints-to-hiring-creative-cinematographers/"><u>2024 Approved Blueprints to Hiring Creative Cinematographers</u></a></li>
+<li><a href="https://screen-mirror.techidaily.com/in-2024-3-methods-to-mirror-samsung-galaxy-xcover-6-pro-tactical-edition-to-roku-drfone-by-drfone-android/"><u>In 2024, 3 Methods to Mirror Samsung Galaxy XCover 6 Pro Tactical Edition to Roku | Dr.fone</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-4-ways-to-transfer-music-from-oneplus-ace-2v-to-iphone-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 4 Ways to Transfer Music from OnePlus Ace 2V to iPhone | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-apples-m1-pro-versus-the-powerhouse-m1-max-what-to-note/"><u>In 2024, Apple's M1 Pro Versus the Powerhouse M1 Max - What to Note?</u></a></li>
+<li><a href="https://tiktok-clips.techidaily.com/in-2024-secrets-of-creating-a-bespoke-tiktok-hashtag/"><u>In 2024, Secrets of Creating a Bespoke TikTok Hashtag</u></a></li>
+<li><a href="https://hardware-updates.techidaily.com/navigating-tech-toms-authoritative-guide-to-electronics-and-computers/"><u>Navigating Tech: Tom's Authoritative Guide to Electronics and Computers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/rhythmic-reflections-in-photo-cinema-for-2024/"><u>Rhythmic Reflections in Photo Cinema for 2024</u></a></li>
+<li><a href="https://win-dash.techidaily.com/step-by-step-guide-to-downloading-and-setting-up-atheros-drivers-in-windows/"><u>Step-by-Step Guide to Downloading and Setting up Atheros Drivers in Windows</u></a></li>
+<li><a href="https://youtube-video-recordings.techidaily.com/unveiling-the-mechanisms-that-govern-youtube-after-a-video-is-live/"><u>Unveiling the Mechanisms That Govern YouTube After a Video Is Live</u></a></li>
 </ul></div>
 

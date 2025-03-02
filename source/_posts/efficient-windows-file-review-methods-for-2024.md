@@ -1,7 +1,7 @@
 ---
 title: "Efficient Windows File Review Methods for 2024"
-date: 2024-07-29T02:20:11.688Z
-updated: 2024-07-30T02:20:11.688Z
+date: 2025-02-28T18:50:16.403Z
+updated: 2025-03-02T19:11:56.659Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/bb9b7157cde51ae69f835473474384e7538166f29
 
 Windows operating system comes with an inbuilt file preview feature embedded in Explorer. This feature lets you preview documents and images before uploading them on apps like Skype, Facebook, and more. But what happens if you want to preview videos, audio, spreadsheets, ZIP, and more? In that case, install **QuickLook for Windows**. So, what exactly is **QuickLook for Windows 10,** and where can you get this app? For answers and more, read to the end.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2048963/16384" target="_top" id="2048963"><img src="//a.impactradius-go.com/display-ad/16384-2048963" border="0" alt="" width="1200" height="900"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2048963/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: Download Quick Look App on Microsoft Store
 
 If your computer is always handling documents, spreadsheets, PDFs, presentations, images, and other files, it’s probably time to install **QuickLook for Mac** and Windows. This intelligent program lets you quickly preview files without opening them on separate apps. Just think of it as the “file viewer” feature on Windows File Explorer, which allows you to view files before loading online or opening them on local apps. Of course, this can help you know which app can open the file and if it’s the correct file to open.
@@ -33,9 +30,6 @@ Below is how to install and use QuickLook by Paddy Xu:
 
 Step1 Open Microsoft Store and search for QuickLook. Make sure you select the option published by Paddy Xu.
 
-<!-- affiliate ads begin -->
-<a href="https://otszone.ots7.com/order/checkout.php?PRODS=4713322&QTY=1&AFFILIATE=108875&CART=1"><img src="https://green.ots7.com/screenshots/OtsAV/OtsAVRadio1.90-300x188.jpg" border="0">OtsAV Radio Webcaster</a>
-<!-- affiliate ads end -->
 ![search for quicklook for windows on Microsoft store](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-1.jpg)
 
 Step2 Once you find QuickLook, click “Get it” to download and install the app in your Windows operating system. At around 60MB, installing this preview app should be quick and easy.
@@ -54,32 +48,20 @@ So, without wasting time, let’s go through the steps to download the QuickLook
 
 Step1 Visit the [QuickLook GitHub](https://github.com/QL-Win/QuickLook) page and then navigate to Releases. Click the latest version.
 
-<!-- affiliate ads begin -->
-<a href="https://store.revouninstaller.com/order/checkout.php?PRODS=27889512&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/4282ec8de8c9be897e7aff4aa231b1a4/728__90.jpg" border="0"></a>
-<!-- affiliate ads end -->
 ![click the latest quicklook for windows version](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-3.jpg)
 
 Step2 Scroll down and download the .msi file. After downloading the installation file successfully, install it on your computer.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=42570605&QTY=1&AFFILIATE=108875&CART=1"><img src="http://cdnwww.nero.com/nero-com-wAssets/img/banners/2023/usbXcopy/Nero_USB_x_copy_Screen_2.png" border="0"></a>
-<!-- affiliate ads end -->
 ![install the quicklook for windows msi](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-4.jpg)
 
 Step3 Now go back to the QuickLook GitHub home page and click [plugin](https://github.com/QL-Win/QuickLook/wiki/Available-Plugins). Then, download the plugins to add additional preview capabilities to Microsoft QuickLook. For example, install the FontViewer, FFmpeg, and OfficeViewer plugins by clicking the respective “Link” buttons.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![install quicklook for windows plugins](https://images.wondershare.com/filmora/article-images/2022/09/quicklook-for-windows-5.jpg)
 
 Step4 After a successful installation, find the file you want to preview and select it. Then, tap the space bar to preview the files. And remember, browse ZIP files to view all content.
 
 **Pro tip**: We recommend installing the QuickLook OfficeViewer plugin to rip open your Office files and view the content inside. This method is recommended if you haven’t installed Microsoft Office on your PC. However, you might notice that the OfficeViewer plugin isn’t supported on your Windows PC. So to install OfficeViewer, select the file and click the space bar to preview it on QuickLook. Then, tap the “Click here to install this plugin” button. Now restart QuickLook and view all your office documents without opening them on their respective programs.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3DSysTools%2BSQL%2BRecovery"><img src="https://www.systoolsgroup.com/box/sql-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Part 3: Should We Expect Built-in Quick Look on Windows in the Future?
 
 Mac users have enjoyed the powerful QuickLook capabilities for at least 15 years. But are we going to see QuickLook coming to Windows 10/11 anytime soon? According to sources, plans are already underway to add this feature to Microsoft Windows and rename it Peek. After selecting a file on Explorer, simply tap the Shift + Space bar to preview the content. Like the macOS version, you can preview PDFs, Excels, Words, images, videos, audio, and pretty much anything.
@@ -134,4 +116,22 @@ This guidepost is another testament that your PC has massive hidden abilities. W
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-how-to-channel-your-inner-metaverse-wit/"><u>[New] 2024 Approved How to Channel Your Inner Metaverse Wit</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-video-editing-made-easy-how-to-proficiently-use-movie-maker-in-win11/"><u>[New] In 2024, Video Editing Made Easy How to Proficiently Use Movie Maker in Win11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-zipped-texts-to-subtitles-converting-files-in-a-flash-for-2024/"><u>[New] Zipped Texts to Subtitles Converting Files in a Flash for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-exchanging-visuals-android-iphone-content-transfer/"><u>[Updated] 2024 Approved Exchanging Visuals Android-iPhone Content Transfer</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-improving-zoom-hd-quality-quick-fixes/"><u>[Updated] Improving Zoom HD Quality Quick Fixes</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/updated-in-2024-snaptweet-transporter-swift-transfer-of-tweets-content/"><u>[Updated] In 2024, SnapTweet Transporter Swift Transfer of Tweets' Content</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/2024-approved-expert-strategies-obs-streams-to-facebook-success/"><u>2024 Approved Expert Strategies OBS Streams to Facebook Success</u></a></li>
+<li><a href="https://win11.techidaily.com/finding-the-pathway-system32-in-win11/"><u>Finding the Pathway: System32 in Win11</u></a></li>
+<li><a href="https://screen-activity-recording.techidaily.com/get-it-right-a-beginners-guide-to-iphone-screen-shots/"><u>Get It Right A Beginner's Guide to iPhone Screen Shots</u></a></li>
+<li><a href="https://blog-min.techidaily.com/how-to-restore-wiped-messages-on-infinix-note-30-vip-racing-edition-by-fonelab-android-recover-messages/"><u>How to restore wiped messages on Infinix Note 30 VIP Racing Edition</u></a></li>
+<li><a href="https://article-tips.techidaily.com/how-to-take-long-exposure-shots-with-iphone-for-2024/"><u>How to Take Long Exposure Shots with iPhone for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-techniques-for-ios-users-producing-and-transforming-tranquil-videos/"><u>In 2024, Techniques for iOS Users Producing and Transforming Tranquil Videos</u></a></li>
+<li><a href="https://some-tips.techidaily.com/maximize-iphone-efficiency-discover-the-power-of-concealed-voice-prompts-with-our-ultimate-tutorial-from-zdnet/"><u>Maximize iPhone Efficiency: Discover the Power of Concealed Voice Prompts with Our Ultimate Tutorial From ZDNET</u></a></li>
+<li><a href="https://facebook-video-recording.techidaily.com/professional-recording-methods-for-your-social-video-sessions/"><u>Professional Recording Methods for Your Social Video Sessions</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/the-ultimate-hack-swiftly-delete-your-youtube-comments-for-2024/"><u>The Ultimate Hack Swiftly Delete Your YouTube Comments for 2024</u></a></li>
+</ul></div>
 

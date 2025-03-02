@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Rapid Races Recap  Olympic 2022 Short-Track Sprints\""
-date: 2025-02-05T18:44:55.143Z
-updated: 2025-02-11T17:07:03.396Z
+date: 2025-02-23T16:46:27.819Z
+updated: 2025-03-02T16:13:39.745Z
 tags: 
   - screen-recording
   - ai video
@@ -45,10 +45,6 @@ Russia’s Semen Elistratov wins the bronze medal.
 
 ![elistratovb wins the bronze medal](https://images.wondershare.com/filmora/article-images/elistratov-wins-the-bronze-medal.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OdlXe5RELW0?si=Iz1H1QnLQVw-Eu3e" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Hwang Dae-heon beats Steven Dubois by the tightest margin of 0.035 seconds.
 
 ![hwang beats steven dubois](https://images.wondershare.com/filmora/article-images/hwang-beats-steven-dubois.jpg)
@@ -69,10 +65,6 @@ Gold medalist Hwang Dae-heon of South Korea poses for the cameras during the awa
 
 ![gold medalist hwang](https://images.wondershare.com/filmora/article-images/gold-medalist-hwang.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MTb4xHzeQEk?si=9Sqq-gFWnHc8x3_P" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. How to create a video to combine the highlights of short track speed skating 2022?
 
 The best way to present any news related to any sports event is to create a short video containing all the highlights of the event. For example, you can create a video combining all the highlights of short track speed skating 2022 that we have presented in the previous section. You can also collect short clips of the event from social media platforms that have been captured by audiences.
@@ -86,10 +78,6 @@ To create such a highlight video on any sports event, there are certain videos e
 **Motion Tracking** – Using motion tracking, you can track the movement of a particular object or athlete in a video. This helps to attach certain elements such as clipart, text, icon to that particular athlete throughout the video for easy identification by the viewers.
 
 **Pan and Zoom** – Pan and Zoom is the most commonly used video effect that is applied to still footage. While the footage zooms out, texts and titles are shown or a voiceover is played so that the graphic on the screen does not stay static.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/QPAKth3O_5c?si=M69YSY0Mk_gsdU0Q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### A Professional [Video Editor](https://tools.techidaily.com/wondershare/filmora/download/)
 
@@ -109,10 +97,6 @@ Step 1: Download and install Filmora on your computer. Launch the application an
 
 ![filmora screen recorder](https://images.wondershare.com/filmora/article-images/filmora-record-screen.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/w7c5EHp-GDw?si=UTw7lZR0wTmRjp8W" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step 2: Go to File > Project Settings and set the aspect ratio and resolution as well as frame rate as required.
 
 Step 3: Go to Import > Import Media Files and bring in all the still footages and short clips you have collected. You can also use the option Import with Instant Cutter Tool to trim the footages and clips for uniformity.
@@ -122,10 +106,6 @@ Step 4: Add all the still footages and clips on the Video Timeline while add aud
 Step 5: Select individual slides and apply Transition, Effects or add Titles and Elements from the top bar.
 
 Step 6: When all the editing work is done, click on Export to save the video on your hard drive and publish online.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6xGqSETroqA?si=4C1GPgXi-AksR_oO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -150,16 +130,18 @@ South Korean skater Hwang Dae-heon has won the gold medal in men’s short track
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://fox-blue.techidaily.com/new-audiovisual-excellence-top-5-premium-slow-motion-gear-for-2024/"><u>[New] Audiovisual Excellence Top 5 Premium Slow-Motion Gear for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-how-to-create-text-memes-with-meme-text-generator-for-2024/"><u>[New] How to Create Text Memes with Meme Text Generator for 2024</u></a></li>
-<li><a href="https://youtube-blog.techidaily.com/s-rapid-subscription-truly-effective-for-youtube-users-for-2024/"><u>[New] Is Rapid Subscription Truly Effective for YouTube Users for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-techniques-to-combat-unsteady-shot-dynamics-for-2024/"><u>[New] Techniques to Combat Unsteady Shot Dynamics for 2024</u></a></li>
-<li><a href="https://video-capture.techidaily.com/updated-2024-approved-aural-archive-discussion-and-judgment/"><u>[Updated] 2024 Approved Aural Archive Discussion & Judgment</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-top-5-best-value-camcorders-for-sports-and-stunts/"><u>[Updated] 2024 Approved Top 5 Best Value Camcorders for Sports and Stunts</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-trilltones-techniques-how-to-cut-and-download-tamil-songs/"><u>[Updated] In 2024, TrillTones Techniques How to Cut and Download Tamil Songs</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-vintage-visions-post-copyright-era-for-2024/"><u>[Updated] Vintage Visions Post-Copyright Era for 2024</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/discover-the-power-of-govees-latest-high-brightness-outdoor-lights-transform-your-space-this-saturday-and-sunday/"><u>Discover the Power of Govee's Latest High-Brightness Outdoor Lights – Transform Your Space This Saturday & Sunday!</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/in-2024-efficient-techniques-for-saving-online-meeting-transcripts/"><u>In 2024, Efficient Techniques for Saving Online Meeting Transcripts</u></a></li>
-<li><a href="https://ios-pokemon-go.techidaily.com/pokemon-go-no-gps-signal-heres-every-possible-solution-on-apple-iphone-7-drfone-by-drfone-virtual-ios/"><u>Pokemon Go No GPS Signal? Heres Every Possible Solution On Apple iPhone 7 | Dr.fone</u></a></li>
+<li><a href="https://extra-guidance.techidaily.com/new-metaverse-versus-multimetase-analyzing-their-core-disparities/"><u>[New] Metaverse Versus MultiMetase Analyzing Their Core Disparities</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-transforming-imagery-with-quantum-hdr-for-2024/"><u>[New] Transforming Imagery with Quantum HDR for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-explore-innovative-ways-for-sound-capture-in-modern-windows-11-pcs/"><u>[Updated] 2024 Approved Explore Innovative Ways for Sound Capture in Modern Windows 11 PCs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-how-to-turn-on-and-use-automatic-hdr-high-dynamic-range-in-windows-11/"><u>[Updated] 2024 Approved How to Turn On and Use Automatic HDR (High Dynamic Range) in Windows 11</u></a></li>
+<li><a href="https://fox-access.techidaily.com/2024-approved-digital-imagery-standards-rgb-and-its-successor-srgb/"><u>2024 Approved Digital Imagery Standards Rgb & Its Successor, Srgb</u></a></li>
+<li><a href="https://change-location.techidaily.com/a-working-guide-for-pachirisu-pokemon-go-map-on-vivo-y78t-drfone-by-drfone-virtual-android/"><u>A Working Guide For Pachirisu Pokemon Go Map On Vivo Y78t | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/apple-iphone-16-vs-iphone-15-key-factors-for-an-informed-upgrade-decision-zdnet/"><u>Apple iPhone 16 vs iPhone 15: Key Factors for an Informed Upgrade Decision - ZDNet</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-magic-photo-management-decoded-by-reviews/"><u>In 2024, Magic Photo Management Decoded by Reviews</u></a></li>
+<li><a href="https://win-best.techidaily.com/simple-and-secure-guide-resolving-the-phantom-windows-11-update-malware/"><u>Simple and Secure Guide: Resolving the Phantom Windows 11 Update Malware</u></a></li>
+<li><a href="https://article-tips.techidaily.com/sky-high-cloud-stashing-solutions-on-android/"><u>Sky-High Cloud Stashing Solutions on Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-key-to-crisp-clear-cinematography/"><u>The Key to Crisp, Clear Cinematography</u></a></li>
+<li><a href="https://fox-that.techidaily.com/the-ultimate-list-of-prevalent-iphone-display-troubles-fixes-inside/"><u>The Ultimate List of Prevalent iPhone Display Troubles - Fixes Inside</u></a></li>
+<li><a href="https://video-content-creator.techidaily.com/updated-2024-approved-the-ultimate-guide-to-video-resumes-4-best-makers-and-free-resources/"><u>Updated 2024 Approved The Ultimate Guide to Video Resumes 4 Best Makers and Free Resources</u></a></li>
 </ul></div>
 

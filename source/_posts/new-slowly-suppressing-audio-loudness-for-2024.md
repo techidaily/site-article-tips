@@ -1,7 +1,7 @@
 ---
 title: "[New] Slowly Suppressing Audio Loudness for 2024"
-date: 2025-01-24T09:14:54.498Z
-updated: 2025-01-30T09:10:24.806Z
+date: 2025-03-01T18:21:48.915Z
+updated: 2025-03-02T18:10:33.311Z
 tags: 
   - screen-recording
   - ai video
@@ -47,10 +47,6 @@ After selecting that, there will be an addition of a new automation clip to the 
 
 Step4 Due to the automation clip, you will be able to do a smooth transition in and out of that song or audio. Now, you can create a suitable volume for fading your sound. If you want to create another new automation, then click on the right. After that click on the left and drag it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nmj7aVvEeAs?si=OcR7USXKGyLcn09q" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. FL Studio Alternative to Fade Audio
 
 If you have the latest version of FL i.e., FL Studio 20, then it will allow you for multiple recordings. For this, you just have to build a looped region and then tap on ‘Record’. Now it will create new tracks of its own when it reaches the end region of the loop.
@@ -65,10 +61,6 @@ Step1 The first thing you have to do is successfully install the Filmora softwar
 
 ![install filmora software](https://images.wondershare.com/filmora/guide/adjust-video-1.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 To fade audio in, you have to go to the audio setting. Then drag the pointer to the fade-in option which is present on the right and then apply the duration.
 
 ![fade audio in](https://images.wondershare.com/filmora/guide/add-audio-fade-in-fade-out.jpg)
@@ -77,15 +69,7 @@ Step3 If you want your audio to fade out, again go to the audio setting. Then dr
 
 No matter which audio editing software, what matters is the learning outcome. Learn the features of different editing software and choose what is suitable for you. If you are a beginner, then watch some tutorial videos on YouTube and read some Quora on google. Those who are just interested in audio editing and want to learn more should first try out [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), whereas if you have a basic idea about FL Studio then you can definitely go for it.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/oySc0DiqmKc?si=8pynRzuhlq2RUPZ6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Related FAQs of FL Studio Audio Editing
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/l4R7_qNIQvY?si=2zJOPfEcm6_3udzn" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. How to fade out FL studio mobile?
 
@@ -115,10 +99,6 @@ No matter which audio editing software, what matters is the learning outcome. Le
 
 ## Related FAQs of FL Studio Audio Editing
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KdpTAZ9zonQ?si=5Nd5SPW1axA7GPuB" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. How to fade out FL studio mobile?
 
 If you want to fade out your audio in FL on your mobile phone, tap on the waveform icon which is present on the top left side of the audio. It will now open the drop-down menu where you can do automation and then select volume.
@@ -126,10 +106,6 @@ If you want to fade out your audio in FL on your mobile phone, tap on the wavefo
 ### 2\. How to crescendo in FL studio?
 
 If you want to do crescendo in FL Studio, you can apply certain automation on your volume slider and can use that for adding some dynamics. There is another way of doing this by manually changing all the notes’ velocities to the dynamics you want.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. What is declicking mode FL studio?
 
@@ -159,17 +135,18 @@ Declicking is an option that helps to remove ‘Clicks’ in the beginning or en
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-essential-tools-for-creative-video-content-for-2024/"><u>[New] Essential Tools for Creative Video Content for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-how-much-does-pewdiepie-make-yearly-financial-report/"><u>[New] How Much Does PewDiePie Make - Yearly Financial Report</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-in-2024-erasing-your-instagram-identity-step-by-step-guidebook/"><u>[New] In 2024, Erasing Your Instagram Identity Step-by-Step Guidebook</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-how-to-get-high-end-editing-power-for-free/"><u>[New] In 2024, How to Get High-End Editing Power for Free?</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-bygone-brilliance-art-beyond-intellectual-property/"><u>[Updated] In 2024, Bygone Brilliance Art Beyond Intellectual Property</u></a></li>
-<li><a href="https://blue-screen-error.techidaily.com/fixing-critical-system-failures-in-depth-solutions-for-the-infamous-blue-screen-and-kernel-data-errors-in-webpages/"><u>Fixing Critical System Failures: In-Depth Solutions for the Infamous Blue Screen and Kernel Data Errors in Webpages</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/how-to-resolve-it-takes-two-game-silent-playback-problems-on-your-computer/"><u>How to Resolve 'It Takes Two' Game Silent Playback Problems on Your Computer</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-how-to-use-special-features-virtual-location-on-honor-x50-gt-drfone-by-drfone-virtual-android/"><u>In 2024, How To Use Special Features - Virtual Location On Honor X50 GT? | Dr.fone</u></a></li>
-<li><a href="https://phone-solutions.techidaily.com/in-2024-methods-to-change-gps-location-on-tecno-spark-10c-drfone-by-drfone-virtual-android/"><u>In 2024, Methods to Change GPS Location On Tecno Spark 10C | Dr.fone</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/inside-the-micromobility-sphere-upcoming-events-latest-stories-and-insider-information/"><u>Inside the Micromobility Sphere: Upcoming Events, Latest Stories & Insider Information</u></a></li>
-<li><a href="https://article-tips.techidaily.com/the-ultimate-list-best-tvs-for-ps5xbox-series-x-games/"><u>The Ultimate List Best TVs for PS5/Xbox Series X Games</u></a></li>
-<li><a href="https://sound-issues.techidaily.com/troubleshooting-tips-for-resolving-sound-card-issues-with-the-steelseries-arctis-prime-gaming-headsets-microphone/"><u>Troubleshooting Tips for Resolving Sound Card Issues with the SteelSeries Arctis Prime Gaming Headset's Microphone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-exploring-high-frame-rate-filming-with-yi/"><u>[New] Exploring High Frame Rate Filming with YI</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-premier-editing-software-perfect-for-dev-screens/"><u>[New] Premier Editing Software Perfect for Dev Screens</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-the-instagram-virtuosos-playbook-for-widespread-popularity/"><u>[New] The Instagram Virtuoso's Playbook for Widespread Popularity</u></a></li>
+<li><a href="https://common-error.techidaily.com/expert-tips-for-unsticking-a-frozen-google-chrome-browser/"><u>Expert Tips for Unsticking a Frozen Google Chrome Browser</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/factory-reset-on-iphone-8-drfone-by-drfone-ios-system-repair-ios-system-repair/"><u>Factory Reset on iPhone 8 | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-premium-software-selection-upload-videos-for-twitter/"><u>In 2024, Premium Software Selection Upload Videos for Twitter</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-the-power-of-listening-understanding-your-youtube-audience/"><u>In 2024, The Power of Listening Understanding Your YouTube Audience</u></a></li>
+<li><a href="https://article-tips.techidaily.com/instant-annotation-text-overlaying-on-images-and-videos-using-windows-photos-for-2024/"><u>Instant Annotation Text Overlaying on Images & Videos Using Windows Photos for 2024</u></a></li>
+<li><a href="https://fox-http.techidaily.com/mastering-luts-premiere-pro-essentials/"><u>Mastering LUTs Premiere Pro Essentials</u></a></li>
+<li><a href="https://fix-guide.techidaily.com/motorola-edge-40-neo-bootloop-problem-how-to-fix-it-without-data-loss-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Motorola Edge 40 Neo Bootloop Problem, How to Fix it Without Data Loss | Dr.fone</u></a></li>
+<li><a href="https://video-ai-editor.techidaily.com/new-free-8-best-tools-to-make-animated-photo-easily-for-2024/"><u>New FREE 8 Best Tools to Make Animated Photo Easily for 2024</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/optimized-vmware-backup-strategies-seamless-snapshot-management-and-file-preservation-services/"><u>Optimized VMware Backup Strategies: Seamless Snapshot Management & File Preservation Services</u></a></li>
+<li><a href="https://fox-zero.techidaily.com/transform-your-tech-adventure-the-essential-guide-to-initiating-windows-server-2019/"><u>Transform Your Tech Adventure: The Essential Guide to Initiating Windows Server 2019</u></a></li>
 </ul></div>
 

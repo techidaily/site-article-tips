@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, The Symphony of Silence Breakers  Crafting Your Own Custom Alerts & Sounds on Android\""
-date: 2025-02-09T18:37:10.837Z
-updated: 2025-02-11T17:31:04.274Z
+date: 2025-02-25T18:23:11.255Z
+updated: 2025-03-02T19:50:38.881Z
 tags: 
   - screen-recording
   - ai video
@@ -62,10 +62,6 @@ Step2 Click on the **"Import"** option to add an MP3 file.
 
 ![adding an mp3 file in filmora](https://images.wondershare.com/filmora/article-images/2023/03/adding-an-mp3-file-in-filmora.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/RhLjZsruC9M?si=-861oUSfrUde2Ykt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Drag the MP3 file and drop it into the **"Timeline Panel"** present at the bottom.
 
 ![adding an mp3 file to the timeline](https://images.wondershare.com/filmora/article-images/2023/03/adding-an-mp3-file-to-the-timeline.png)
@@ -148,14 +144,6 @@ Repeat the above steps to set MP3 ringtones for other contacts on your Android p
 
 ![select customized mp3 file from sound picker](https://images.wondershare.com/filmora/article-images/2023/03/select-customized-mp3-file-from-sound-picker.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/eMEJvwMM0vk?si=EQF_jo_4u9v5iJ_C" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Conclusion
 
 In this comprehensive article, we dug deep into finding an easy way to add custom ringtones and sounds to your Android phone. We also shared a simple method to trim large MP3 files using Wondershare Filmora to sort the storage issues without affecting the audio quality.
@@ -193,25 +181,13 @@ Step3 Drag the MP3 file and drop it into the **"Timeline Panel"** present at the
 
 ![adding an mp3 file to the timeline](https://images.wondershare.com/filmora/article-images/2023/03/adding-an-mp3-file-to-the-timeline.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aoMiYpYiFZs?si=qvYvGytDD17fvSXO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Click the MP3 file, and a double arrow will appear. Drag the double arrow on the MP3 file to select a part that you want to trim. Now, click the **"Split"** option to delete the selected part.
 
 ![select and trim the mp3 file](https://images.wondershare.com/filmora/article-images/2023/03/select-and-trim-the-mp3-file.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/On0Jw2oMZf0?si=Pm-FJoEt8XWmtMbr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step5 Click the **"Export"** option and export the newly created MP3 file in MP3 format.
 
 ![export the mp3 file in mp3 format](https://images.wondershare.com/filmora/article-images/2023/03/export-the-mp3-file-in-mp3-format.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/X18Dq7rV-xI?si=twFfXIPD0TFmC5EM" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## How to Set an MP3 File as a Ringtone on Android?
 
@@ -253,10 +229,6 @@ Step3 A list of default notification sounds will open up. To select the trimmed 
 
 ![tap + button to add trimmed mp3 filee](https://images.wondershare.com/filmora/article-images/2023/03/tap-button-to-add-trimmed-mp3-filee.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YZma8PBO0D8?si=9-qQgGVTuChYd27a" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 Select the customized sound and tap **"Save."** Now you have successfully set a customized MP3 file as a notification sound.
 
 ![select customized sound and tap save](https://images.wondershare.com/filmora/article-images/2023/03/select-customized-sound-and-tap-save.PNG)
@@ -269,10 +241,6 @@ Step1 Open **"Contacts"** on your Android phone and select the contact number yo
 
 ![open contacts and select](https://images.wondershare.com/filmora/article-images/2023/03/open-contacts-and-select.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/3hS27nZVi9Y?si=_Zqj_l4a4XkPqT2S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step2 Tap the **"Edit"** option available at the bottom.
 
 ![tap edit option](https://images.wondershare.com/filmora/article-images/2023/03/tap-edit-option.PNG)
@@ -281,17 +249,9 @@ Step3 Tap the **"Ringtone"** option.
 
 ![tap ringtone option](https://images.wondershare.com/filmora/article-images/2023/03/tap-ringtone-option.PNG)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/cBCyRXC1-Tw?si=lN9P2xo0hsfyD8K6" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step4 A list of default ringtones will appear. If you want to add a customized ringtone, tap the **"+"** button on top.
 
 ![tap + button to add trimmed mp3 file](https://images.wondershare.com/filmora/article-images/2023/03/tap-button-to-add-trimmed-mp3-fille.PNG)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step5 Select the customized MP3 file from **"Sound Picker,"** and you are done.
 
@@ -331,17 +291,22 @@ Hopefully, you will find our article helpful, and you can now add customized rin
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://twitter-videos.techidaily.com/new-2024-approved-video-posting-pathway-for-twitter-and-tumblr-users/"><u>[New] 2024 Approved Video Posting Pathway for Twitter & Tumblr Users</u></a></li>
-<li><a href="https://remote-screen-capture.techidaily.com/new-achieve-high-quality-streams-youtube-and-twitch-via-obs-for-2024/"><u>[New] Achieve High-Quality Streams YouTube & Twitch via OBS for 2024</u></a></li>
-<li><a href="https://facebook-video-content.techidaily.com/new-beginners-pathway-to-livestreaming-on-facebook-and-mobile-devices-for-2024/"><u>[New] Beginner's Pathway to Livestreaming on Facebook and Mobile Devices for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-essential-tools-elevate-your-online-video-quality/"><u>[New] Essential Tools Elevate Your Online Video Quality</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-audio-amplification-adding-tracks-to-premiere-projects-with-ease/"><u>[New] In 2024, Audio Amplification Adding Tracks to Premiere Projects with Ease</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-visual-quality-crusade-is-av1-ahead-in-video-coding-in-2024/"><u>[New] Visual Quality Crusade Is AV1 Ahead in Video Coding, In 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-iconic-stop-motion-creations-15-greatest-of-all-time-for-2024/"><u>[Updated] Iconic Stop-Motion Creations - #15 Greatest of All Time for 2024</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/updated-top-6-online-background-cleansers-for-pristine-photo-edits/"><u>[Updated] Top 6 Online Background Cleansers for Pristine Photo Edits</u></a></li>
-<li><a href="https://facebook-video-files.techidaily.com/2024-approved-capturesocial-fb-videos-to-files/"><u>2024 Approved CaptureSocial FB Videos to Files</u></a></li>
-<li><a href="https://discover-fantastic.techidaily.com/fixing-invalid-value-in-registry-8-steps-for-resolving-jpeg-errors/"><u>Fixing 'Invalid Value' In Registry: 8 Steps for Resolving JPEG Errors</u></a></li>
-<li><a href="https://common-error.techidaily.com/how-to-fix-windows-cant-find-suitable-printer-driver-issue-effectively/"><u>How to Fix Windows Can't Find Suitable Printer Driver Issue Effectively</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-essential-tips-for-enhancing-voiceovers-in-presentations/"><u>In 2024, Essential Tips for Enhancing Voiceovers in Presentations</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/new-instagram-how-to-watch-videos-quickly-and-smoothly-for-2024/"><u>[New] Instagram How to Watch Videos Quickly & Smoothly for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-stack-videos-in-your-youtube-queue/"><u>[New] Stack Videos in Your YouTube Queue</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-quality-overload-top-10-hd-video-apps-for-your-android/"><u>[Updated] 2024 Approved Quality Overload Top 10 HD Video Apps for Your Android</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-the-comprehensive-selection-of-top-10-free-srt-changers/"><u>[Updated] 2024 Approved The Comprehensive Selection of Top 10 FREE SRT Changers</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-fastest-on-ice-olympic-highlights-in-short-track-events/"><u>[Updated] Fastest on Ice Olympic Highlights in Short Track Events</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-best-camcorder-selections-for-snowboardingskiing/"><u>[Updated] In 2024, Best Camcorder Selections for Snowboarding/Skiing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-premier-pick-top-10-apps-to-catch-football-and-tennis-in-the-moment-for-2024/"><u>[Updated] Premier Pick Top 10 Apps to Catch Football and Tennis in the Moment for 2024</u></a></li>
+<li><a href="https://youtube-videos.techidaily.com/2024-approved-captivating-yt-cover-art-for-maximum-traffic/"><u>2024 Approved Captivating YT Cover Art for Maximum Traffic</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/138579039-9781462020485-alayas-fables/"><u>Alaya's Fables | Free Book</u></a></li>
+<li><a href="https://driver-download.techidaily.com/get-the-newest-razer-naga-mouse-drivers-installed-in-your-windows-system/"><u>Get the Newest Razer Naga Mouse Drivers Installed in Your Windows System</u></a></li>
+<li><a href="https://article-tips.techidaily.com/hasten-your-windows-doc-analysis-process-for-2024/"><u>Hasten Your Windows Doc Analysis Process for 2024</u></a></li>
+<li><a href="https://android-frp.techidaily.com/in-2024-addrom-bypass-an-android-tool-to-unlock-frp-lock-screen-for-your-nokia-xr21-by-drfone-android/"><u>In 2024, AddROM Bypass An Android Tool to Unlock FRP Lock Screen For your Nokia XR21</u></a></li>
+<li><a href="https://unlock-android.techidaily.com/in-2024-complete-review-and-guide-to-techeligible-frp-bypass-and-more-for-vivo-s18-by-drfone-android/"><u>In 2024, Complete Review & Guide to Techeligible FRP Bypass and More For Vivo S18</u></a></li>
+<li><a href="https://article-posts.techidaily.com/in-2024-navigating-through-the-maze-creating-seamless-video-experienences-in-pixiz/"><u>In 2024, Navigating Through the Maze Creating Seamless Video Experienences in Pixiz</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-reasons-why-pokemon-gps-does-not-work-on-motorola-moto-g24-drfone-by-drfone-virtual-android/"><u>In 2024, Reasons why Pokémon GPS does not Work On Motorola Moto G24? | Dr.fone</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/the-taboo-topics-for-gpt-powered-conversations/"><u>The Taboo Topics for GPT-Powered Conversations</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unlocking-performance-top-windows-11-strategies/"><u>Unlocking Performance Top Windows 11 Strategies</u></a></li>
 </ul></div>
 

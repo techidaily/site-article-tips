@@ -1,7 +1,7 @@
 ---
 title: "\"2024 Approved  Winning Strategies for Win 11'S Crashy Photos App\""
-date: 2024-08-08T03:16:06.095Z
-updated: 2024-08-09T03:16:06.095Z
+date: 2025-02-28T16:26:44.046Z
+updated: 2025-03-02T19:52:49.717Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/d20fb0a2bb9049e2210bb23aa9225c390244059ce
 
 # How to Solve Windows 10 Photos App Crashes Effectively \[2024\]
 
-<!-- affiliate ads begin -->
-
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -45,9 +42,6 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 
 ## How to fix Windows 10 Photos app crashes
 
-<!-- affiliate ads begin -->
-<a href="https://sentrypc.7eer.net/c/5597632/398453/3022" target="_top" id="398453"><img src="//a.impactradius-go.com/display-ad/3022-398453" border="0" alt="www.sentrypc.com" width="580" height="400"/></a><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/398453/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Solution 1: Use the Troubleshooter
 
 The Windows Troubleshooter is an inbuilt troubleshooting feature embedded with Windows 10 computers. It allows a simple interface to help you choose any application for troubleshooting. Windows Troubleshooter resolves basic issues with the Windows computer so that users can seamlessly use all Windows 10 system features and functionalities.
@@ -96,9 +90,6 @@ Let’s fix the issue by repairing the Photos App package installed on your comp
 3. Allow few minutes to make the changes effective and then restart the Windows 10 computer.
 4. Now, the Windows 10 Photos App won’t crash.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4708689&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Win： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 ### Solution 5: Reinstall Windows 10 Photos app
 
 Alternatively, if nothing works out in your favor, you can always fix Windows 10 Photos App crash issue by reinstalling Windows 10 Photos App. A corrupted Photos App might create disturbance for you, so reinstalling would get a fresh and bug free version on your system from the Microsoft Store.
@@ -110,21 +101,12 @@ Here is how to reinstall the Windows 10 Photos App –
 2. Now, visit the ‘Microsoft Store on your computer and find ‘Microsoft Photos.’
 3. Install ‘Microsoft Photos’ after downloading it from there. Your Windows 10 Photos App crashing issue is well taken care of now.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=37100474&QTY=1&AFFILIATE=108875&CART=1"><img src="https://awario.com/images/pages/index/img-platform-ui-1280@1x.avif" border="0"></a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 From the above article, we have concluded that experiencing Windows 10 Photos App crashes is not uncommon. But, resolving them shouldn’t give you nightmares as well. From the above-mentioned process guides, you can fix the Windows 10 Photos App crashes effectively without any hassle. Try following each method until you get the Photos App crash issue fixed, so you can view your photos without any trouble.
 
-<!-- affiliate ads begin -->
-<a href="https://store.nero.com/order/checkout.php?PRODS=22889392&QTY=1&AFFILIATE=108875&CART=1"><img src="http://webstatic.nero.com/nero2015-com-wAssets/img/affiliate/media/banner728-90eng.jpg" border="0"></a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[![Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://bluetties.sjv.io/c/5597632/2039292/17094" target="_top" id="2039292"><img src="//a.impactradius-go.com/display-ad/17094-2039292" border="0" alt="BLUETTI NEW LAUNCH AC240" width="954" height="1020"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2039292/17094" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 Shanoon Cox
@@ -150,6 +132,23 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
-
-
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-bring-life-into-your-photos-with-these-top-11-tutorials-for-2024/"><u>[New] Bring Life Into Your Photos with These Top 11 Tutorials for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-calculating-costs-in-youtube-advertising-campaigns/"><u>[New] In 2024, Calculating Costs in YouTube Advertising Campaigns</u></a></li>
+<li><a href="https://article-files.techidaily.com/new-in-2024-flying-high-with-husqvarna-the-drone-revolution/"><u>[New] In 2024, Flying High with Husqvarna The Drone Revolution</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-secure-and-speedy-transfer-of-big-video-files-between-ios-and-os-x/"><u>[New] Secure and Speedy Transfer of Big Video Files Between iOS & OS X</u></a></li>
+<li><a href="https://some-skills.techidaily.com/new-the-ultimate-guide-to-professional-gopro-filming/"><u>[New] The Ultimate Guide to Professional GoPro Filming</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-comprehensive-overview-utilizing-googles-automatic-transcription-service/"><u>[Updated] 2024 Approved Comprehensive Overview Utilizing Google's Automatic Transcription Service</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/updated-in-2024-elite-5-earbuds-youtubes-best-companions/"><u>[Updated] In 2024, Elite 5 Earbuds YouTube's Best Companions</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/updated-in-2024-vlc-tutorial-how-to-record-webcam-video/"><u>[Updated] In 2024, VLC Tutorial How to Record Webcam Video</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/updated-veiled-vocal-vaults-top-6-under-the-radar-mobile-apps/"><u>[Updated] Veiled Vocal Vaults Top 6 Under-the-Radar Mobile Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-venturing-beyond-reality-understanding-vr-basics-for-2024/"><u>[Updated] Venturing Beyond Reality Understanding VR Basics for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/guiding-audio-dimming-in-fl-studio-for-2024/"><u>Guiding Audio Dimming in FL Studio for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-essential-microphones-for-dynamic-cams/"><u>In 2024, Essential Microphones for Dynamic Cams</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/211373425-9781646494194-mysteries-prophecies-and-the-hollow-earth/"><u>Mysteries, Prophecies, and the Hollow Earth | Free Book</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/netgear-nighthawk-rax120-review/"><u>Netgear Nighthawk RAX120 Review</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/selecting-carbon-neutral-accessories-for-your-apple-watch-series-10-to-minimize-environmental-impact-zdnet-insights/"><u>Selecting Carbon-Neutral Accessories for Your Apple Watch Series 10 to Minimize Environmental Impact | ZDNET Insights</u></a></li>
+<li><a href="https://screen-sharing-recording.techidaily.com/unlocking-your-macbooks-webcam-potential-for-2024/"><u>Unlocking Your MacBook's Webcam Potential for 2024</u></a></li>
+</ul></div>
 

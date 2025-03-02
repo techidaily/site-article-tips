@@ -1,7 +1,7 @@
 ---
 title: "\"[New] 2024 Approved  Micro-Movie Plot Draft\""
-date: 2025-01-05T16:21:42.609Z
-updated: 2025-01-10T17:24:45.148Z
+date: 2025-02-26T19:26:45.970Z
+updated: 2025-03-02T17:49:04.795Z
 tags: 
   - screen-recording
   - ai video
@@ -26,10 +26,6 @@ Today, we look at seven important aspects of a great short film script and how y
 >
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ITtcSWvS8bo?si=4M4BfMgaabrW6148" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 1\. 7 tips for improving short film scripts
 
@@ -63,29 +59,17 @@ Instead, screenwriters are tasked with presenting the conflict on screen through
 
 ![conflict](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/1CdWd06fCwc?si=wzg-68q0jAksPRXp" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 5\. Turning Point
 
 It's helpful to think of a screenplay as a pattern of significant human change that you create at specific moments of change—the discoveries and decisions your main character makes that change the character and move the story forward. What your character wants and is trying to achieve in your short is the surface action – the events we see on screen. And how these events forever change a character's inner landscape is deep action—your character arc.
 
 If you want to see a well-crafted surface and deep action/character arc in a fifteen-page script, read Chapter 17 _"Killer Kart"_ in the book Making Short Scripts That Connect 5e, and screen the movie on the book's website. It's no surprise that the film is the most screened film ever made at the FSU Film School.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6nvb0775GOM?si=peBB_Mo_4zcZFuci" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 6\. Sublimation
 
 Scenes are the **"church of drama"**, as William Gibson also brilliantly says. So, it's helpful to think of your scenes as the time and place where a significant moment of change will occur, throwing your script into the next scene and moving your story forward. That is your purpose when you write a scene, to dramatize the moment (or moments) of change. That's what matters. I like to think of a scene as an oyster and a moment of change as a pearl. Then cut to your scenes as close to the moment of change as possible and exit as soon as possible.
 
 I got it, really got it, as a young playwright when the Actors Theater of Louisville commissioned me to write a ten-minute play. And I did—in six scenes that I hit late and left early, each with a small but significant moment of change that moved the story into the next scene. “A tender and effortless glissando that gracefully stretches from moment to wistful moment,” as The Los Angeles Times put it in my all-time favorite review.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aqeO4ed766s?si=AWtKHxP4hvQRd_lk" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 7\. Ending
 
@@ -102,10 +86,6 @@ Have you ever stored various videos and photos on a memory card or on a computer
 **Make a short film with [Wondershare Filmora](https://tools.techidaily.com/wondershare/filmora/download/) Easy Movie Maker**.
 
 Below, we will show you have to use this easy movie maker to create a video with Filmora in clicks.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 1\. Import your files and arrange the order
 
@@ -131,10 +111,6 @@ When everything is done, hit the “Create” button, and you'll see several opt
 
 ![save the video](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-6.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mMYEK2gtY5c?si=ytxNz_JHZkTrwb4b" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### Conclusion
 
 Don't be afraid to start writing your next (or first) short film! It might seem like a daunting task, but it's well worth doing. I hope these tips will help you create a unique short film built from your own perspective that is well within your limits to have created. Nothing has the same feeling as seeing your words come to life on screen!
@@ -142,10 +118,6 @@ Don't be afraid to start writing your next (or first) short film! It might seem 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For Win 7 or later(64-bit)
 
 [Free Download](https://tools.techidaily.com/wondershare/filmora/download/)For macOS 10.14 or later
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9wiIVztRIqQ?si=GBgdwQ78k5hbeFDv" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 2\. Characterization
 
@@ -187,10 +159,6 @@ The end of a script is often more important than the 90 pages that preceded it. 
 
 ![example script defining](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-3.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/SDUPd69Qfls?si=uIGZG-riskwmVZYg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 2\. How to edit your short film?
 
 Have you ever stored various videos and photos on a memory card or on a computer? Why not create a movie to show them off? Once finish making a great movie, you can share it with others in a variety of ways including on YouTube, Facebook, and Instagram. Your followers will be amazed at the extraordinarily delightful works. In fact, making a movie using your own photos, videos and audio is easy.
@@ -222,14 +190,6 @@ To add text to the video, click the "Text" button, choose a text type, and drag 
 When everything is done, hit the “Create” button, and you'll see several options: save it as a video file, convert it for viewing on your mobile phone or tablet, directly upload to your YouTube or Facebook account and burn to DVD. Choose an output method as you like and click “Create”. After a few seconds, a folder with the newly reformatted video will open automatically.
 
 ![save the video](https://images.wondershare.com/filmora/article-images/2022/08/short-film-script-example-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zAzTErKy6h8?si=vi5z3M9_7fW6qiAJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Conclusion
 
@@ -263,17 +223,22 @@ Don't be afraid to start writing your next (or first) short film! It might seem 
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-how-to-optimizing-vlc-for-mac-performance/"><u>[New] 2024 Approved How-To Optimizing VLC for Mac Performance</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-explore-and-outshine-cheapest-cloud-plans-for-every-need-2024/"><u>[New] Explore & Outshine Cheapest Cloud Plans for Every Need, 2024</u></a></li>
-<li><a href="https://screen-mirroring-recording.techidaily.com/new-in-2024-minimca-homes-the-ultimate-guide-for-entry-level-builders/"><u>[New] In 2024, MiniMCA Homes The Ultimate Guide for Entry-Level Builders</u></a></li>
-<li><a href="https://extra-lessons.techidaily.com/updated-adding-value-with-recommendations/"><u>[Updated] Adding Value with Recommendations</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-basics-of-visual-storytelling-for-2024/"><u>[Updated] Basics of Visual Storytelling for 2024</u></a></li>
-<li><a href="https://fox-glue.techidaily.com/updated-jest-jamboree-utilizing-comic-tools-for-free-for-2024/"><u>[Updated] Jest Jamboree Utilizing Comic Tools for Free for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-streamers-guide-to-choosing-a-video-player-vlc-vs-mpc/"><u>[Updated] Streamer's Guide to Choosing a Video Player VLC Vs. MPC</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-definitive-list-of-video-stabilizer-brands-for-content-makers-for-2024/"><u>[Updated] The Definitive List of Video Stabilizer Brands for Content Makers for 2024</u></a></li>
-<li><a href="https://iphone-unlock.techidaily.com/complete-fixes-to-solve-iphone-14-pro-max-randomly-asking-for-apple-id-password-drfone-by-drfone-ios/"><u>Complete Fixes To Solve iPhone 14 Pro Max Randomly Asking for Apple ID Password | Dr.fone</u></a></li>
-<li><a href="https://win11-tips.techidaily.com/guiding-users-through-terminal-restart-on-win11/"><u>Guiding Users Through Terminal Restart on Win11</u></a></li>
-<li><a href="https://screen-recording.techidaily.com/in-2024-innovative-fbx-gametime-tracking-solutions/"><u>In 2024, Innovative FBX Gametime Tracking Solutions</u></a></li>
-<li><a href="https://some-guidance.techidaily.com/in-2024-unlock-a-world-of-movies-captions-in-windows-media-player/"><u>In 2024, Unlock a World of Movies Captions in Windows Media Player</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-appreciative-adjacencies-templates-for-any-spend-plan/"><u>[New] In 2024, Appreciative Adjacencies Templates for Any Spend Plan</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/new-in-2024-excellent-easytime-timer-services/"><u>[New] In 2024, Excellent EasyTime Timer Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-mastering-the-role-of-alternate-footage-for-2024/"><u>[New] Mastering the Role of Alternate Footage for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-top-professional-camera-choices-complete-360-guide-2023/"><u>[Updated] 2024 Approved Top Professional Camera Choices - Complete 360 Guide 2023</u></a></li>
+<li><a href="https://some-techniques.techidaily.com/updated-excellence-unleashed-top-tech-for-your-workspace/"><u>[Updated] Excellence Unleashed - Top Tech For Your Workspace</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-direct-pathway-iphone-files-on-your-desktop/"><u>[Updated] In 2024, Direct Pathway IPhone Files on Your Desktop</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-time-lapse-titans-choosing-the-creme-de-la-camera/"><u>[Updated] In 2024, Time-Lapse Titans Choosing the Crème De La Camera</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-clear-path-a-step-by-step-approach-to-buying-an-exceptional-4k-monitor-for-2024/"><u>[Updated] The Clear Path A Step-By-Step Approach to Buying an Exceptional 4K Monitor for 2024</u></a></li>
+<li><a href="https://extra-information.techidaily.com/2024-approved-behind-the-scenes-look-at-podcaster-income/"><u>2024 Approved Behind-the-Scenes Look at Podcaster Income</u></a></li>
+<li><a href="https://some-guidance.techidaily.com/2024-approved-unraveling-virtual-physical-coexistence-what-is-mixed-reality/"><u>2024 Approved Unraveling Virtual-Physical Coexistence What Is Mixed Reality?</u></a></li>
+<li><a href="https://easy-unlock-android.techidaily.com/6-proven-ways-to-unlock-oppo-f23-5g-phone-when-you-forget-the-password-by-drfone-android/"><u>6 Proven Ways to Unlock Oppo F23 5G Phone When You Forget the Password</u></a></li>
+<li><a href="https://extra-information.techidaily.com/future-filming-top-15-video-cameras-to-watch/"><u>Future Filming – Top 15 Video Cameras to Watch</u></a></li>
+<li><a href="https://win11.techidaily.com/1726027925580-huawei/"><u>Huawei端末における音楽再生の不具合解消ガイド</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/in-2024-recording-wonders-the-best-screenshot-tools/"><u>In 2024, Recording Wonders The Best Screenshot Tools</u></a></li>
+<li><a href="https://network-issues.techidaily.com/overcoming-grainy-graphics-on-far-cry-6-console/"><u>Overcoming Grainy Graphics on Far Cry 6 Console</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-colorful-world-of-chroma-key-artistry-explained-for-newcomers-for-2024/"><u>The Colorful World of Chroma Key Artistry Explained for Newcomers for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/weaving-worthy-movie-openings/"><u>Weaving Worthy Movie Openings</u></a></li>
 </ul></div>
 

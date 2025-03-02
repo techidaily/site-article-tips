@@ -1,7 +1,7 @@
 ---
 title: "Principles of Momentum Reversal in Filming for 2024"
-date: 2025-02-05T17:21:48.385Z
-updated: 2025-02-11T17:01:24.788Z
+date: 2025-02-26T18:59:27.821Z
+updated: 2025-03-02T18:04:40.793Z
 tags: 
   - screen-recording
   - ai video
@@ -119,10 +119,6 @@ You can also create a marking by using anything in yours. We are using the midli
 
 After shooting all the clips, it's time to edit them on Filmora. To do this, check out the step to step guide below.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/bXmwwSmYqq4?si=Bb-eJfLnlpeeClyt" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Part 3\. Edit Teleportation Effects in Filmora
 
 Now, we'll take an all-in-one video editor, [Filmora](https://tools.techidaily.com/wondershare/filmora/download/), as our editor to show you the way toward teleportation effects. Due to its up to date UI and ready-to-use resources, it saves your a lot of time from tedious work. Follow the steps below to quickly achieve the time travelling effect on your own.
@@ -169,10 +165,6 @@ Find the spot where the subject steps over in the nighttime clip, and select the
 
 ![marker 3 on the nighttime clip](https://images.wondershare.com/filmora/article-images/2023/04/marker-3-on-the-nighttime-clip.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/OZQJUTr44rA?si=ADA0nD1VnXjR_sH0" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After marking the points on the clips, then you have to align and adjust the clips!
 
 ##### Step6Align the markers
@@ -207,17 +199,9 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 
 ![change the shape mask settings](https://images.wondershare.com/filmora/article-images/2023/04/change-the-shape-mask-settings.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/97ydpSmzTJw?si=tFcelmtQX4u-b3u5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Play the video again and check out the smoothness of the actions. As we have already marked the points, that's why the actions match with each other and give an equivalent look!
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qn1XkPJde9Y?si=i6ZJARXO8sJhy2FV" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 **Note:** If your video actions are not aligning with each other, then adjust again according to the requirements.
 
@@ -311,10 +295,6 @@ First, wrap the colorful divider around the LED light or any other light you're 
 
 ![wrap the led light with a plastic binder](https://images.wondershare.com/filmora/article-images/2023/04/wrap-the-led-light-with-a-plastic-binder.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Lp78eFEGwVU?si=-4orJBLvJJrggCJ2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 * Shoot the video now, and experiment with adding suspense, terror, and cheerful effects with various colors.
 
 ![final results after changing led light by colorful binders](https://images.wondershare.com/filmora/article-images/2023/04/final-results-after-changing-led-light-by-colorful-binders.jpg)
@@ -354,10 +334,6 @@ In this round, the subject should start from the right to left and perform stepp
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
 **Note:** Ensure to match the **"stepping over"** of the character for better results in the transition video.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/mK1lEBRm_1w?si=FSaM0OKO0XBCgjtT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### #3 cross line between two rounds
 
@@ -439,10 +415,6 @@ For better alignment of the clips, trim the nighttime clip where marker one is p
 
 ![trim the nighttime clip at marker 1](https://images.wondershare.com/filmora/article-images/2023/04/trim-the-nighttime-clip-at-marker-1.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/zXUt81WsQpI?si=W3DKIAsa2-qbGadJ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 After alignment and trimming points, the timeline is finalized, then add the mask effects for a fascinating look.
 
 ##### Step8Apply a shape mask
@@ -456,10 +428,6 @@ Next, you have to apply the **"Shape Mask"** for smooth movements of the charact
 * Then download this effect and apply it to the nighttime clip.
 
 ![shape mask from the utility section](https://images.wondershare.com/filmora/article-images/2023/04/shape-mask-from-the-utility-section.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uzb-0C0xUYA?si=F4MPhdVqyVgx7_8X" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 * After that, double-click on the nighttime clips, which will show the settings section of the clip.
 * Go to the Video Effects section and change the shape mask settings.
@@ -503,10 +471,6 @@ To apply the chromatic effect after the power pack effect, follow the below step
 
 ![note](https://images.wondershare.com/assets/images-common/icon-note.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Wy0uYNNdMDM?si=5ir7EHlr0CkpcYOT" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 **Note:** Change the settings of the effects as needed from the top left setting panel on filmora.
 
 ##### Step11Apply the laser effects
@@ -530,10 +494,6 @@ Congratulations! You have all done with the time travel teleportation effects an
 ![final results of time travel teleportation effects](https://images.wondershare.com/filmora/article-images/2023/04/final-results-of-time-travel-teleportation-effects.gif)
 
 If you want to change the effects, then you can easily switch from the stock of the Wondershare Filmora. It gives unlimited creative and fun effects to interact with more audiences daily.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/_dOmuXhsV6Y?si=aT6vgPbDx4ajjvdr" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Conclusion
 
@@ -569,18 +529,21 @@ Create for you and add different effects and experiment with new features. You w
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://novels-ebooks.techidaily.com/138577023-9781462098156-the-real-prophet-of-doom/"><u> "The Real, Prophet, of Doom "! ... (...!) | Free Book</u></a></li>
-<li><a href="https://fox-links.techidaily.com/new-in-2024-perfectly-blending-iphones-multimedia/"><u>[New] In 2024, Perfectly Blending iPhones' Multimedia</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-boosting-videos-the-best-5-tech-aids/"><u>[Updated] 2024 Approved Boosting Videos The Best 5 Tech Aids</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-next-day-evaluation-beyond-tradition/"><u>[Updated] 2024 Approved Next Day Evaluation Beyond Tradition</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-cutting-edge-techniques-for-audiovisual-professionals-in-filmora-for-2024/"><u>[Updated] Cutting Edge Techniques for Audio/Visual Professionals in Filmora for 2024</u></a></li>
-<li><a href="https://fox-blue.techidaily.com/updated-in-2024-mastery-of-color-grading-premiere-pros-lut-capabilities/"><u>[Updated] In 2024, Mastery of Color Grading Premiere Pro's LUT Capabilities</u></a></li>
-<li><a href="https://win-able.techidaily.com/enhance-your-gaming-experience-tips-for-increasing-fps-and-eliminating-stuttering-in-the-ascent/"><u>Enhance Your Gaming Experience: Tips for Increasing FPS & Eliminating Stuttering in The Ascent</u></a></li>
-<li><a href="https://data-wizards.techidaily.com/expedited-purchase-astral-movie-revamp/"><u>Expedited Purchase: Astral Movie Revamp</u></a></li>
-<li><a href="https://article-tips.techidaily.com/harmonizing-your-camera-and-drone-with-a-pro-gimbal-for-2024/"><u>Harmonizing Your Camera and Drone with a Pro Gimbal for 2024</u></a></li>
-<li><a href="https://easy-unlock-android.techidaily.com/in-2024-how-to-unlock-oppo-reno-10-5g-bootloader-easily-by-drfone-android/"><u>In 2024, How to Unlock Oppo Reno 10 5G Bootloader Easily</u></a></li>
-<li><a href="https://vp-tips.techidaily.com/mod-format-transformation-seamless-online-conversion-tools/"><u>MOD Format Transformation: Seamless Online Conversion Tools</u></a></li>
-<li><a href="https://hardware-help.techidaily.com/top-ranking-laptop-picks-for-2e24-comprehensive-tests-and-reviews-by-tech-gurus/"><u>Top-Ranking Laptop Picks for 2E24: Comprehensive Tests & Reviews by Tech Gurus</u></a></li>
-<li><a href="https://buynow-info.techidaily.com/updating-now-vs-total-overhaul-in-code/"><u>Updating Now Vs. Total Overhaul in Code</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-a-comprehensive-guide-to-mastering-gopro-hero5-time-lapse/"><u>[New] 2024 Approved A Comprehensive Guide to Mastering GoPro Hero5 Time-Lapse</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-top-8-innovative-affordable-online-srt-services-exposed-for-2024/"><u>[New] Top 8 Innovative, Affordable Online SRT Services Exposed for 2024</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-behind-the-scenes-insider-knowledge-for-youtube-video-production-for-2024/"><u>[Updated] Behind the Scenes Insider Knowledge for YouTube Video Production for 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-hdr-brilliance-justified-choice-or-overkill-for-2024/"><u>[Updated] HDR Brilliance Justified Choice or Overkill for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-smart-shoppers-what-to-evaluate-for-a-4k-lens/"><u>[Updated] In 2024, Smart Shoppers What to Evaluate for a 4K Lens</u></a></li>
+<li><a href="https://extra-approaches.techidaily.com/updated-navigating-noise-free-audiovisual-links/"><u>[Updated] Navigating Noise-Free Audiovisual Links</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-optimal-series-prime-webcam-support-accessories/"><u>[Updated] Optimal Series Prime Webcam Support Accessories</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-unpacking-the-advanced-capabilities-of-movavi-video-editor-2024plus/"><u>[Updated] Unpacking the Advanced Capabilities of Movavi Video Editor 2024+</u></a></li>
+<li><a href="https://hardware-tips.techidaily.com/choosing-the-right-device-ipad-pro-or-macbook-air-find-your-best-fit-with-zdnets-comparison/"><u>Choosing the Right Device: IPad Pro or MacBook Air – Find Your Best Fit with ZDNet's Comparison</u></a></li>
+<li><a href="https://tech-hub.techidaily.com/exclusive-apple-airtag-deal-save-24-on-a-4-pack-at-walmart-for-labor-day-shop-now-techradar/"><u>Exclusive Apple AirTag Deal: Save $24 on a 4-Pack at Walmart for Labor Day – Shop Now! | TechRadar</u></a></li>
+<li><a href="https://extra-support.techidaily.com/in-2024-masterclass-creating-alluring-vlogging-storylines/"><u>In 2024, Masterclass Creating Alluring Vlogging Storylines</u></a></li>
+<li><a href="https://windows11.techidaily.com/skyrocket-beyond-wired-speed-limit-in-windows-environment/"><u>Skyrocket Beyond Wired Speed Limit in Windows Environment</u></a></li>
+<li><a href="https://win-info.techidaily.com/solving-sluggish-startups-proven-techniques-by-yl-software-experts/"><u>Solving Sluggish Startups: Proven Techniques by YL Software Experts</u></a></li>
+<li><a href="https://win-latest.techidaily.com/top-ranking-mts-video-converter-optimized-for-windows-10-and-11/"><u>Top-Ranking MTS Video Converter : Optimized for Windows 10 & 11</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unleash-creativity-with-top-10-phone-apps-adding-stickers-to-images-for-2024/"><u>Unleash Creativity with Top 10 Phone Apps Adding Stickers to Images for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/what-separates-panoramic-from-immersion-filmmaking/"><u>What Separates Panoramic From Immersion Filmmaking?</u></a></li>
 </ul></div>
 

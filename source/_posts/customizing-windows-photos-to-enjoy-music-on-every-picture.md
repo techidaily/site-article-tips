@@ -1,7 +1,7 @@
 ---
 title: "Customizing Windows Photos to Enjoy Music on Every Picture"
-date: 2024-07-29T02:21:33.096Z
-updated: 2024-07-30T02:21:33.096Z
+date: 2025-02-24T17:58:19.580Z
+updated: 2025-03-02T19:02:32.800Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/4b0cf62f8598176374094f1d5008db55cda943f9c
 
 # How to Add Filters and Music on Windows 10 Photos App
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2087389/7443" target="_top" id="2087389"><img src="//a.impactradius-go.com/display-ad/7443-2087389" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2087389/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/shannon-cox.jpg)
 
 ##### Shanoon Cox
@@ -36,9 +33,6 @@ Having Windows 10 Photos app is an advantage for you. This is not like any other
 
 **You may also like:** [How to Trim Video in Windows 10 Photos Easily >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://turtlebeachus.sjv.io/c/5597632/1988416/23719" target="_top" id="1988416"><img src="//a.impactradius-go.com/display-ad/23719-1988416" border="0" alt="" width="600" height="600"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1988416/23719" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 1: How to add filters on Windows 10 Photos App
 
 If you have got Windows 10 Photos app and wish to add filters, though, it is by default a photo viewing app, its editing features are worth to mention. This step by step guide is your perfect savior in that case.
@@ -49,30 +43,16 @@ If you have got Windows 10 Photos app and wish to add filters, though, it is by 
 
 **Step 2**: Choose the video you want to add filters. Click **New video** at top > Custom video with music.
 
-<!-- affiliate ads begin -->
-<a href="https://propmoneyinc.pxf.io/c/5597632/1803115/14559" target="_top" id="1803115"><img src="//a.impactradius-go.com/display-ad/14559-1803115" border="0" alt="" width="859" height="859"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1803115/14559" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/add-filters.jpg)
 
 **Step 3**: Now, you will be in an video editing page. You can name your video at start or later.
 
 **Step 4**: Click Filters at tool bar. Microsoft Photos has 14 filters you can use, including classic, adventure, sepia and so on.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4709458&QTY=1&AFFILIATE=108875&CART=1"><img src="https://3d-kstudio.com/wp-content/uploads/2019/10/Project-Manager-version-3-1600x900-768x419.jpg" border="0">Project Manager - Asset Browser for 3Ds Max</a>
-<!-- affiliate ads end -->
 ![ add filters on windows 10 photos app](https://images.wondershare.com/filmora/article-images/edit-filters-microsoft-photos.jpg)
 
 **Step 5**: Just select one you like. Preview it and then click Done.
 
-<!-- affiliate ads begin -->
-<h3 id="200610"><a href="https://sentrypc.7eer.net/c/5597632/200610/3022">Parental Control Software</a></h3>
-<span class="text-ad-content">
-	#1 Rated Parental Control Software.<br/>
-	Monitor & Control all PC Activity!<br/>
-		<cite style="color:green">sentrypc.com/parental-controls/</cite>
-	</span><img height="0" width="0" src="https://sentrypc.7eer.net/i/5597632/200610/3022" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Part 2: How to add music on Windows 10 Photos App
 
 Now that you have learnt how to **_add filters using Windows 10 Photos app._** Do you think there is any possibility regarding adding music over it? Adding music to your video would make it more enjoyable. The artificial intelligence feature on Windows 10 Photos app helps it add music to videos with a single click. It’s easy to do, but meanwhile there will be some twitches to the way artificial intelligence videos show up as you try to match the volume and tempo of the music. But, you can do it with the help of default Microsoft tools.
@@ -91,10 +71,6 @@ Now that you have learnt how to **_add filters using Windows 10 Photos app._** D
 
 **Step 5**: Hit the ‘Done’ button.
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4718728&QTY=1&AFFILIATE=108875&CART=1"> <img src="https://secure.avangate.com/images/merchant/ce9a6fb2becc2d235e62b125e9260102/products/vMixCallScreenshot1-large.jpg" border="0"> vMix Basic HD - Software based live production. vMix Basic HD includes 4 inputs, 3 cameras, streaming, recording, playlist. 
-This bundle includes Studio 200 for vMix from Virtualsetworks, HTTP Matrix 1.0 automation scheduler, and 4 introductory training videos from the Udemy vMix Basic to Amazing course. </a>
-<!-- affiliate ads end -->
 ## Conclusion
 
 From the above article, we conclude that Windows 10 Photos app is an amazing app when it comes to photo editing and screen capturing from a video. While there are numerous options out there, you can **_add filters using Windows 10 Photos app_** in the best way possible. Moreover, this application enables you enable to even add music to videos using Windows 10 Photos app. The advantages of Windows 10 are innumerable, and with the right tools, you can get the best out of it.
@@ -124,4 +100,20 @@ Follow @Shanoon Cox
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-the-mi-drone-4k-review-drones-vs-landscape-photography/"><u>[New] 2024 Approved The Mi Drone 4K Review Drones vs Landscape Photography</u></a></li>
+<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-the-ultimate-guide-to-ai-infused-gaming-broadcasts/"><u>[New] 2024 Approved The Ultimate Guide to AI-Infused Gaming Broadcasts</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-content-medium-match-up-audiophiles-vs-youtube-viewers/"><u>[New] Content Medium Match-Up Audiophiles Vs. YouTube Viewers</u></a></li>
+<li><a href="https://extra-support.techidaily.com/new-mastering-the-art-of-monochrome-modification/"><u>[New] Mastering the Art of Monochrome Modification</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-essential-sites-for-watching-vr-media-for-2024/"><u>[Updated] Essential Sites for Watching VR Media for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-leaders-in-affordable-web-based-photography-tools/"><u>[Updated] Leaders in Affordable Web-Based Photography Tools</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/discard-tech-the-top-11-software-deletion-paths-in-windows-11-117-chars/"><u>Discard Tech: The Top 11 Software Deletion Paths in Windows 11 (117 Chars)</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/exploring-the-setback-of-paytm-a-closer-look-at-warren-buffetts-sole-indian-investment-as-covered-by-zdnet/"><u>Exploring the Setback of Paytm: A Closer Look at Warren Buffett’s Sole Indian Investment as Covered by ZDNet</u></a></li>
+<li><a href="https://novels-ebooks.techidaily.com/210217603-9781841815084-godsfield-companion-chakras/"><u>Godsfield Companion: Chakras | Free Book</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/in-2024-how-to-skyrocket-likes-on-your-tiktok-unpack-sessions/"><u>In 2024, How to Skyrocket Likes on Your TikTok Unpack Sessions</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/tackling-the-cannot-add-columns-error-in-ms-excel-for-windows-users/"><u>Tackling the 'Cannot Add Columns' Error in MS Excel for Windows Users</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/top-rated-ios-device-image-sync-software-ultimate-guide/"><u>Top-Rated iOS Device Image Sync Software: Ultimate Guide</u></a></li>
+<li><a href="https://driver-error.techidaily.com/urgently-need-stopping-my-bluetooth-in-windows-help-please/"><u>Urgently Need Stopping My Bluetooth in Windows – Help Please?</u></a></li>
+</ul></div>
 

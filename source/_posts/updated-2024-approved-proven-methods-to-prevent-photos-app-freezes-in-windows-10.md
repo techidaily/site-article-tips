@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Proven Methods to Prevent Photos App Freezes in Windows 10\""
-date: 2025-01-25T20:34:53.910Z
-updated: 2025-01-30T04:24:07.425Z
+date: 2025-02-24T16:37:57.782Z
+updated: 2025-03-02T19:34:04.164Z
 tags: 
   - screen-recording
   - ai video
@@ -45,15 +45,7 @@ In this article, we have compiled the best solutions for you to get rid of Windo
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/May-pLCUkEA?si=PGlcFZAlsp3S3beI" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to fix Windows 10 Photos app crashes
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/qNrOsjUdRz0?si=xGzhmNmtgxNTsRxN" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 1: Use the Troubleshooter
 
@@ -65,10 +57,6 @@ Here is how to troubleshoot –
    2. Pick ‘Troubleshooting’ and hit it. Tap on ‘View All’ from the top-left panel of the screen.
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/Troubleshooter.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UcplMvRBulA?si=iBonbwDS1v7RAlHK" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. From the list of Apps displayed on the screen, click ‘Windows Store Apps’ and press the ‘Next’ button.
 2. Now, the troubleshooter will troubleshoot every app within the Windows Store Applications and fix them in a jiffy.
@@ -84,10 +72,6 @@ Restoring the default libraries would resolve the Windows 10 Photos App crash is
 
 ![windows 10 photos app crashes](https://images.wondershare.com/filmora/article-images/windows-10-photos-app-crashes-restore.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YwOwUI47FuU?si=NK7IEELjx7_SJSl2" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Lastly, click on ‘Apply’ followed by ‘OK’ and the issue will be resolved.
 
 ### Solution 3: Reset it
@@ -99,10 +83,6 @@ Here is how can you reset it –
 1. Go to ‘Windows 10 Start Menu’ and then click ‘Settings’. Now, click the ‘Apps (Apps & Features)’ option followed by the ‘Photos’ app.
 2. Hit ‘Advanced Options’ and click ‘Reset’ button thereafter.
 3. Now, you got to restart your Windows system, so that Windows 10 Photos App crashing problem can be easily resolved.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/XoC2TGp1PLY?si=iH9xs76NhWn4pP-E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### Solution 4: Repair Photos App package
 
@@ -159,19 +139,18 @@ Follow @Shanoon Cox
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-visual-bedtime-plays-reviewed/"><u>[New] 2024 Approved Visual Bedtime Plays Reviewed</u></a></li>
-<li><a href="https://youtube-data.techidaily.com/n-2024-mastering-the-art-of-video-production-initial-setup/"><u>[New] In 2024, Mastering the Art of Video Production Initial Setup</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-professional-4k-at-your-fingertips-benq-bl2711u-uncovered/"><u>[New] In 2024, Professional 4K at Your Fingertips BenQ BL2711U Uncovered</u></a></li>
-<li><a href="https://fox-hovers.techidaily.com/new-understanding-whatsapps-voice-communication-system/"><u>[New] Understanding WhatsApp's Voice Communication System</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-decoding-the-language-of-auditory-cues-in-movie-previews/"><u>[Updated] 2024 Approved Decoding the Language of Auditory Cues in Movie Previews</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-fast-cash-on-reddit-check-out-these-top-13-skillless-strategies-for-2024/"><u>[Updated] Fast Cash on Reddit? Check Out These Top 13 Skillless Strategies for 2024</u></a></li>
-<li><a href="https://article-knowledge.techidaily.com/updated-in-2024-distilling-virtual-realitys-kin-ar-mr-and-beyond/"><u>[Updated] In 2024, Distilling Virtual Reality's Kin AR, MR & Beyond</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-channel-success-strategies-a-comprehensive-guide-to-spotlighting/"><u>2024 Approved Channel Success Strategies A Comprehensive Guide to Spotlighting</u></a></li>
-<li><a href="https://youtube-sure.techidaily.com/approved-decoding-aspect-ratios-for-effective-youtube-videos/"><u>2024 Approved Decoding Aspect Ratios for Effective YouTube Videos</u></a></li>
-<li><a href="https://facebook.techidaily.com/essential-facebook-traits-boosting-collaboration-in-teams/"><u>Essential Facebook Traits Boosting Collaboration in Teams</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-combine-movie-tracks-in-youtube-repertoire/"><u>In 2024, Combine Movie Tracks in YouTube Repertoire</u></a></li>
-<li><a href="https://audio-editing.techidaily.com/new-mastering-echo-effects-implementing-reverb-in-digital-sound-environments-windows-edition/"><u>New Mastering Echo Effects Implementing Reverb in Digital Sound Environments (Windows Edition)</u></a></li>
-<li><a href="https://technical-tips.techidaily.com/unraveling-the-openjpegdll-vanishing-act-effective-strategies-for-error-resolution/"><u>Unraveling the 'openjpeg.dll' Vanishing Act - Effective Strategies for Error Resolution</u></a></li>
-<li><a href="https://article-tips.techidaily.com/win-and-mac-basic-guide-for-embedding-captions-in-images/"><u>Win & Mac Basic Guide for Embedding Captions in Images</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-hdr-portraiture-comprehensive-photography-guide/"><u>[New] In 2024, Mastering HDR Portraiture Comprehensive Photography Guide</u></a></li>
+<li><a href="https://fox-http.techidaily.com/new-introduction-to-dynamic-graphic-techniques-for-2024/"><u>[New] Introduction to Dynamic Graphic Techniques for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-streamlining-the-process-of-converting-zip-to-srt-for-2024/"><u>[New] Streamlining the Process of Converting Zip to Srt for 2024</u></a></li>
+<li><a href="https://fox-access.techidaily.com/updated-2024-approved-digital-magic-uncovering-premier-3d-animation-software/"><u>[Updated] 2024 Approved Digital Magic Uncovering Premier 3D Animation Software</u></a></li>
+<li><a href="https://facebook-record-videos.techidaily.com/updated-2024-approved-dynamic-lighting-elevating-video-aesthetics/"><u>[Updated] 2024 Approved Dynamic Lighting Elevating Video Aesthetics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-discover-the-art-of-sound-modification-in-free-fire-expert-tips-and-tricks-no-charge-for-2024/"><u>[Updated] Discover the Art of Sound Modification in Free Fire Expert Tips and Tricks (No Charge!) For 2024</u></a></li>
+<li><a href="https://fox-glue.techidaily.com/updated-in-2024-cultivating-a-thoughtful-approach-to-youtube-feedback/"><u>[Updated] In 2024, Cultivating a Thoughtful Approach to YouTube Feedback</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-professional-visual-enhancements-mastering-the-use-of-luts-in-ae/"><u>[Updated] Professional Visual Enhancements Mastering the Use of LUTs in AE</u></a></li>
+<li><a href="https://howto.techidaily.com/11-ways-to-fix-it-when-my-itel-a60s-wont-charge-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>11 Ways to Fix it When My Itel A60s Wont Charge | Dr.fone</u></a></li>
+<li><a href="https://twitter-videos.techidaily.com/2024-approved-mastering-the-art-of-transforming-social-media-videos-to-gifs/"><u>2024 Approved Mastering the Art of Transforming Social Media Videos to GIFs</u></a></li>
+<li><a href="https://win11-tips.techidaily.com/how-to-restart-print-spooler-service-on-windows/"><u>How to Restart Print Spooler Service on Windows</u></a></li>
+<li><a href="https://change-location.techidaily.com/in-2024-a-detailed-vpna-fake-gps-location-free-review-on-zte-blade-a73-5g-drfone-by-drfone-virtual-android/"><u>In 2024, A Detailed VPNa Fake GPS Location Free Review On ZTE Blade A73 5G | Dr.fone</u></a></li>
+<li><a href="https://tech-recovery.techidaily.com/ultimate-trick-for-quickly-snapping-photos-of-your-hp-laptops-display/"><u>Ultimate Trick for Quickly Snapping Photos of Your HP Laptop's Display</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "Choreographing Photography and Filming in One Sweep"
-date: 2024-07-29T02:22:40.015Z
-updated: 2024-07-30T02:22:40.015Z
+date: 2025-02-26T17:11:31.041Z
+updated: 2025-03-02T18:47:59.770Z
 tags: 
   - screen-recording
   - ai video
@@ -20,9 +20,6 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
 
 # How to Take Photos While Recording Videos on iPhone
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4742929&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/e09fdffe648a30658a9657bbed7b2388/products/boxshot(2).png" border="0">Kanto Player Professional</a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
 
 ##### Ollie Mattison
@@ -41,18 +38,12 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
 * Look for the video mode and switch to it for initiating video recording.
 * Tap the red button located at the bottom and it will start the video recording.
 
-<!-- affiliate ads begin -->
-<a href="https://printrendy.pxf.io/c/5597632/1453720/17020" target="_top" id="1453720"><img src="//a.impactradius-go.com/display-ad/17020-1453720" border="0" alt="" width="300" height="250"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1453720/17020" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ![](https://images.wondershare.com/filmora/article-images/take-photo-while-recording-videos-iphone.jpg)
 
  Image resource: igeeksblog.com
 
 * Now, to take a still, just tap on the white 'take picture' button that can be noticed at the left of the red button. The screen will flicker each time you press the button to take the photo.
 
-<!-- affiliate ads begin -->
-<a href="https://unicoeye.pxf.io/c/5597632/2084396/18498" target="_top" id="2084396"><img src="//a.impactradius-go.com/display-ad/18498-2084396" border="0" alt="" width="1920" height="700"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2084396/18498" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### The drawbacks of taking photos and videos simultaneously
 
 *  One of the major drawbacks you can face is being unable to take stills from a time-lapse video in your iPhone.
@@ -68,16 +59,10 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
 | **iPhone 6S series** | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 | **iPhone 7 series**  | 4032 × 3024               | 3412 × 1920                                  | 3840 × 2160                               | 1280 × 720                                    |
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2082538/7443" target="_top" id="2082538"><img src="//a.impactradius-go.com/display-ad/7443-2082538" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2082538/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Extract frames from video
 
  If you are one of those who wish to **take photos while recording videos** without compromising the quality, we are glad to inform you that there is a solution for this. You can easily extract a specific frame from the recorded video keeping the standard resolution quality via Wondershare Filmora and will never be bothered about missing anything interesting from the video.
 
-<!-- affiliate ads begin -->
-<a href="https://newchic.sjv.io/c/5597632/1659704/14420" target="_top" id="1659704"><img src="//a.impactradius-go.com/display-ad/14420-1659704" border="0" alt="" width="728" height="90"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/1659704/14420" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ### Why Choose Wondershare Filmora?
 
 * It supports a wide range of video formats and can help in extracting the desired frame out from any file format while keeping the quality intact as the original file.
@@ -86,9 +71,6 @@ thumbnail: https://thmb.techidaily.com/48bbf816680af2439ef36580a7c2fe3c4155339da
 
  Check this video to see how to extract photos from a video with Filmora:
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4713565&QTY=1&AFFILIATE=108875&CART=1"><img src="https://www.epubor.com/images/uppic/audible-converter-interface.png" border="0">Epubor Audible Converter for Mac： Download and convert Audible AAXC/AA/AAX to MP3 with 100% original quality preserved.</a>
-<!-- affiliate ads end -->
 [![Download Win Version](https://images.wondershare.com/filmora/guide/download-btn-win.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)[Download Mac Version](https://images.wondershare.com/filmora/guide/download-btn-mac.jpg)](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/ollie-mattison.jpg)
@@ -116,4 +98,24 @@ Follow @Ollie Mattison
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://facebook-video-files.techidaily.com/new-fixing-half-silenced-facebook-video-volume/"><u>[New] Fixing Half-Silenced Facebook Video Volume</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-a-step-by-step-guide-to-implementing-lut-effects-in-premiere-pro/"><u>[New] In 2024, A Step-by-Step Guide to Implementing LUT Effects in Premiere Pro</u></a></li>
+<li><a href="https://article-helps.techidaily.com/new-in-2024-how-to-use-gopro-time-lapse/"><u>[New] In 2024, How to Use GoPro Time Lapse</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-perfect-your-pictures-the-ultimate-guide-to-photo-text-editing/"><u>[New] In 2024, Perfect Your Pictures The Ultimate Guide to Photo Text Editing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-mastering-image-magic-top-10-mobile-apps-with-stickers-on-iphones-and-androids-for-2024/"><u>[New] Mastering Image Magic Top 10 Mobile Apps with Stickers on iPhones & Androids for 2024</u></a></li>
+<li><a href="https://fox-blue.techidaily.com/new-tools-for-producing-road-trip-videos/"><u>[New] Tools for Producing Road Trip Videos</u></a></li>
+<li><a href="https://article-files.techidaily.com/updated-2024-approved-guide-on-downloading-processing-and-saving-twitter-vids-as-mp3s/"><u>[Updated] 2024 Approved Guide on Downloading, Processing, and Saving Twitter Vids as MP3s</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-lg-bp350-evaluation-size-resolution-and-connectivity/"><u>[Updated] 2024 Approved LG BP350 Evaluation - Size, Resolution, and Connectivity</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-from-fixed-frame-to-fluid-motion-live-photo-transformation-for-2024/"><u>[Updated] From Fixed Frame to Fluid Motion Live Photo Transformation for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-dissecting-av1s-capabilities-beyond-vp9/"><u>[Updated] In 2024, Dissecting AV1's Capabilities Beyond VP9</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-m1-macbook-air-video-editors-dream-machine/"><u>[Updated] M1 MacBook Air Video Editor's Dream Machine?</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/ed-the-art-of-analytic-assessment-in-the-youtube-sphere-for-2024/"><u>[Updated] The Art of Analytic Assessment in the YouTube Sphere for 2024</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-forgotten-the-voicemail-password-of-meizu-21-pro-try-these-fixes-by-drfone-android/"><u>In 2024, Forgotten The Voicemail Password Of Meizu 21 Pro? Try These Fixes</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/in-2024-life360-circle-everything-you-need-to-know-on-lava-storm-5g-drfone-by-drfone-virtual-android/"><u>In 2024, Life360 Circle Everything You Need to Know On Lava Storm 5G | Dr.fone</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-streamlined-approaches-for-zoom-utility-on-chromebook/"><u>In 2024, Streamlined Approaches for Zoom Utility on Chromebook</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/professionals-picks-smoothest-drone-gimbals/"><u>Professional's Picks Smoothest Drone Gimbals</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/strategies-for-exporting-data-from-your-ai-conversations/"><u>Strategies for Exporting Data From Your AI Conversations</u></a></li>
+</ul></div>
 

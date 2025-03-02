@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] In 2024, Mobile Mastery  High Shots with Your Smartphone\""
-date: 2025-02-10T18:54:52.173Z
-updated: 2025-02-11T19:13:23.254Z
+date: 2025-02-25T17:28:29.823Z
+updated: 2025-03-02T18:47:28.871Z
 tags: 
   - screen-recording
   - ai video
@@ -39,18 +39,10 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/UUPt2zKtJ5k?si=LLHdsFDLzVByJsKj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## How to take vertical panorama photography with your respective Smartphone
 
 * [Part 1: For iPhone Users](#part1)
 * [Part 2: For Android Users](#part2)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/poI1NQxHfjc?si=ZLG0wziYcTKIKwL5" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### For iPhone users
 
@@ -60,10 +52,6 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 * Make sure to hold the device horizontally and hit the camera button.
 
 ![](https://images.wondershare.com/filmora/article-images/iphone-panorama-mode.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/q4-YQ9Wjtfg?si=6afn1fydg_Wb9B8z" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
  Image source: mac-fusion
 
@@ -79,19 +67,11 @@ thumbnail: https://thmb.techidaily.com/28460332c706ced456fd18767c0466a64d105614a
 
 ![](https://images.wondershare.com/filmora/article-images/vertical-panorama-android.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jvwX82j3ci0?si=gAWoovjXgs3m1d7S" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  Image source: mac-fusion
 
 * To shoot picture, keep holding the target circle on the gray dot until it vanishes.
 * Repeat the same with other dots as well. In other words, move camera towards the gray dots one by one until they get disappear.
 * Tap on "Done" when completed.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/aa6vSdt1elM?si=qPhmO-hoWVIPBnnC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Some Beneficial Tips for shooting vertical panorama photo
 
@@ -127,22 +107,21 @@ Follow @Ollie Mattison
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://desktop-recording.techidaily.com/new-2024-approved-androids-ultimate-questland-unveiling-the-best-15-simulations/"><u>[New] 2024 Approved Android's Ultimate Questland Unveiling the Best 15 Simulations</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-balancing-main-and-supplemental-filmmaking-elements/"><u>[New] 2024 Approved Balancing Main & Supplemental Filmmaking Elements</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-closer-look-techniques-for-effective-collaboration-on-ms-teams/"><u>[New] 2024 Approved Closer Look Techniques for Effective Collaboration on MS Teams</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-a-deep-dive-into-windows-hd-color-and-hdr-editing-excellence/"><u>[New] A Deep Dive Into Windows HD Color and HDR Editing Excellence</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-elevate-visual-impact-with-custom-typography-in-after-effects-for-2024/"><u>[New] Elevate Visual Impact with Custom Typography in After Effects for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-the-complete-guide-to-decluttered-image-designs-on-canva/"><u>[New] In 2024, The Complete Guide to Decluttered Image Designs on Canva</u></a></li>
-<li><a href="https://extra-skills.techidaily.com/new-instant-viral-potential-learn-kinemaster-memes/"><u>[New] Instant Viral Potential Learn KineMaster Memes</u></a></li>
-<li><a href="https://discord-videos.techidaily.com/updated-2024-approved-navigating-the-maze-of-online-conflict-your-pathway-to-filing-a-report-on-discord/"><u>[Updated] 2024 Approved Navigating the Maze of Online Conflict Your Pathway to Filing a Report on Discord</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-2024-approved-nextgen-videotron-app-evaluation/"><u>[Updated] 2024 Approved NextGen Videotron App Evaluation</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-the-foremost-8-4k-blu-ray-systems-reviewed-for-2024/"><u>[Updated] The Foremost 8 4K Blu-Ray Systems Reviewed for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-vivavideo-review-insights-and-impressions-for-2024/"><u>[Updated] VivaVideo Review Insights and Impressions for 2024</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/approved-ultimate-visual-storyteller-harmony-in-imagery-and-melodies/"><u>2024 Approved Ultimate Visual Storyteller Harmony in Imagery & Melodies</u></a></li>
-<li><a href="https://youtube-videos.techidaily.com/creating-content-with-purpose-balancing-job-and-youtube-for-2024/"><u>Creating Content with Purpose Balancing Job & YouTube for 2024</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/download-and-generate-free-official-passport-pictures-now/"><u>Download & Generate Free, Official Passport Pictures Now</u></a></li>
-<li><a href="https://on-screen-recording.techidaily.com/in-2024-basic-procedure-swapping-video-playback-in-vlc-media-player/"><u>In 2024, Basic Procedure Swapping Video Playback in VLC Media Player</u></a></li>
-<li><a href="https://tech-recovery.techidaily.com/quick-and-easy-troubleshooting-for-the-elusive-d3dx934dll-file/"><u>Quick & Easy Troubleshooting for the Elusive d3dx9_34.dll File</u></a></li>
-<li><a href="https://youtube-tips.techidaily.com/ing-for-starred-youtube-conversations/"><u>Scouting for Starred YouTube Conversations</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-best-practices-apps-and-sites-mastering-photo-framing/"><u>[New] Best Practices Apps & Sites - Mastering Photo Framing</u></a></li>
+<li><a href="https://facebook-videos.techidaily.com/new-discover-the-best-fb-movie-tools-no-8-in-23/"><u>[New] Discover the Best FB Movie Tools No. 8 in '23</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-ultimate-shooting-guide-top-8-tripods-for-4k-cameras/"><u>[New] In 2024, Ultimate Shooting Guide Top 8 Tripods for 4K Cameras</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-cinematography-insights-the-leading-5-secrets/"><u>[Updated] 2024 Approved Cinematography Insights The Leading 5 Secrets</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-2024-approved-premium-mac-capture-software-substitutes-for-bandicam/"><u>[Updated] 2024 Approved Premium Mac Capture Software Substitutes for Bandicam</u></a></li>
+<li><a href="https://youtube-webster.techidaily.com/ed-frame-by-frame-building-a-filmmaking-foundation-on-youtube/"><u>[Updated] Frame by Frame Building a Filmmaking Foundation on YouTube</u></a></li>
+<li><a href="https://instagram-videos.techidaily.com/updated-in-2024-leading-tag-tracker-software-on-major-platforms-like-fb-tweet-and-insta/"><u>[Updated] In 2024, Leading Tag Tracker Software on Major Platforms Like FB, Tweet & Insta</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-lightning-lens-work-efficiently-producing-google-collage-shots/"><u>[Updated] Lightning Lens Work Efficiently Producing Google Collage Shots</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-navigating-the-latest-pro-cams-for-full-spheres/"><u>[Updated] Navigating the Latest Pro Cams for Full Spheres</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-photobooth-lags-steadying-the-playback-journey/"><u>[Updated] Photobooth Lags Steadying the Playback Journey</u></a></li>
+<li><a href="https://phone-solutions.techidaily.com/complete-guide-for-recovering-contacts-files-on-xr21-by-fonelab-android-recover-contacts/"><u>Complete guide for recovering contacts files on XR21.</u></a></li>
+<li><a href="https://remote-screen-capture.techidaily.com/expertise-in-making-screen-captures-on-ios-easier/"><u>Expertise in Making Screen Captures on iOS Easier</u></a></li>
+<li><a href="https://android-pokemon-go.techidaily.com/in-2024-3-ways-for-android-pokemon-go-spoofing-on-tecno-camon-20-premier-5g-drfone-by-drfone-virtual-android/"><u>In 2024, 3 Ways for Android Pokemon Go Spoofing On Tecno Camon 20 Premier 5G | Dr.fone</u></a></li>
+<li><a href="https://buynow-info.techidaily.com/is-it-worth-it-an-in-depth-look-at-sonys-newly-released-ps5-slim-vs-the-standard-ps5/"><u>Is It Worth It? An In-Depth Look at Sony's Newly Released PS5 Slim vs The Standard PS5</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unleash-your-creative-potential-free-voice-effects-at-hand-for-2024/"><u>Unleash Your Creative Potential Free Voice Effects at Hand for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/unlock-fast-video-trimming-in-windows-11-apps-for-2024/"><u>Unlock Fast Video Trimming in Windows 11 Apps for 2024</u></a></li>
 </ul></div>
 

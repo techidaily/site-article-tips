@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Crafting AE Titles with Maximum Impression\""
-date: 2025-01-25T04:13:38.985Z
-updated: 2025-01-30T12:41:34.042Z
+date: 2025-02-28T17:51:30.257Z
+updated: 2025-03-02T16:31:59.643Z
 tags: 
   - screen-recording
   - ai video
@@ -44,10 +44,6 @@ Along with After Effects source text effect types, we have illustrated how you c
 
 There are certain properties and parameters associated with text effects and animations in After Effects. You need to get a complete overview of these types so that you can adjust them and come up with stunning text animations in After Effects.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/hZsnjxeSh1U?si=hZIfzQPDNX5KtOCg" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. 3D Text
 
 Generally, when you type a text in After Effects, by default, it comes out to be two-dimensional. All the associated properties have X and Y axis only. However, if you are planning to create 3D text and title, you need to have Z axis.
@@ -57,10 +53,6 @@ After Effects has “Enable per-character 3D” property to all Z axis to applic
 ### 2\. Rotation and Anchor Point
 
 Rotation is one of the most commonly used parameters in text animations. There are unlimited variations of text animations and effects that you can create using rotation parameter in After Effects. The rotation takes place in proportion to the anchor points of the text. When you change the value of Rotation parameter, the actual rotation takes place around the anchor points.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/U_aNKnMTPjo?si=Og_mEt7NP3Fbsg2n" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 3\. Scale and Position
 
@@ -104,19 +96,11 @@ Step2 Go to Effects and Presets panel, search for the desired text effect preset
 
 ![preview effects and presets ae](https://images.wondershare.com/filmora/article-images/2022/09/preview-effects-and-presets-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PUDdKOsEN74?si=tkZf-KVinjuwmgx9" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Go to Timeline and click on the text layer to expand it. Click on Animate option and select any property that you want to adjust and create animation based on the parameters. Go to Keyframe section and add keyframes and change parameters for different keyframes for the text to animate.
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
 
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/nWu29cqFjZA?si=TNZyCbPq68PQ0JIb" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. AE Alternative to Edit Text Effects in Video
 
@@ -133,10 +117,6 @@ Step1 Install Wondershare Filmora on your computer and launch the application. C
 Step2 Drag and drop the video clip onto timeline. Go to Titles option and you will see different categories of text effects on the left panel. Select any one of text effect templates and drop onto the timeline above the background video.
 
 ![select background for text filmora](https://images.wondershare.com/filmora/article-images/2022/09/select-background-for-text-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Q-mXUpVQijU?si=f1MzflPJ8-bD2_iQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Step3 Double-click on the text layer on the timeline to edit the text preset. You can select any available text style as well as adjust parameters from font and settings sections.
 
@@ -164,10 +144,6 @@ Part 1\. 8 Popular Text Title Effects Types in AE
 
 There are certain properties and parameters associated with text effects and animations in After Effects. You need to get a complete overview of these types so that you can adjust them and come up with stunning text animations in After Effects.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/58KlTPHv8dU?si=7ICagyNgrao7OkVO" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### 1\. 3D Text
 
 Generally, when you type a text in After Effects, by default, it comes out to be two-dimensional. All the associated properties have X and Y axis only. However, if you are planning to create 3D text and title, you need to have Z axis.
@@ -187,10 +163,6 @@ There are different variations of zoom in and out effect that you can try on you
 ### 4\. Blur and Opacity
 
 You must have seen the text animation where the blurry text comes into focus and this can be achieved using Blur parameter. Many people confused Blur with Opacity but blur refers to out of focus while opacity can be understood by fade in and fade out effect. You can adjust the horizontal and vertical blur amount separately and you can come up with stunning text animations by changing Blur value.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YB7Ou4-iKVM?si=7Fq8iUwI8voccMLx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### 5\. Fill and Stroke
 
@@ -224,19 +196,11 @@ Step2 Go to Effects and Presets panel, search for the desired text effect preset
 
 ![preview effects and presets ae](https://images.wondershare.com/filmora/article-images/2022/09/preview-effects-and-presets-ae.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/9Sj2QNA-JXI?si=V-_h73iE3VlE214k" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 Step3 Go to Timeline and click on the text layer to expand it. Click on Animate option and select any property that you want to adjust and create animation based on the parameters. Go to Keyframe section and add keyframes and change parameters for different keyframes for the text to animate.
 
 ![add keyframes in after effects](https://images.wondershare.com/filmora/article-images/2022/09/add-keyframes-in-after-effects.jpg)
 
 Apart from the animate option and its parameters, there are several parameters such as transform that you can adjust to edit the text effect as per your preference.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/T-ssCD10v2M?si=WVWGNayUiCAkMZzZ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 3\. AE Alternative to Edit Text Effects in Video
 
@@ -261,10 +225,6 @@ Step3 Double-click on the text layer on the timeline to edit the text preset. Yo
 Step4 Go to Animation section and click on Advanced button. Change different parameters under Customize section such as Blue, Opacity, Shadow, and much more. You can create keyframes on the timeline like AE and edit parameters as per your preference.
 
 ![add animation text in filmora](https://images.wondershare.com/filmora/article-images/2022/09/add-animation-text-in-filmora.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Vca--yEhtdo?si=7ijqjyP-oi3LYze1" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ## Part 4\. Related FAQs of Title Effects in After Effects
 
@@ -304,20 +264,22 @@ Motion title is a dynamic text effect template available in After Effects throug
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://youtube-lab.techidaily.com/yan-kajis-riches-the-tale-of-youtubes-youngest-mogul-for-2024/"><u>[New] Ryan Kaji’s Riches The Tale of YouTube's Youngest Mogul for 2024</u></a></li>
-<li><a href="https://fox-boxes.techidaily.com/updated-2024-approved-unveiling-the-magic-of-seamless-sound-integration-in-videos/"><u>[Updated] 2024 Approved Unveiling the Magic of Seamless Sound Integration in Videos</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-drone-frontier-deconstructing-djis-mavic-pro-masterpiece-for-2024/"><u>[Updated] Drone Frontier - Deconstructing DJI's Mavic Pro Masterpiece for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-glacial-glory-pinnacle-sports-achievements/"><u>[Updated] In 2024, Glacial Glory Pinnacle Sports Achievements</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-top-nvidia-and-amd-gpus-for-4k-workstations/"><u>[Updated] In 2024, Top NVIDIA & AMD GPUs for 4K Workstations</u></a></li>
-<li><a href="https://extra-approaches.techidaily.com/updated-premiere-pros-shadowy-showdown/"><u>[Updated] Premiere Pro's Shadowy Showdown</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-understanding-vr-headsets-an-overview/"><u>[Updated] Understanding VR Headsets An Overview</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-watermark-wisdom-the-10-best-apps-reviewed-for-2024/"><u>[Updated] Watermark Wisdom The 10 Best Apps Reviewed for 2024</u></a></li>
-<li><a href="https://win-blog.techidaily.com/1723000358426-dayz-frame-rate-woes-speedily-resolve-with-easy-to-follow-tips/"><u>DayZ Frame Rate Woes? Speedily Resolve with Easy-to-Follow Tips!</u></a></li>
-<li><a href="https://solve-marvelous.techidaily.com/harness-the-power-of-cookiebot-for-enhanced-site-traffic-and-conversion-rates/"><u>Harness the Power of Cookiebot for Enhanced Site Traffic & Conversion Rates</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-effortless-underwater-cinematography-experts-7-secrets/"><u>In 2024, Effortless Underwater Cinematography Expert's 7 Secrets</u></a></li>
-<li><a href="https://review-topics.techidaily.com/in-2024-how-to-stop-my-spouse-from-spying-on-my-realme-12-proplus-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Stop My Spouse from Spying on My Realme 12 Pro+ 5G | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-magical-marketing-essential-terms-to-master/"><u>In 2024, Magical Marketing Essential Terms to Master</u></a></li>
-<li><a href="https://extra-information.techidaily.com/navigating-facebooks-medical-and-wellness-campaigning/"><u>Navigating Facebook's Medical and Wellness Campaigning</u></a></li>
-<li><a href="https://win-data.techidaily.com/1728483689726-windows-10/"><u>Windows 10 系統中的截圖功能：如何使用及其位置</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-expert-tips-for-superior-video-quality-using-vce-22/"><u>[New] Expert Tips for Superior Video Quality Using VCE 2.2</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-the-insiders-guide-to-altering-your-iphone-ringtones/"><u>[New] In 2024, The Insider's Guide to Altering Your iPhone Ringtones</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-advanced-method-for-combining-gopro-footage-with-full-spherical-vids/"><u>[Updated] 2024 Approved Advanced Method for Combining GoPro Footage with Full Spherical Vids</u></a></li>
+<li><a href="https://instagram-video-recordings.techidaily.com/updated-2024-approved-instagram-gif-mastery-your-quick-guide-to-uploads-and-sharing/"><u>[Updated] 2024 Approved Instagram GIF Mastery Your Quick Guide to Uploads and Sharing</u></a></li>
+<li><a href="https://visual-screen-recording.techidaily.com/updated-2024-approved-superior-live-streaming-and-conferencing-apps/"><u>[Updated] 2024 Approved Superior Live Streaming & Conferencing Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-get-more-than-just-images-at-pexelscom/"><u>[Updated] In 2024, Get More Than Just Images at Pexels.com</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-pro-audios-essential-guide-to-top-10-free-luts/"><u>[Updated] In 2024, Pro Audio's Essential Guide to Top 10 Free LUTs</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-ultimate-guide-to-the-top-12-no-cost-video-players-online/"><u>[Updated] In 2024, Ultimate Guide to the Top 12 No-Cost Video Players Online</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-the-essence-of-unaltered-audio-ffmpegs-precision/"><u>[Updated] The Essence of Unaltered Audio FFmpeg’s Precision</u></a></li>
+<li><a href="https://buynow-marvelous.techidaily.com/active-life-companion-an-in-depth-analysis-of-the-samsung-galaxy-fit/"><u>Active Life Companion: An In-Depth Analysis of the Samsung Galaxy Fit</u></a></li>
+<li><a href="https://extra-hints.techidaily.com/best-live-sound-experience-service/"><u>Best Live Sound Experience Service</u></a></li>
+<li><a href="https://discover-alternatives.techidaily.com/client-triumph-tales-real-stories-of-business-growth-and-success/"><u>Client Triumph Tales: Real Stories of Business Growth and Success</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-innovate-personalized-digital-chuckle-comedy/"><u>In 2024, Innovate Personalized Digital Chuckle Comedy</u></a></li>
+<li><a href="https://win-remarkable.techidaily.com/mastering-taskbar-settings-on-windows-10-with-yl-softwares-expert-advice/"><u>Mastering Taskbar Settings on Windows 10 with YL Software's Expert Advice</u></a></li>
+<li><a href="https://screen-capture.techidaily.com/ps4-broadcast-simplified-detailed-steps-using-obs/"><u>PS4 Broadcast Simplified Detailed Steps Using OBS</u></a></li>
+<li><a href="https://techidaily.com/three-methods-to-recover-lost-data-on-10t-5g-by-fonelab-android-recover-data/"><u>Three methods to recover lost data on 10T 5G</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/top-5-tracking-apps-to-track-honor-x50-without-them-knowing-drfone-by-drfone-virtual-android/"><u>Top 5 Tracking Apps to Track Honor X50 without Them Knowing | Dr.fone</u></a></li>
 </ul></div>
 

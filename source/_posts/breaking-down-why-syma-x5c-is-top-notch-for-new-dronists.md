@@ -1,7 +1,7 @@
 ---
 title: "\"Breaking Down  Why Syma X5C Is Top-Notch for New Dronists\""
-date: 2024-07-29T02:22:56.623Z
-updated: 2024-07-30T02:22:56.623Z
+date: 2025-02-27T17:43:55.727Z
+updated: 2025-03-02T17:45:09.215Z
 tags: 
   - screen-recording
   - ai video
@@ -34,9 +34,6 @@ thumbnail: https://thmb.techidaily.com/c0fe8b6f81af5b05eb5adacea58a29fe6fd2f271b
 
 **You may also like:** [Drone racing: Things You need to Know and Top 5 best FPV racing drones >>](https://tools.techidaily.com/wondershare/filmora/download/)
 
-<!-- affiliate ads begin -->
-<a href="https://store.iobit.com/order/checkout.php?PRODS=4596923&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/184260348236f9554fe9375772ff966e/ascscan_468X60.png" border="0"></a>
-<!-- affiliate ads end -->
 ## Pros and Cons of Syma X5C
 
 **Pros:**
@@ -63,9 +60,6 @@ thumbnail: https://thmb.techidaily.com/c0fe8b6f81af5b05eb5adacea58a29fe6fd2f271b
 
  There are so many incredible features inside Syma X5C that make it suitable device for [aerial photography](https://tools.techidaily.com/wondershare/filmora/download/). The intuitive controls are much easier to explore even for beginners. The remote control is user friendly and all other latest features make it a must buy product for drone lovers.
 
-<!-- affiliate ads begin -->
-<a href="https://appsumo.8odi.net/c/5597632/2075475/7443" target="_top" id="2075475"><img src="//a.impactradius-go.com/display-ad/7443-2075475" border="0" alt="" width="1200" height="600"/></a><img height="0" width="0" src="https://appsumo.8odi.net/i/5597632/2075475/7443" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Complete Review for Syma X5C
 
 #### 1\.  Basic Specs Info
@@ -95,32 +89,20 @@ thumbnail: https://thmb.techidaily.com/c0fe8b6f81af5b05eb5adacea58a29fe6fd2f271b
 
 #### 5. Control Range
 
-<!-- affiliate ads begin -->
-<a href="https://order.glarysoft.com/order/checkout.php?PRODS=35408920&QTY=1&AFFILIATE=108875&CART=1"><img src="https://secure.avangate.com/images/merchant/6734fa703f6633ab896eecbdfad8953a/products/FR-200-1.png" border="0">Glarysoft File Recovery Pro - Helps to recover your lost file/data, even permanently deleted data. </a>
-<!-- affiliate ads end -->
 ![syma x5c controller](https://images.wondershare.com/filmora/article-images/syma-x5c-controller.jpg)
 
  The remote unit or transmitter works with a 2.4GHz frequency setting with 4 channel type control. It helps pilots to enjoy wider flying range with spread spectrum technology. The maximum flying range falls between 30 to 50 meters and no lags have been reported yet in control selection and quadcopter reactions. Using flip switch, you can directly adjust the movements in air.
 
 #### 6\.  Camera
 
-<!-- affiliate ads begin -->
-<a href="https://secure.2checkout.com/order/checkout.php?PRODS=4559731&QTY=1&AFFILIATE=108875&CART=1"><img src="http://www.neowise.com/images/nd-ss-w200.jpg" border="0">NeoDownloader - Fast and fully automatic image/video/music downloader. </a>
-<!-- affiliate ads end -->
 ![syma x5c camera](https://images.wondershare.com/filmora/article-images/syma-x5c-camera.jpg)
 
  Syma H5C camera is rated as moderately stable and it is capable enough to take impressive pictures from air. This device is equipped with a 2GB MicroSD card that offers personal storage space to all recorded videos and images. The sad part is here that controller unit of this device is able to send signals to drone only; it cannot control the camera actions. Thus your camera stays focused in only one direction all the time and have fixed focus during shoots. You cannot apply zoom, direction sensing inputs or focus adjustment controls when your device is in air. If you are searching for a highly controlled footage generator then it is good to go for other Phantom series and other competing models as per your budget. But Syma H5C is really a good choice to start with.
 
-<!-- affiliate ads begin -->
-<a href="https://ursime.pxf.io/c/5597632/2092236/16384" target="_top" id="2092236"><img src="//a.impactradius-go.com/display-ad/16384-2092236" border="0" alt="" width="1920" height="329"/></a><img height="0" width="0" src="https://imp.pxf.io/i/5597632/2092236/16384" style="position:absolute;visibility:hidden;" border="0" />
-<!-- affiliate ads end -->
 ## Conclusion
 
  Syma's X5C can be included in the list of must buy product for beginners due to its all incredible features. If you are a beginner and are just going to learn about flight basics then this advanced camera unit can serve you best with all impressive controls. Its sleek design along with feature rich platform offers lots of things to explore in air. You will definitely love to enjoy its regular and expert mode settings with unique flight experiences.
 
-<!-- affiliate ads begin -->
-<a href="https://shop.systoolsgroup.com/affiliate.php?ACCOUNT=SYSTOOBY&AFFILIATE=108875&PATH=https%3A%2F%2Fwww.systoolsgroup.com%3FAFFILIATE%3D108875%26RESOURCE%3D%2BSysTools%2BOutlook%2BRecovery"><img src="https://www.systoolsgroup.com/box/outlook-recovery.png" border="0"></a>
-<!-- affiliate ads end -->
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
 
 Max Wales
@@ -146,4 +128,20 @@ Follow @Max Wales
      data-full-width-responsive="true"></ins>
 
 
+<span class="atpl-alsoreadstyle">Also read:</span>
+<div><ul>
+<li><a href="https://instagram-clips.techidaily.com/new-collagecraft-stitching-videos-for-instagram-on-iosandroid-for-2024/"><u>[New] CollageCraft Stitching Videos for Instagram on iOS/Android for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-quick-guide-how-to-download-windows-movie-maker-6/"><u>[New] In 2024, Quick Guide How to Download Windows Movie Maker 6</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-a-complete-overview-regulating-snapchats-video-velocity/"><u>[Updated] 2024 Approved A Complete Overview Regulating Snapchat's Video Velocity</u></a></li>
+<li><a href="https://youtube-data.techidaily.com/ed-2024-approved-sound-surprises-10-androidios-audio-twisters/"><u>[Updated] 2024 Approved Sound Surprises 10 Android/iOS Audio Twisters</u></a></li>
+<li><a href="https://instagram-clips.techidaily.com/updated-2024-approved-top-tips-for-creating-engaging-and-memorable-instagram-reels/"><u>[Updated] 2024 Approved Top Tips for Creating Engaging and Memorable Instagram Reels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-depth-look-at-iphones-top-watermarking-software-choices/"><u>[Updated] In-Depth Look at iPhone's Top Watermarking Software Choices</u></a></li>
+<li><a href="https://fox-helps.techidaily.com/updated-inside-look-3d-lut-creation-process/"><u>[Updated] Inside Look 3D LUT Creation Process</u></a></li>
+<li><a href="https://article-tips.techidaily.com/high-quality-1-ranked-4k-laptops-for-gaming/"><u>High-Quality #1 Ranked 4K Laptops for Gaming</u></a></li>
+<li><a href="https://article-tips.techidaily.com/in-2024-dive-into-aurora-hdr-a-new-era-for-viewers/"><u>In 2024, Dive Into Aurora HDR A New Era for Viewers?</u></a></li>
+<li><a href="https://android-location-track.techidaily.com/in-2024-how-to-spy-on-text-messages-from-computer-and-realme-narzo-60x-5g-drfone-by-drfone-virtual-android/"><u>In 2024, How to Spy on Text Messages from Computer & Realme Narzo 60x 5G | Dr.fone</u></a></li>
+<li><a href="https://some-approaches.techidaily.com/in-2024-stream-control-tactics-10-ways-to-unwind-live-play/"><u>In 2024, Stream Control Tactics 10 Ways to Unwind Live Play</u></a></li>
+<li><a href="https://extra-tips.techidaily.com/unlocking-photo-magic-the-role-of-luts-in-editing/"><u>Unlocking Photo Magic The Role of LUTs in Editing</u></a></li>
+<li><a href="https://article-tips.techidaily.com/viewers-guide-app-performance-analysis-for-2024/"><u>Viewer's Guide App Performance Analysis for 2024</u></a></li>
+</ul></div>
 

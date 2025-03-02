@@ -1,7 +1,7 @@
 ---
 title: "\"[New] In 2024, Step-by-Step Guide  Activate or Deactivate Picture-in-Picture on Apple's YouTube App\""
-date: 2025-02-04T16:42:48.184Z
-updated: 2025-02-11T19:11:52.610Z
+date: 2025-02-28T19:31:54.917Z
+updated: 2025-03-02T18:13:29.939Z
 tags: 
   - screen-recording
   - ai video
@@ -44,10 +44,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 
 ![shortcut application](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-2.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Un9G2_OdSRI?si=vAcGbco8DuWt4ypP" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 1. Tap **Allow Untrusted Shortcuts** in the Shortcut Application on your device
 2. Now go to the actual YouTube App and start to play a video
 3. As the video plays, tap on the **Share icon** then scroll to the right end of the list of sharing options for platforms and Apps. Tap the **More icon** at the right end.
@@ -56,10 +52,6 @@ On iOS 14.5 or 14.6, here is a simple step-by-step guide to enable Picture in Pi
 6. Tap on the burner that pops out. It will direct you to the actual shortcut for YouTube. And you will need to install an additional Application (Scriptable App).
 
 ![scriptable app](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-3.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/2NU63YqpVqw?si=uoJs0-nZYAkILqXx" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 1. Tap on **View in App Store** on the screen that appears. This will direct you to the App Store.
 2. On the next screen that appears, download [**Scriptable App**](https://apps.apple.com/us/app/scriptable/id1405459188). Get back to the home screen and launch Scriptable App once.
@@ -86,10 +78,6 @@ To use PIP on iPhone effectively, you may sometime need to deactivate it so that
 
 Picture in Picture is now a native quality utility feature on many Apps on different platforms. PIP has stayed for some time since it was developed and introduced for third-party utilization. However, YouTube is still left out of this. To enable PIP on Mac, you will need to go a step ahead to do it. Enjoying PIP on an iPad is also not a straightforward thing. All the same, Mac and iPad require very simple instructions to allow you to use Picture in Picture with them.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/DEqoiNArwjQ?si=oaL_lgnI-RxY5Qy_" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### PIP on iPad
 
 To activate PIP on your iPad, you only need your phone settings and a supported browser like Safari. However, you have to update your iPad to the iOS 14 version that fully supports the feature.
@@ -109,14 +97,6 @@ Before you use Picture in Picture in YouTube, you require two Apps on your devic
 5. Tap **YouTube PIP** and select **OK** on the burner that appears on the screen. This will produce a new floating window automatically on the screen. You can select a window resolution that fits you and go back to Home Screen. Your video will play in a floating window on your home screen.
 
 ![floating window](https://images.wondershare.com/filmora/article-images/2022/07/picture-in-picture-for-youtube-on-iphone-6.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/YfEPmG_O6F8?si=93ZTVtH_zjFRz5eh" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/PNw3Lb26wFA?si=5NR1XRVSp41EQYMy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### PIP on Mac
 
@@ -169,19 +149,18 @@ Picture in Picture is a computer utility feature in the USA. It has not been lau
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://article-tips.techidaily.com/new-excellence-in-quality-leading-4k-panels-for-filmmaking-for-2024/"><u>[New] Excellence in Quality Leading 4K Panels for Filmmaking for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-blend-photos-effortlessly-in-real-time/"><u>[Updated] Blend Photos Effortlessly in Real-Time</u></a></li>
-<li><a href="https://youtube-zero.techidaily.com/ed-in-2024-maximizing-engagement-co-filming-techniques/"><u>[Updated] In 2024, Maximizing Engagement Co-Filming Techniques</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-premium-biz-cloud-vault-services-for-2024/"><u>[Updated] Premium Biz Cloud Vault Services for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-pristine-story-conception-in-eight-genre-divisions/"><u>[Updated] Pristine Story Conception in Eight Genre Divisions</u></a></li>
-<li><a href="https://video-capture.techidaily.com/exploring-10-innovative-affordable-video-call-apps-iosandroid/"><u>Exploring 10 Innovative, Affordable Video Call Apps - iOS/Android</u></a></li>
-<li><a href="https://tech-renaissance.techidaily.com/future-of-smart-television-uncover-the-expected-features-and-pricing-for-the-new-google-tv-media-player/"><u>Future of Smart Television? Uncover the Expected Features and Pricing for the New Google TV Media Player</u></a></li>
-<li><a href="https://article-tips.techidaily.com/high-end-8-cam-modifiers-for-crystal-clear-feeds-for-2024/"><u>High-End 8 Cam Modifiers for Crystal Clear Feeds for 2024</u></a></li>
-<li><a href="https://screen-mirror.techidaily.com/in-2024-how-google-pixel-8-pro-mirror-screen-to-pc-drfone-by-drfone-android/"><u>In 2024, How Google Pixel 8 Pro Mirror Screen to PC? | Dr.fone</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/in-2024-mastering-the-art-of-preserving-instagram-live-moments/"><u>In 2024, Mastering the Art of Preserving Instagram Live Moments</u></a></li>
-<li><a href="https://some-approaches.techidaily.com/mpeg-2-to-mp4-conversion-how-to-convert-unplayable-m2v-videos-into-playable-mp4-format/"><u>MPEG-2 to MP4 Conversion - How to Convert Unplayable M2V Videos Into Playable MP4 Format</u></a></li>
-<li><a href="https://ai-voice-clone.techidaily.com/new-2024-approved-the-best-text-to-speech-online-tools-to-use/"><u>New 2024 Approved The Best Text-to-Speech Online Tools To Use</u></a></li>
-<li><a href="https://article-tips.techidaily.com/spark-creativity-30-unique-video-projects-for-2024/"><u>Spark Creativity 30 Unique Video Projects for 2024</u></a></li>
-<li><a href="https://fox-that.techidaily.com/struggling-with-iphone-vpn-connection-issues-here-are-7-effective-solutions/"><u>Struggling with iPhone VPN Connection Issues? Here Are 7 Effective Solutions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-2024-approved-accelerated-conversion-guide-from-complex-srt-to-txt-2023/"><u>[New] 2024 Approved Accelerated Conversion Guide From Complex SRT to TXT 2023</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-delving-into-huawei-p10s-app-ecosystem-and-updates/"><u>[New] Delving Into Huawei P10’s App Ecosystem and Updates</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-unveiling-the-high-resolution-benq-sw320-monitor/"><u>[Updated] 2024 Approved Unveiling the High-Resolution BenQ SW320 Monitor</u></a></li>
+<li><a href="https://vp-tips.techidaily.com/updated-achieving-livestream-control-fifteen-innovative-techniques-for-2024/"><u>[Updated] Achieving Livestream Control Fifteen Innovative Techniques for 2024</u></a></li>
+<li><a href="https://video-capture.techidaily.com/updated-in-2024-overcoming-absence-of-color-in-game-recordings/"><u>[Updated] In 2024, Overcoming Absence of Color in Game Recordings</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-prime-10-gif-maker-services-transforming-jpgs-at-no-cost-for-2024/"><u>[Updated] Prime 10 GIF Maker Services Transforming JPGs at No Cost for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-streamlining-audio-addition-in-creative-cloud-suite/"><u>[Updated] Streamlining Audio Addition in Creative Cloud Suite</u></a></li>
+<li><a href="https://win-hacks.techidaily.com/1-simplified-guide-ultimate-steps-for-automated-windows-backups-on-truenas/"><u>1. Simplified Guide: Ultimate Steps for Automated Windows Backups on TrueNAS</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/consolidate-calls-utilizing-your-mobile-number-with-different-gadgets-effortlessly/"><u>Consolidate Calls: Utilizing Your Mobile Number with Different Gadgets Effortlessly</u></a></li>
+<li><a href="https://win-able.techidaily.com/diagnosing-and-repairing-csgo-not-launching-error-messages-expert-tips/"><u>Diagnosing and Repairing 'CSGO Not Launching' Error Messages - Expert Tips</u></a></li>
+<li><a href="https://review-topics.techidaily.com/in-2024-how-to-sharefake-gps-on-uber-for-vivo-s18e-drfone-by-drfone-virtual-android/"><u>In 2024, How to share/fake gps on Uber for Vivo S18e | Dr.fone</u></a></li>
+<li><a href="https://android-unlock.techidaily.com/in-2024-remove-the-lock-screen-fingerprint-of-your-vivo-y56-5g-by-drfone-android/"><u>In 2024, Remove the Lock Screen Fingerprint Of Your Vivo Y56 5G</u></a></li>
+<li><a href="https://article-tips.techidaily.com/recommended-frame-rates-for-professional-slow-motion-videos/"><u>Recommended Frame Rates for Professional Slow-Motion Videos</u></a></li>
 </ul></div>
 

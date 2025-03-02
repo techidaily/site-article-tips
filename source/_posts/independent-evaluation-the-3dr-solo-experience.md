@@ -1,7 +1,7 @@
 ---
 title: "\"Independent Evaluation  The '3DR' Solo Experience\""
-date: 2025-01-26T08:14:06.163Z
-updated: 2025-01-30T07:55:46.071Z
+date: 2025-03-01T19:26:42.288Z
+updated: 2025-03-02T16:56:21.974Z
 tags: 
   - screen-recording
   - ai video
@@ -33,10 +33,6 @@ thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb54997
 >  If you click on a link and make a purchase, I may receive a commission at no extra cost to you.
 >
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/szUqw4TLvWs?si=srv1OeLOe579gLwj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Pros and Cons of 3DR Solo
 
 **Pros:**
@@ -57,10 +53,6 @@ thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb54997
 
  The 3DR solo drone is designed to serve with amazing aerial photography functions that is why it is one of the most preferred drones by cinematographers. One can easily connect it with GoPro cameras to get stunning shots on height. But the downside is its short battery life and weak GPS.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/jpdGEJJwMLY?si=eKgXOPpNeYvYKcel" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Complete Review
 
 #### 1\. Basic Specs Info
@@ -80,10 +72,6 @@ thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb54997
 
 ![3dr solo design](https://images.wondershare.com/filmora/article-images/3dr-solo-design.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/KKFdFHaVIJg?si=x2vLw7ty3FtHX-9T" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 [Check at Amazon](https://www.amazon.com/gp/product/B00ZPM7BOG/ref=as%5Fli%5Ftl?ie=UTF8&tag=vs-flora-20&camp=1789&creative=9325&linkCode=as2&creativeASIN=B00ZPM7BOG&linkId=5a8069fda1f7be3bf48e831452f3ee9d)
 
  People call 3DR Solo one of the most impressive drone with minimal complexities in design. It is the best product for cinematographic needs and you could easily imagine it hovering on the top to capture scenes for Hollywood movies. You will find a 5200mAh battery on top portion of this drone, located near power button. It appears little heavier with the gimbal, camera and battery installation, the overall weight goes up to 3.35 pounds. Note that, you need to get your drone registered with FAA to organise its flights because the weight goes above 0.5 pounds limit. You will find indicating LEDs on this device that keep on indicating full status during its flights and they can be observed in day light too. Users need to connect this device with a smartphone or iOS device to avail full control as well as to get live preview of shoots.
@@ -100,10 +88,6 @@ thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb54997
 
 ![3dr solo controller](https://images.wondershare.com/filmora/article-images/3dr-solo-controller.jpg)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/Hpne0zPsZwU?si=yN5QDsG_WLb_Y3u-" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
  The 3DR solo controller appears trendy with just two joysticks that offer direct control to acceleration, yaw, pitch and roll. The fly button can be accessed for initiated automated landing and takeoff. A tiny screen is provided to display continuous information about battery condition and telemetry data. One additional knob is available for adjustments of camera angle controls. Other then this you will find one customizable button to activate autonomous flight mode. It also provides one pause button that helps users to make their drone stable in air. All other controls can be managed from application.
 
 #### 6\. Camera
@@ -117,10 +101,6 @@ thumbnail: https://thmb.techidaily.com/5f93c49b1c440b80d1268f9b261207858efb54997
 **You may also like:** [10 Must Have drone accessories and parts](https://tools.techidaily.com/wondershare/filmora/download/)
 
 ![author avatar](https://images.wondershare.com/filmora/article-images/max-wales-author.jpg)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/MmTJlcwgyrQ?si=x3hba82M0tT57fj7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 Max Wales
 
@@ -147,19 +127,21 @@ Follow @Max Wales
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://some-knowledge.techidaily.com/new-framing-brilliance-nikon-d500s-high-definition-journey/"><u>[New] Framing Brilliance Nikon D500's High-Definition Journey</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-in-2024-mastering-the-art-of-comfortable-virtual-experiences/"><u>[New] In 2024, Mastering the Art of Comfortable Virtual Experiences</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-pinnacle-selections-prolific-iphone-tone-innovators-for-2024/"><u>[New] Pinnacle Selections Prolific iPhone Tone Innovators for 2024</u></a></li>
-<li><a href="https://fox-info.techidaily.com/new-powerdirector-unleashed-in-depth-2024-analysis-and-guide/"><u>[New] PowerDirector Unleashed In-Depth 2024 Analysis and Guide</u></a></li>
-<li><a href="https://fox-info.techidaily.com/updated-2024-approved-imaginarium-collagecraft-cutting-edge-assembler/"><u>[Updated] 2024 Approved Imaginarium CollageCraft Cutting-Edge Assembler</u></a></li>
-<li><a href="https://howto.techidaily.com/7-solutions-to-fix-error-code-963-on-google-play-of-lava-yuva-2-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>7 Solutions to Fix Error Code 963 on Google Play Of Lava Yuva 2 | Dr.fone</u></a></li>
-<li><a href="https://article-tips.techidaily.com/expert-advice-on-acquiring-the-latest-360-cameras-for-2024/"><u>Expert Advice on Acquiring the Latest 360 Cameras for 2024</u></a></li>
-<li><a href="https://eaxpv-info.techidaily.com/exploring-the-benefits-why-apple-could-excel-as-a-wi-fi-router-manufacturer-once-more/"><u>Exploring the Benefits: Why Apple Could Excel as a Wi-Fi Router Manufacturer Once More</u></a></li>
-<li><a href="https://article-tips.techidaily.com/harness-the-power-of-mematic-for-notes/"><u>Harness the Power of Mematic for Notes</u></a></li>
-<li><a href="https://change-location.techidaily.com/in-2024-ultimate-guide-to-get-the-meltan-box-pokemon-go-for-samsung-galaxy-xcover-6-pro-tactical-edition-drfone-by-drfone-virtual-android/"><u>In 2024, Ultimate guide to get the meltan box pokemon go For Samsung Galaxy XCover 6 Pro Tactical Edition | Dr.fone</u></a></li>
-<li><a href="https://techno-recovery.techidaily.com/ios-and-android-showdown-a-detailed-look-at-apples-app-store-vs-google-play-stores/"><u>IOS and Android Showdown: A Detailed Look at Apple's App Store vs Google Play Stores</u></a></li>
-<li><a href="https://article-tips.techidaily.com/mastering-professional-camera-spin-360-edition-2023/"><u>Mastering Professional Camera Spin 360° Edition, 2023</u></a></li>
-<li><a href="https://discover-amazing.techidaily.com/resolving-consistent-error-messages-from-your-scanner-tips-by-yl-computing/"><u>Resolving Consistent Error Messages From Your Scanner - Tips by YL Computing</u></a></li>
-<li><a href="https://article-tips.techidaily.com/unlock-your-movies-gratis-player-for-windowsmacos/"><u>Unlock Your Movies Gratis Player for Windows/MacOS</u></a></li>
+<li><a href="https://facebook-video-share.techidaily.com/new-2024-approved-configuring-who-can-see-your-youtube-clips/"><u>[New] 2024 Approved Configuring Who Can See Your YouTube Clips</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-toolwiz-analysis-revolutionizing-image-editing-on-the-go/"><u>[New] In 2024, Toolwiz Analysis Revolutionizing Image Editing on the Go</u></a></li>
+<li><a href="https://some-knowledge.techidaily.com/new-infinite-storage-horizon-your-guide-to-free-and-premium-cloud-services/"><u>[New] Infinite Storage Horizon Your Guide to Free & Premium Cloud Services</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-the-hasty-photographers-guide-to-google-collage-magic-for-2024/"><u>[New] The Hasty Photographer's Guide to Google Collage Magic for 2024</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-2024-approved-access-a-wide-range-of-content-via-12-streaming-apps/"><u>[Updated] 2024 Approved Access a Wide Range of Content via 12 Streaming Apps</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-in-2024-quick-launch-checklist-essential-tasks-for-bringing-your-review-channel-to-life/"><u>[Updated] In 2024, Quick Launch Checklist Essential Tasks for Bringing Your Review Channel to Life</u></a></li>
+<li><a href="https://snapchat-videos.techidaily.com/2024-approved-narrowing-focus-mac-techniques-for-snapchat-videos/"><u>2024 Approved Narrowing Focus Mac Techniques for Snapchat Videos</u></a></li>
+<li><a href="https://tech-savvy.techidaily.com/automated-marketing-solutions-optimized-with-cookiebot-technology/"><u>Automated Marketing Solutions: Optimized with Cookiebot Technology</u></a></li>
+<li><a href="https://win-latest.techidaily.com/effective-strategies-growing-your-contact-base-with-smart-purchases-from-search-giants-leveraging-massmail-solutions/"><u>Effective Strategies : Growing Your Contact Base with Smart Purchases From Search Giants - Leveraging MassMail Solutions</u></a></li>
+<li><a href="https://article-tips.techidaily.com/gopro-max-360-vs-hero-11-which-is-the-best-gopro-video-camera-in-2024/"><u>GoPro Max 360 VS Hero 11 Which Is the Best GoPro Video Camera, In 2024</u></a></li>
+<li><a href="https://android-transfer.techidaily.com/in-2024-8-ways-to-transfer-photos-from-vivo-y100-to-iphone-easily-drfone-by-drfone-transfer-from-android-transfer-from-android/"><u>In 2024, 8 Ways to Transfer Photos from Vivo Y100 to iPhone Easily | Dr.fone</u></a></li>
+<li><a href="https://tech-renaissance.techidaily.com/mastering-the-basics-of-pc-drivers-proven-methods-for-correcting-windows-driver-glitches/"><u>Mastering the Basics of PC Drivers: Proven Methods for Correcting Window's Driver Glitches</u></a></li>
+<li><a href="https://article-tips.techidaily.com/premier-pdf-enhancements/"><u>Premier PDF Enhancements</u></a></li>
+<li><a href="https://article-tips.techidaily.com/the-definitive-guide-to-crafting-memorable-podcast-names-with-inspirations-for-2024/"><u>The Definitive Guide to Crafting Memorable Podcast Names, with Inspirations for 2024</u></a></li>
+<li><a href="https://howto.techidaily.com/top-4-android-system-repair-software-for-samsung-galaxy-f54-5g-bricked-devices-drfone-by-drfone-fix-android-problems-fix-android-problems/"><u>Top 4 Android System Repair Software for Samsung Galaxy F54 5G Bricked Devices | Dr.fone</u></a></li>
+<li><a href="https://sound-issues.techidaily.com/troubleshoot-your-noisy-headphones-with-our-easy-fixes/"><u>Troubleshoot Your Noisy Headphones with Our Easy Fixes</u></a></li>
 </ul></div>
 

@@ -1,7 +1,7 @@
 ---
 title: "\"[Updated] 2024 Approved  Learn to Cut Out the Unwanted  A Guide to Erasing Background\""
-date: 2025-01-25T16:44:32.721Z
-updated: 2025-01-30T09:00:35.383Z
+date: 2025-02-24T19:48:40.057Z
+updated: 2025-03-02T20:08:38.804Z
 tags: 
   - screen-recording
   - ai video
@@ -57,10 +57,6 @@ This function lets you use brushstrokes to remove watermarks from your target pi
 
 With its Image Englargement feature, you can expand the size of your picture up to 400% without losing the quality.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sn2STvYRVb8?si=Z-XhJJ1Mc-Em5Kqy" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ### How to use PixCut to remove the background in Figma
 
 Here's how you can get the PixCut plugin in Figma and use it to remove the background in just three simple steps:
@@ -79,19 +75,11 @@ Step3 Paste the Appkey in the pop-up window in Figma and click **"Save."** Now, 
 
 ![running the pixcut plugin in figma](https://images.wondershare.com/filmora/article-images/2023/03/running-the-pixcut-plugin-in-figma.png)
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/HtM7d4dpN1I?si=2vN_xgVGD4eYGORu" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 The program will start running the plugin, and the background of your image will disappear. Click the **"Export"** option and save your file on your system.
 
 ## Other Options To Remove Image's Background In Figma
 
 Apart from using PixCut Plugin in Figma, there are some alternatives that you can use to remove the image's background in Figma:
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/6kzbT13ds3M?si=hBInu0Or-cX2ANJF" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### (1) When Images Are With Transparent or Solid Colour Backgrounds
 
@@ -99,10 +87,6 @@ Follow these tips to remove the background of images with transparent or solid c
 
 * When saving your images from programs like Photoshop, make sure to save them with transparent background. This way, when you import it to Figma, the BG will be removed automatically.
 * If your image has a solid background, import it to Figma and use the **"Edit Color"** tool to change the BG to transparent.
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/ZblaBc-v2vs?si=CKW1gJwXQT2vZJYo" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### (2) 3 Other Figma Plugins
 
@@ -132,10 +116,6 @@ Another alternative is to use any tool that **removes the image background onlin
 
 To use the Remove BG tool, visit its website, drop your image file, or click the **"Upload"** option to import your file. Now, wait for the program to process your image and then click **"Download"** to save your picture. Afterward, you can import it to Figma for further editing.
 
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/rBnnLFJbvr4?si=LlHYrYlOBp7NLMec" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
-
 ## Video Tutorial - How to remove background from images in Figma in 2minutes
 
 Hopefully, you have found an ideal solution by now. To help you remove the image's background in Figma with more ease, we have prepared a video for you. You can combine the video content with the guidance above:
@@ -159,10 +139,6 @@ Step2 **Right-click** on the image in the editor and click **"Plugins."**
 Step3 Select **"Find More Plugins"** and use the search option in the pop-up window to find the plugin you need.
 
 ![accessing the plugin installation page in figma](https://images.wondershare.com/filmora/article-images/2023/03/accessing-the-plugin-installation-page-in-figma.png)
-
-<!-- affiliate ads begin -->
-<iframe width="560" height="315" src="https://www.youtube.com/embed/odDOPrPjRYY?si=7QHzdUkTPNkHJiVj" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
-<!-- affiliate ads end -->
 
 ### (3) Using Online Removers
 
@@ -206,24 +182,22 @@ Hopefully, this article helped resolve your queries, and you can now use the Fig
 
 <span class="atpl-alsoreadstyle">Also read:</span>
 <div><ul>
-<li><a href="https://instagram-video-files.techidaily.com/new-2024-approved-mastering-slow-motion-instagram-a-reel-guide/"><u>[New] 2024 Approved Mastering Slow-Motion Instagram A Reel Guide</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-picture-puns-smilesketchers/"><u>[New] 2024 Approved Picture Puns SmileSketchers</u></a></li>
-<li><a href="https://instagram-videos.techidaily.com/new-2024-approved-spotting-instagrams-newly-deactivated-accounts/"><u>[New] 2024 Approved Spotting Instagram's Newly Deactivated Accounts</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-2024-approved-ultimate-vision-tech-top-5-for-slow-motion/"><u>[New] 2024 Approved Ultimate Vision Tech Top 5 for Slow Motion</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-creating-auditory-immersion-with-canvas-soundscape-tools/"><u>[New] Creating Auditory Immersion with Canva's Soundscape Tools</u></a></li>
-<li><a href="https://article-tips.techidaily.com/new-the-art-and-science-of-periscope-streaming/"><u>[New] The Art and Science of Periscope Streaming</u></a></li>
-<li><a href="https://youtube-webster.techidaily.com/ed-2024-approved-unlocking-youtube-success-try-these-proven-traffic-boosters/"><u>[Updated] 2024 Approved Unlocking YouTube Success Try These Proven Traffic Boosters</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-discover-ultimate-free-space-solutions-trustworthy-platforms-up-to-1tb-for-2024/"><u>[Updated] Discover Ultimate Free Space Solutions - Trustworthy Platforms (Up To 1TB) for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-essential-tools-for-adding-framing-to-digital-pictures-2023-edition-for-2024/"><u>[Updated] Essential Tools for Adding Framing to Digital Pictures - 2023 Edition for 2024</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-prime-cameras-for-extreme-pursuits/"><u>[Updated] In 2024, Prime Cameras for Extreme Pursuits</u></a></li>
-<li><a href="https://article-tips.techidaily.com/updated-in-2024-simplifying-media-files-with-xml-ssa-ttml-to-srt-process/"><u>[Updated] In 2024, Simplifying Media Files with XML, SSA, TTML to SRT Process</u></a></li>
-<li><a href="https://win-rankings.techidaily.com/guida-passo-passo-alla-creazione-di-backup-dei-salvataggi-in-the-sims-4-per-pc-e-console/"><u>Guida Passo-Passo Alla Creazione Di Backup Dei Salvataggi in The Sims 4 per PC E Console</u></a></li>
-<li><a href="https://article-tips.techidaily.com/in-2024-combining-images-seamlessly-pc-edition/"><u>In 2024, Combining Images Seamlessly PC Edition</u></a></li>
-<li><a href="https://extra-support.techidaily.com/professionals-picks-selecting-the-best-software-for-live-streamsvmix-or-wirecast-in-2024/"><u>Professionals' Picks Selecting the Best Software for Live Streams—VMix or Wirecast, In 2024</u></a></li>
-<li><a href="https://techtrends.techidaily.com/quick-and-easy-chrome-browser-tricks-for-effective-website-blocking/"><u>Quick & Easy Chrome Browser Tricks for Effective Website Blocking</u></a></li>
-<li><a href="https://extra-resources.techidaily.com/screenscout-quest-uncovering-affordable-tiktok-visuals-without-a-cost/"><u>ScreenScout Quest Uncovering Affordable TikTok Visuals Without a Cost</u></a></li>
-<li><a href="https://win-answers.techidaily.com/troubleshooting-baldurs-gate-overcoming-pc-game-crashes/"><u>Troubleshooting Baldur's Gate Ⅲ: Overcoming PC Game Crashes</u></a></li>
-<li><a href="https://hardware-updates.techidaily.com/usb-detection-errors-on-windows-11-discover-proven-methods-to-get-device-recognition-back-online/"><u>USB Detection Errors on Windows 11? Discover Proven Methods to Get Device Recognition Back Online</u></a></li>
-<li><a href="https://buynow-tips.techidaily.com/windows-11-adoption-should-i-make-the-leap-now/"><u>Windows 11 Adoption: Should I Make the Leap Now?</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-get-the-edge-with-a-premier-zero-cost-voice-change-software/"><u>[New] Get the Edge with a Premier, Zero-Cost Voice Change Software</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-a-curators-choice-top-12-websites-to-steal-millions-of-favorite-pixels/"><u>[New] In 2024, A Curator's Choice Top 12 Websites to Steal Millions of Favorite Pixels</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-boost-bandw-vibrancy-ps-grading-hacks/"><u>[New] In 2024, Boost B&W Vibrancy PS Grading Hacks</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-in-2024-thrilling-twists-and-turns-short-track-22/"><u>[New] In 2024, Thrilling Twists & Turns - Short Track '22</u></a></li>
+<li><a href="https://article-tips.techidaily.com/new-saving-big-on-final-cut-pro-without-paying-for-2024/"><u>[New] Saving Big on Final Cut Pro without Paying for 2024</u></a></li>
+<li><a href="https://screen-video-capture.techidaily.com/updated-2024-approved-winning-at-capturing-conversations-windows-vs-mac-recording-tactics/"><u>[Updated] 2024 Approved Winning at Capturing Conversations - Windows vs Mac Recording Tactics</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-hues-in-harmony-the-process-of-film-coloring/"><u>[Updated] Hues in Harmony The Process of Film Coloring</u></a></li>
+<li><a href="https://screen-recording.techidaily.com/updated-in-2024-vrecorder-unpacked-step-by-step-download-procedures/"><u>[Updated] In 2024, VRecorder Unpacked Step-by-Step Download Procedures</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-next-gen-players-guide-rift-vive-vs-ps-vr-games/"><u>[Updated] Next-Gen Players Guide Rift, Vive, vs PS VR Games</u></a></li>
+<li><a href="https://article-tips.techidaily.com/updated-your-ultimate-cheat-sheet-for-nba-livestreams-top-15-tips-for-2024/"><u>[Updated] Your Ultimate Cheat Sheet for NBA Livestreams (Top 15 Tips) for 2024</u></a></li>
+<li><a href="https://techno-recovery.techidaily.com/airpod-connection-techniques-on-an-hp-computer/"><u>AirPod Connection Techniques on an HP Computer</u></a></li>
+<li><a href="https://win-howtos.techidaily.com/configuration-complete-resource-lacking-response/"><u>Configuration Complete; Resource Lacking Response</u></a></li>
+<li><a href="https://extra-lessons.techidaily.com/cuddle-time-visuals-evaluation-report/"><u>Cuddle Time Visuals Evaluation Report</u></a></li>
+<li><a href="https://youtube-clips.techidaily.com/elevate-video-playback-with-youtubes-latest-feature-av1-for-2024/"><u>Elevate Video Playback with YouTube's Latest Feature - AV1 for 2024</u></a></li>
+<li><a href="https://youtube-tips.techidaily.com/24-youtube-traction-techniques-for-million-sub-attainment/"><u>In 2024, Youtube Traction Techniques for Million-Sub Attainment</u></a></li>
+<li><a href="https://win-answers.techidaily.com/insight-into-football-manager-2022s-delayed-start-everything-you-need-to-know-now-sorted-out/"><u>Insight Into Football Manager 2022'S Delayed Start: Everything You Need to Know, Now Sorted Out!</u></a></li>
+<li><a href="https://win-able.techidaily.com/troubleshooting-gzw-pc-issues-a-comprehensive-guide/"><u>Troubleshooting GZW PC Issues: A Comprehensive Guide</u></a></li>
 </ul></div>
 
